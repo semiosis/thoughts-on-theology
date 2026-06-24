@@ -49,12 +49,12 @@ Christ. My guess is both, but I'd like to understand the Greek a bit better.
  |     adjective
  |     having the force of a question.
  |     "a hard, interrogative stare"
-6:
+ |
  | transitive verb
  |     A verb that entails one or more transitive
  |     objects, for example, 'enjoys' in Amadeus
  |      enjoys music.
-11:
+ | 
  |      This contrasts with intransitive verbs,
  |      which do not entail transitive objects,
  |      for example, 'arose' in Beatrice arose.
@@ -127,13 +127,13 @@ marked by a definite article the. Together with accusative, it forms modern Engl
  |  οὐκ  ἔχει  .  ὁ         μένων     ἐν   τῇ
  |  not  has      The [one] abiding   in   the
  |  Adv  V-PIA-3S Art-NMS   V-PPA-NMS Prep Art-DFS
-18:
+ | 
  |  1322      3778       2532 3588    3962
  |  didachē   houtos     kai  ton     Patera
  |  διδαχῇ  , οὗτος      καὶ  τὸν     Πατέρα
  |  teaching  this [one] both the     Father
  |  N-DFS     DPro-NMS   Conj Art-AMS N-AMS
-24:
+ | 
  |  2532 3588    5207  2192
  |  kai  ton     Huion echei
  |  καὶ  τὸν     Υἱὸν  ἔχει  .
