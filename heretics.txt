@@ -264,7 +264,7 @@ Jesus is the Son of God
 biblehub.com 1-34.htm: John 1:34 Interlinear: and I have seen, and have testified, that this is the Son of God.'
 
 John the Baptist also witnessed to this, saying, “And I have seen and testified that this is the Son of God” (John
-| 34):
+1:34):
 
   John 1:34 - And I have seen and have borne witness that this is the Son of God. (ESV)
 
@@ -289,12 +289,12 @@ Jehovah's Witnesses believe that God's one true name-the name by which he must b
 
 I'm with the JW on this. God's name must be remembered.
 
-|  Yhvh: the proper name of the God of Israel
-|  Original Word: יהוה
-|  Part of Speech: Proper Name
-|  Transliteration: Yhvh
-|  Phonetic Spelling: (yeh-ho-vaw')
-|  Definition: the proper name of the God of Israel
+ | Yhvh: the proper name of the God of Israel
+ | Original Word: יהוה
+ | Part of Speech: Proper Name
+ | Transliteration: Yhvh
+ | Phonetic Spelling: (yeh-ho-vaw')
+ | Definition: the proper name of the God of Israel
 
   Exodus 3:15 - God also said to Moses, Say this to the people of Israel, The LORD (3068. Yhvh), the God of your
   fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has sent me to you. This is my name
