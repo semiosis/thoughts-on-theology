@@ -1007,15 +1007,91 @@ I'm trying to accurately both understand and articulate how, by the grace of God
 Christ, a person is set free from committing sin, or rather how Jesus sets a person free from sin, but I'm not
 infallible. It's by faith in Jesus, not by faith in me.
 
+  Jude 1:20-21 - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep
+  yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
+
   Luke 5:30-32 - And the Pharisees and their scribes grumbled at his disciples, saying, Why do you eat and drink
   with tax collectors and sinners? And Jesus answered them, Those who are well have no need of a physician, but
   those who are sick. I have not come to call the righteous but sinners to repentance. (ESV)
+
+  I Peter 3:17-22 - For it is better to suffer for doing good, if that should be God's will, than for doing evil.
+  For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring us to God, being
+  put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the spirits in
+  prison, because they formerly did not obey, when God's patience waited in the days of Noah, while the ark was
+  being prepared, in which a few, that is, eight persons, were brought safely through water. Baptism, which
+  corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good
+  conscience, through the resurrection of Jesus Christ, who has gone into heaven and is at the right hand of God,
+  with angels, authorities, and powers having been subjected to him. (ESV)
+
+  Romans 6:3-8 - Do you not know that all of us who have been baptized into Christ Jesus were baptized into his
+  death? We were buried therefore with him by baptism into death, in order that, just as Christ was raised from
+  the dead by the glory of the Father, we too might walk in newness of life. For if we have been united with him
+  in a death like his, we shall certainly be united with him in a resurrection like his. We know that our old self
+  was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be
+  enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe
+  that we will also live with him. (ESV)
+
+Paul really makes it clear that Father God is not in subjection to Jesus Christ the Son of God, but that Christ is
+reigning supremely at the right hand of Father God, Father God having given all judgement to Christ the Son, until
+all things are subjected to Christ. And then Christ Himself will be subjected to Father God. Christ has already
+defeated the last enemy, death, from His perspective:
+
+  I Corinthians 15:22-28 - For as in Adam all die, so also in Christ shall all be made alive. But each in his own
+  order: Christ the firstfruits, then at his coming those who belong to Christ. Then comes the end, when he
+  delivers the kingdom to God the Father after destroying every rule and every authority and power. For he must
+  reign until he has put all his enemies under his feet. The last enemy to be destroyed is death. For God has put
+  all things in subjection under his feet. But when it says, all things are put in subjection, it is plain that he
+  is excepted who put all things in subjection under him. When all things are subjected to him, then the Son
+  himself will also be subjected to him who put all things in subjection under him, that God may be all in all.
+  (ESV)
+
+  John 5:21-24 - For as the Father raises the dead and gives them life, so also the Son gives life to whom he
+  will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they
+  honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to
+  you, whoever hears my word and believes (G4100 pisteuo) him who sent me has eternal life. He does not come
+  (2064. erchomai) into judgment, but has passed from death to life.
+
+  I Peter 3:17-22 - For it is better to suffer for doing good, if that should be God's will, than for doing evil.
+  For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring us to God, being
+  put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the spirits in
+  prison, because they formerly did not obey, when God's patience waited in the days of Noah, while the ark was
+  being prepared, in which a few, that is, eight persons, were brought safely through water. Baptism, which
+  corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good
+  conscience, through the resurrection of Jesus Christ, who has gone into heaven and is at the right hand of God,
+  with angels, authorities, and powers having been subjected to him. (ESV)
+
+  Revelation of John 1:18 - and the living one. I died, and behold I am alive forevermore, and I have the keys of
+  Death and Hades. (ESV)
+
+  Romans 6:9 - We know that Christ being raised from the dead will never die again; death no longer has dominion
+  over him. (ESV)
+
+  Revelation of John 1:18 - and the living one. I died, and behold I am alive forevermore, and I have the keys of
+  Death and Hades. (ESV)
+
+  Ephesians 1:22 - And He put all things in subjection under His feet, and gave Him as head over all things to the
+  church,
+
+  Hebrews 2:8 - You have put all things in subjection under his feet." For in subjecting all things to him, He
+  left nothing that is not subject to him. But now we do not yet see all things subjected to him.
+
+  Hebrews 10:13 - waiting from that time onward until His enemies be made a footstool for His feet.
 
 The person who has been born-again has stopped "committing sin" (I John 3:4,8,9) in the sense that this new
 beginning of repentance and faith (Hebrews 6:1) has been obedience to God (Romans 10:14-21) rather than sin and
 going on they must continue on in faith, in the love of the truth, obeying righteousness (I John 3:4,8,9). For the
 person with a genuine faith in Jesus Christ, sin no longer has dominion over them because Jesus has defeated
 death.
+
+  Hebrews 10:14 - For by a single offering he has perfected for all time those who are being sanctified.
+
+  I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
+  whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
+  longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles
+  want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
+
+  I Peter 2:24 - He himself bore our sins in his body on the tree, that we might die to sin and live to
+  righteousness. By his wounds you have been healed. (ESV)
 
 A person who is being taught by God, comes to Jesus (John 6:45). They receive the seed of the word of God in them
 (Mark 4:14-20) which actually is the new person. That seed grows up (Matthew 13:37-42) and the person gets born
@@ -128958,11 +129034,11 @@ leaving that judgement to God. There's certainly an involvement from the saints,
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-07-24 Fri 18:46
+Date: 2026-07-25 Sat 10:01
 
 Author: Shane Mulligan
 
-Created: 2026-07-24 Fri 21:11
+Created: 2026-07-25 Sat 10:14
 
 Validate
 
