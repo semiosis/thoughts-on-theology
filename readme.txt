@@ -1449,9 +1449,9 @@ So having faith in God who justifies the ungodly, his faith is counted as righte
 someone who has up until this point of coming to faith, has been ungodly, and they have recognised the fact that
 they have been ungodly, but in this moment they have faith in God and also they recognise their ungodliness.
 Someone who has not yet brought holiness to completion in the fear of God is in some way "ungodly". But that
-doesn't mean that they do not have faith. But we do need to bring holiness to completion, because For the wrath of
+doesn't mean that they do not have faith. But we do need to bring holiness to completion, because "the wrath of
 God is revealed from heaven against all ungodliness and unrighteousness of men, who by their unrighteousness
-suppress the truth:
+suppress the truth":
 
   Romans 4:4-6 - Now to the one who works (G2038 ergazomenō; is working for payment), his wages are not counted as
   a gift but as his due. And to the one who does not work (G2038 ergazomenō; is working for payment) but trusts
@@ -1468,6 +1468,55 @@ suppress the truth:
   gave them up in the lusts of their hearts to impurity, to the dishonoring of their bodies among themselves,
   because they exchanged the truth about God for a lie and worshiped and served the creature rather than the
   Creator, who is blessed forever! Amen. (ESV)
+
+Being "made alive" is a gift that is gifted to us to save us from being enslaved to sin. This grace saves us:
+
+  Ephesians 2:1-10 - And you were dead in the trespasses and sins in which you once walked, following the course
+  of this world, following the prince of the power of the air, the spirit that is now at work in the sons of
+  disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body
+  and the mind, and were by nature children of wrath, like the rest of mankind. But God, being rich in mercy,
+  because of the great love with which he loved us, even when we were dead in our trespasses, made us alive
+  together with Christ—by grace you have been saved— and raised us up with him and seated us with him in the
+  heavenly places in Christ Jesus, so that in the coming ages he might show the immeasurable riches of his grace
+  in kindness toward us in Christ Jesus. For by grace you have been saved through faith. And this is not your own
+  doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship,
+  created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
+
+We were" children of wrath (those who are on the way to receiving the wrath of God) by *nature before getting made
+alive. Someone who is born-again is not a sinner by nature. We don't want to be children of wrath by choice
+(rather than by nature) after getting born-again, so as we live by the spirit we should walk by the spirit:
+
+  II Peter 1:3-11 - His divine power has granted to us all things that pertain to life and godliness, through the
+  knowledge of him who called us to his own glory and excellence, by which he has granted to us his precious and
+  very great promises, so that through them you may become partakers of the divine nature, having escaped from the
+  corruption that is in the world because of sinful desire. For this very reason, make every effort to supplement
+  your faith with virtue, and virtue with knowledge, and knowledge with self-control, and self-control with
+  steadfastness, and steadfastness with godliness, and godliness with brotherly affection, and brotherly affection
+  with love. For if these qualities are yours and are increasing, they keep you from being ineffective or
+  unfruitful in the knowledge of our Lord Jesus Christ. For whoever lacks these qualities is so nearsighted that
+  he is blind, having forgotten that he was cleansed from his former sins. Therefore, brothers, be all the more
+  diligent to make your calling and election sure, for if you practice these qualities you will never fall. For in
+  this way there will be richly provided for you an entrance into the eternal kingdom of our Lord and Savior Jesus
+  Christ. (ESV)
+
+  Jude 1:3-8 - Beloved, although I was very eager to write to you about our common salvation, I found it necessary
+  to write appealing to you to contend for the faith that was once for all delivered to the saints. For certain
+  people have crept in unnoticed who long ago were designated for this condemnation, ungodly people, who pervert
+  the grace of our God into sensuality and deny our only Master and Lord, Jesus Christ. Now I want to remind you,
+  although you once fully knew it, that Jesus, who saved a people out of the land of Egypt, afterward destroyed
+  those who did not believe. And the angels who did not stay within their own position of authority, but left
+  their proper dwelling, he has kept in eternal chains under gloomy darkness until the judgment of the great day—
+  just as Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality and pursued
+  unnatural desire, serve as an example by undergoing a punishment of eternal fire. Yet in like manner these
+  people also, relying on their dreams, defile the flesh, reject authority, and blaspheme the glorious ones. (ESV)
+
+  Jude 1:14-18 - It was also about these that Enoch, the seventh from Adam, prophesied, saying, Behold, the Lord
+  came with ten thousands of his holy ones, to execute judgment on all and to convict all the ungodly of all their
+  deeds of ungodliness that they have committed in such an ungodly way, and of all the harsh things that ungodly
+  sinners have spoken against him. These are grumblers, malcontents, following their own sinful desires; they are
+  loud-mouthed boasters, showing favoritism to gain advantage. But you must remember, beloved, the predictions of
+  the apostles of our Lord Jesus Christ. They said to you, In the last time there will be scoffers, following
+  their own ungodly passions. (ESV)
 
 People perish for lack of knowledge, knowledge that necessitates love for the truth:
 
@@ -2567,6 +2616,14 @@ still receive the wrath of God:
   II Peter 2:19 - They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes
   a person, to that he is enslaved. (ESV)
 
+  Jude 1:14-18 - It was also about these that Enoch, the seventh from Adam, prophesied, saying, Behold, the Lord
+  came with ten thousands of his holy ones, to execute judgment on all and to convict all the ungodly of all their
+  deeds of ungodliness that they have committed in such an ungodly way, and of all the harsh things that ungodly
+  sinners have spoken against him. These are grumblers, malcontents, following their own sinful desires; they are
+  loud-mouthed boasters, showing favoritism to gain advantage. But you must remember, beloved, the predictions of
+  the apostles of our Lord Jesus Christ. They said to you, In the last time there will be scoffers, following
+  their own ungodly passions. (ESV)
+
 We need to continue to hold fast to the truth of the Gospel. It's important to continue to hold fast to what is of
 first importance. Holding fast to these most important doctrines of faith, eventually the believer will "win out",
 because they're holding fast to the actual truth:
@@ -3277,6 +3334,55 @@ But it would be more fitting to testify to God, affirming such statements as "Je
 Christ the Son of God," or "Father God is pleased with His Son Jesus the Christ," or "God the Father has appointed
 Jesus Christ to be Judge of the living and the dead," and then leave the justifying to God as God looks at the
 heart.
+
+Being "made alive" is a gift that is gifted to us to save us from being enslaved to sin. This grace saves us:
+
+  Ephesians 2:1-10 - And you were dead in the trespasses and sins in which you once walked, following the course
+  of this world, following the prince of the power of the air, the spirit that is now at work in the sons of
+  disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body
+  and the mind, and were by nature children of wrath, like the rest of mankind. But God, being rich in mercy,
+  because of the great love with which he loved us, even when we were dead in our trespasses, made us alive
+  together with Christ—by grace you have been saved— and raised us up with him and seated us with him in the
+  heavenly places in Christ Jesus, so that in the coming ages he might show the immeasurable riches of his grace
+  in kindness toward us in Christ Jesus. For by grace you have been saved through faith. And this is not your own
+  doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship,
+  created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
+
+We were" children of wrath (those who are on the way to receiving the wrath of God) by *nature before getting made
+alive. Someone who is born-again is not a sinner by nature. We don't want to be children of wrath by choice
+(rather than by nature) after getting born-again, so as we live by the spirit we should walk by the spirit:
+
+  II Peter 1:3-11 - His divine power has granted to us all things that pertain to life and godliness, through the
+  knowledge of him who called us to his own glory and excellence, by which he has granted to us his precious and
+  very great promises, so that through them you may become partakers of the divine nature, having escaped from the
+  corruption that is in the world because of sinful desire. For this very reason, make every effort to supplement
+  your faith with virtue, and virtue with knowledge, and knowledge with self-control, and self-control with
+  steadfastness, and steadfastness with godliness, and godliness with brotherly affection, and brotherly affection
+  with love. For if these qualities are yours and are increasing, they keep you from being ineffective or
+  unfruitful in the knowledge of our Lord Jesus Christ. For whoever lacks these qualities is so nearsighted that
+  he is blind, having forgotten that he was cleansed from his former sins. Therefore, brothers, be all the more
+  diligent to make your calling and election sure, for if you practice these qualities you will never fall. For in
+  this way there will be richly provided for you an entrance into the eternal kingdom of our Lord and Savior Jesus
+  Christ. (ESV)
+
+  Jude 1:3-8 - Beloved, although I was very eager to write to you about our common salvation, I found it necessary
+  to write appealing to you to contend for the faith that was once for all delivered to the saints. For certain
+  people have crept in unnoticed who long ago were designated for this condemnation, ungodly people, who pervert
+  the grace of our God into sensuality and deny our only Master and Lord, Jesus Christ. Now I want to remind you,
+  although you once fully knew it, that Jesus, who saved a people out of the land of Egypt, afterward destroyed
+  those who did not believe. And the angels who did not stay within their own position of authority, but left
+  their proper dwelling, he has kept in eternal chains under gloomy darkness until the judgment of the great day—
+  just as Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality and pursued
+  unnatural desire, serve as an example by undergoing a punishment of eternal fire. Yet in like manner these
+  people also, relying on their dreams, defile the flesh, reject authority, and blaspheme the glorious ones. (ESV)
+
+  Jude 1:14-18 - It was also about these that Enoch, the seventh from Adam, prophesied, saying, Behold, the Lord
+  came with ten thousands of his holy ones, to execute judgment on all and to convict all the ungodly of all their
+  deeds of ungodliness that they have committed in such an ungodly way, and of all the harsh things that ungodly
+  sinners have spoken against him. These are grumblers, malcontents, following their own sinful desires; they are
+  loud-mouthed boasters, showing favoritism to gain advantage. But you must remember, beloved, the predictions of
+  the apostles of our Lord Jesus Christ. They said to you, In the last time there will be scoffers, following
+  their own ungodly passions. (ESV)
 
 Faith is not at all directly at odds to true obedience, but obedience when understood correctly actually implies
 faith as a person cannot truly obey God without a love for God (Psalms 81:12-15, James 2:5, Luke 6:45), say a love
@@ -129107,11 +129213,11 @@ leaving that judgement to God. There's certainly an involvement from the saints,
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-07-25 Sat 12:41
+Date: 2026-07-25 Sat 15:34
 
 Author: Shane Mulligan
 
-Created: 2026-07-25 Sat 12:50
+Created: 2026-07-25 Sat 15:45
 
 Validate
 
