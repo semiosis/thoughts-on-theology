@@ -1482,7 +1482,7 @@ Being "made alive" is a gift that is gifted to us to save us from being enslaved
   doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship,
   created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
 
-We were" children of wrath (those who are on the way to receiving the wrath of God) by *nature before getting made
+We were children of wrath (those who are on the way to receiving the wrath of God) by nature before getting made
 alive. Someone who is born-again is not a sinner by nature. We don't want to be children of wrath by choice
 (rather than by nature) after getting born-again, so as we live by the spirit we should walk by the spirit:
 
@@ -3348,7 +3348,7 @@ Being "made alive" is a gift that is gifted to us to save us from being enslaved
   doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship,
   created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
 
-We were" children of wrath (those who are on the way to receiving the wrath of God) by *nature before getting made
+We were children of wrath (those who are on the way to receiving the wrath of God) by nature before getting made
 alive. Someone who is born-again is not a sinner by nature. We don't want to be children of wrath by choice
 (rather than by nature) after getting born-again, so as we live by the spirit we should walk by the spirit:
 
@@ -129217,7 +129217,7 @@ Date: 2026-07-25 Sat 15:34
 
 Author: Shane Mulligan
 
-Created: 2026-07-25 Sat 15:45
+Created: 2026-07-25 Sat 16:36
 
 Validate
 
