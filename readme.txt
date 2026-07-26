@@ -310,6 +310,18 @@ without reliable (I John 4:1-3) instruction (Matthew 1:20) from God:
   For we who live are always being given over to death for Jesus' sake, so that the life of Jesus also may be
   manifested in our mortal flesh. So death is at work in us, but life in you. (ESV)
 
+  I Corinthians 7:28-35 - But if you do marry, you have not sinned, and if a betrothed woman marries, she has not
+  sinned. Yet those who marry will have worldly troubles, and I would spare you that. This is what I mean,
+  brothers: the appointed time has grown very short. From now on, let those who have wives live as though they had
+  none, and those who mourn as though they were not mourning, and those who rejoice as though they were not
+  rejoicing, and those who buy as though they had no goods, and those who deal with the world as though they had
+  no dealings with it. For the present form of this world is passing away. I want you to be free from anxieties.
+  The unmarried man is anxious about the things of the Lord, how to please the Lord. But the married man is
+  anxious about worldly things, how to please his wife, and his interests are divided. And the unmarried or
+  betrothed woman is anxious about the things of the Lord, how to be holy in body and spirit. But the married
+  woman is anxious about worldly things, how to please her husband. I say this for your own benefit, not to lay
+  any restraint upon you, but to promote good order and to secure your undivided devotion to the Lord. (ESV)
+
 A person gets born-again (made alive) but must go on as a believer with the circumcision of the heart to love God
 with their whole heart, practicing righteousness abiding in Jesus' commandments which involves having love for God
 and for God's children:
@@ -6975,11 +6987,19 @@ righteousness, I have to give them the benefit of the doubt, and be willing to s
 God is not mocked, and the Scripture says, let those who name the name of the Lord depart from iniquity. We trust
 God to take care of the unknown, and just do our duty which is to fear God and keep His commandments for us, to
 have faith in Jesus and love one another, abiding in Jesus' teachings. It's not our duty to do what is God's role.
-God discerns the hearts and minds, we can rely on God for justice. Vengeance belongs to God. I believe that we can
-trust any spirit who confesses that Jesus Christ has come [from God] into the world as flesh (i.e. the Word of God
-made flesh) that that spirit is from God. Until they've made that confession though, so long as they are
-confessing truth about Jesus Christ, such as pronouncing that "Jesus is the Son of God", I give the benefit of the
-doubt:
+God discerns the hearts and minds, we can rely on God for justice. Vengeance belongs to God.
+
+Polycarp 6:1
+And the presbyters also must be compassionate, merciful towards all men, turning back the sheep that are gone
+astray, visiting all the infirm, not neglecting a widow or an orphan or a poor man: but providing always for that
+which is honorable in the sight of God and of men, abstaining from all anger, respect of persons, unrighteous
+judgment, being far from all love of money, not quick to believe anything against any man, not hasty in judgment,
+knowing that we all are debtors of sin.
+
+I believe that we can trust any spirit who confesses that Jesus Christ has come [from God] into the world as flesh
+(i.e. the Word of God made flesh) that that spirit is from God. Until they've made that confession though, so long
+as they are confessing truth about Jesus Christ, such as pronouncing that "Jesus is the Son of God", I give the
+benefit of the doubt:
 
   I John 4:1-3 - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for
   many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that
@@ -9823,8 +9843,14 @@ The desires of the spirit and the desires of the flesh are against each other.
 
 With the spiritual circumcision, the commandments of God are kept in the heart in reality but in the application
 of them, one "must", for example, love their family in Christ because we are part of one another and are
-neighbours (therefore, love your neighbour involves not condemning other people who are in Christ Jesus). But
-also, honouring your father and mother is done honouring God and Jerusalem in heaven.
+neighbours (therefore, love your neighbour involves not condemning other people who are in Christ Jesus).
+
+  James 4:11-12 - Do not speak evil against one another, brothers. The one who speaks against a brother or judges
+  his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the
+  law but a judge. There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to
+  judge your neighbor? (ESV)
+
+But also, honouring your father and mother is done honouring God and Jerusalem in heaven.
 
 When Jesus from the cross mentions "behold, your mother" (John 19:27), I'm convinced that this is firstly meaning
 to say that Mary was "at that moment" doing the will of God (Luke 8:21) so Jesus was referring to the Mary "born
@@ -48985,6 +49011,55 @@ given in marriage") if they are sons of the resurrection are sons of God.
 
 I defer to Sam Shamoun who is a Christian who knows more on the subject of Islam: answering-islam.org: Answering
 Islam, A Christian-Muslim Dialog and Apologetic
+
+This person, has been making lots of posts that seem to be spot on:
+
+youtube.com: Post from Shahriq Khan
+
+You know what Muslims, Mormons, and Jews say to me constantly?
+
+“You don't follow Jesus. You follow Paul.” Bro… you don't understand how Christianity works.
+
+You do NOT need Paul to believe Jesus is the Messiah.
+
+If Paul disappeared tomorrow, Christianity would still stand. Why?
+
+Because the Torah and the prophets already did the heavy lifting.
+
+Genesis: sin enters the world. Exodus and Leviticus: blood, atonement, and substitution.
+
+Passover: the spotless lamb. Isaiah: the suffering servant. Daniel: the Messiah.
+
+That's not Paul.
+
+That's Moses, David, Isaiah, Daniel, and the entire prophetic story. Paul didn't invent Jesus. Paul looked at the
+Scriptures and realized:
+
+This was ALWAYS about Him. And Paul wasn't some random guy making up theology. He was a Pharisee trained in the
+law. So when he preached, what did he quote?
+
+The Old Testament. Over. And over. And over.
+
+His argument was simple: If the Scriptures are true, Jesus Christ is unavoidable.
+
+So saying Christians follow Paul instead of Jesus is like saying you follow the referee instead of the rulebook.
+
+Paul isn't the point. He's pointing you to the point.
+
+Don't like Paul? Fine.
+
+Read Isaiah 53 without him. Read Psalm 22 without him. Read Daniel 9 without him.
+
+You'll still end up staring directly at Jesus. Christianity isn't built on Paul.
+
+It's built on the Messiah the Scriptures were already pointing to.
+
+And once I finally read Paul charitably… Bro.
+
+The man was an absolute SAVAGE for the faith.
+
+Follow this account for more Christian apologetics, Muslim evangelism, and the biblical truth that led me from
+Islam to Jesus.
 
 4.2.13. We should welcome people who hear Jesus' words and want to learn how to follow Jesus, and we should give
 them Jesus' words
@@ -129260,17 +129335,40 @@ church about God's righteous judgement which is coming.
 
 But God is the righteous judge:
 
-  James 4:12 - There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to
+  James 4:11-12 - Do not speak evil against one another, brothers. The one who speaks against a brother or judges
+  his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the
+  law but a judge. There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to
   judge your neighbor? (ESV)
 
-When God judges the world, the saints (Revelation of John 14:12) are involved. But saints should not directly
-judge people. It would be fine to say, I disapprove of this or that, and it's OK to affirm and even speak to
-others the truth of Scripture, for example that "all who are presently believing in Jesus Christ are presently not
-condemned and that all who are disbelieving in Jesus Christ are presently condemned", because it's the truth of
-Scripture, but it's not OK to turn to your neighbour and say with certainty to them that God has judged them
-because in the end it's God who judges, and also because in imitation of Christ who came to save the world, rather
-than judge, we should be speaking the truth of Scripture to others (warning people of coming judgement) but
-leaving that judgement to God. There's certainly an involvement from the saints, though when God does judge:
+When God judges the world, the saints (Revelation of John 14:12) are involved. But surely they do not practice
+those sinful things that they do not approve of (Matthew 7:2, Romans 2:1-13, James 4:12), but they rather keep
+God's commandments for them (Revelation of John 14:12):
+
+enjoin
+Defintion: Giving an order or direction authoritatively and urgently and often with admonition or solicitude.
+
+Polycarp 11:2
+But he who cannot govern himself in these things, how doth he enjoin this upon another? If a man refrain not from
+covetousness, he shall be defiled by idolatry, and shall be judged as one of the Gentiles who know not the
+judgment of the Lord, Nay, know we not, that the saints shall judge the world, as Paul teacheth?
+
+Saints should not "directly" judge their neighbours (James 4:12). Admonishing and reproving your neigbour, calling
+out wickedness, we should do (Acts 8:22, Leviticus 19:17-18). It would be fine to say, I disapprove of this or
+that, and it's OK to affirm and even speak to others the truth of Scripture, for example that "all who are
+presently believing in Jesus Christ are presently not condemned and that all who are disbelieving in Jesus Christ
+are presently condemned", because it's the truth of Scripture, but it's not OK to turn to your neighbour and say
+with certainty to them that God has judged them because in the end it's God who judges, and also because in
+imitation of Christ who came to save the world, rather than judge, we should be speaking the truth of Scripture to
+others (warning people of coming judgement) but leaving that judgement to God. There's certainly an involvement
+from the saints, though when God does judge:
+
+Psalms 97:10
+You who love (H157 ’ō·hă·ḇê) Yahweh (H3068 Yah·weh) hate (H8130 śin·’ū) evil (H7451 rā‘) He preserves the souls of
+His saints out of the hand of the wicked He delivers them (Interlinear)
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
 
   John 12:44-48 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
   And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
@@ -129363,11 +129461,11 @@ leaving that judgement to God. There's certainly an involvement from the saints,
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-07-26 Sun 07:55
+Date: 2026-07-26 Sun 19:23
 
 Author: Shane Mulligan
 
-Created: 2026-07-26 Sun 09:11
+Created: 2026-07-26 Sun 19:34
 
 Validate
 
