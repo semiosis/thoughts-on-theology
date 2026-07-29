@@ -91,6 +91,10 @@ Faith is not at all directly at odds to <ins>true</ins> obedience, but obedience
 
 Someone having faith in Jesus Christ and His words, though they die, yet they will live (i.e. get born-again), and a born-again (living) person, if they have faith in Jesus Christ and His words, will never die. Being united in a resurrection like Jesus' surely means there is a bodily resurrection as well. Born-again (alive) must still continue on in the teaching of Christ:
 
+> **[Psalms 56:13](https://www.biblegateway.com/passage/?search=Psalms%2056%3A13&version=ESV)** - For **you have delivered my soul from death**, yes, my feet from falling, **that I may walk before God in the light of life**. (ESV)
+
+> **[John 8:12](https://www.biblegateway.com/passage/?search=John%208%3A12&version=ESV)** - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in darkness, but will have the light of life. (ESV)
+
 -   ****[youtube.com:  Near Death . Now Homeless . {@ thedayaheadpodcast }](https://www.youtube.com/watch?v=jXMO-uUDfpc)**:** I commented:
     
     I believe I have had an actual death and spiritual resurrection on 2 April 2022. I would not call it simply a near-death experience, but I believe it was an actual death and rebirth. I'm just saying what happened to me I wouldn't call a "near death experience". I believe it was an actual death and rebirth, as in, baptized into Christ's death, and born-again. I was lying on my bed having a snooze and some time around mid day, suddenly I observed my soul being regenerated. It looked like a knitted fabric made of thin blue flame in the shape of a human, and it was me. Everything else was pitch black and I could only see my soul. I believe that I have been baptized into Jesus' death, and I believe that I have seen my new regenerated soul. While it was happening I called out to Jesus saying "Jesus, please save me, I don't know what's going on." And this lasted some minutes seeing this until I snapped back into having natural sight. So I'm a new person and I'm in a new creation, and I have a new Dad (Father God, Jesus Christ's Dad), who by faith in Jesus Christ I call upon as Dad. I'm still waiting for my resurrection body though. So I've been born twice now (new spirit inside old flesh). But there is a third birth to come so to speak which is the new flesh. Unless Jesus comes back before then and I am raptured out of here.
@@ -120,6 +124,14 @@ Being "made alive" is a gift that is gifted to us to save us from being enslaved
 
 > **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=YLT)** - \`For, as the Father doth raise the dead, and doth make alive, so also the Son doth make alive whom he willeth; for neither doth the Father judge any one, but all the judgment He hath given to the Son, that all may honour the Son according as they honour the Father; he who is not honouring the Son, doth not honour the Father who sent him. \`Verily, verily, I say to you&#x2013;He who is hearing my word, and is believing Him who sent me, hath life age-during, and to judgment he doth not come (**[G2064 erchomai](https://biblehub.com/greek/2064.htm)**), but hath passed (**[G3327 metabain](https://biblehub.com/interlinear/john/5-24.htm)**; changes place; From meta and the base of basis; to change place &#x2013; depart, go, pass, remove.) out of the death to the life. (YLT)
 
+We receive grace from God which is the mercy we receive that leads to eternal life. I believe I received that grace when I was born-again:
+
+> **[Jude 1:20-21](https://www.biblegateway.com/passage/?search=Jude%201%3A20-21&version=ESV)** - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; **keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life.** (ESV)
+
+All things being new from my perspective, I believe God's will for me is to go on bearing with my family in Christ in love and forgiveness (**[Colossians 3:12-13](https://www.biblegateway.com/passage/?search=Colossians%203%3A12-13&version=ESV)**) towards them. As for my neighbour generally, I forgive any offences against me personally. I'll endeavour in the imitation of Jesus to preach the gospel of God, and not be quick to judge ([Polycarp 6:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html)), perhaps quote **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** to them and let them know that Jesus' word will judge on the last day but that Jesus has come to save and we should imitate His patience (**[II Peter 3:15](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A15&version=ESV)**) with others. Whoever is having faith in Jesus Christ is not judged, but whoever rejects Him and His words has a judge (**[John 12:47-48](https://www.biblegateway.com/passage/?search=John%2012%3A47-48&version=ESV)**). Whoever is disbelieving in Jesus Christ (i.e. rejects the truth of, hates the truth of God revealed in Jesus Christ) is judged already (**[John 3:14-21](https://www.biblegateway.com/passage/?search=John%203%3A14-21&version=ESV)**). Even if I myself forgive others for any perceived wrong against me, if they remain against Jesus then that remains a problem for them. I can only bear fruit for God while done in Christ (**[John 15:4](https://www.biblegateway.com/passage/?search=John%2015%3A4&version=ESV)**) abiding in His teachings. There's no other name under heaven among men by which we must be saved other than the name of Jesus Christ (**[Acts 4:8-12](https://www.biblegateway.com/passage/?search=Acts%204%3A8-12&version=ESV)**):
+
+> **[Luke 13:3](https://www.biblegateway.com/passage/?search=Luke%2013%3A3&version=ESV)** - No, I tell you; but unless you repent ([3340. metanoeó](https://biblehub.com/greek/3340.htm)), you will all likewise perish. (ESV)
+
 Indeed, even after being born-again by God's grace, we are instructed to do God's will for us, to keep His commandments for us:
 
 -   **[Polycarp 1:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** though ye saw Him not, ye believe with joy unutterable and full of
@@ -144,6 +156,12 @@ Indeed, even after being born-again by God's grace, we are instructed to do God'
     money, evil speaking, false witness; not rendering evil for evil or
     railing for railing or blow for blow or cursing for cursing;
 
+> **[John 12:46](https://www.biblegateway.com/passage/?search=John%2012%3A46&version=ESV)** - I have come into the world as light, so that whoever believes in me may not remain in darkness. (ESV)
+
+> **[John 9:5](https://www.biblegateway.com/passage/?search=John%209%3A5&version=ESV)** - As long as I am in the world, I am the light of the world.
+
+> **[Matthew 5:14](https://www.biblegateway.com/passage/?search=Matthew%205%3A14&version=ESV)** - You are the light of the world. A city set on a hill cannot be hidden. (ESV)
+
 The resurrection of the body is to be awaited i.e. (it hasn't happened yet). Sure, I have been spiritually resurrected (new spirit in old flesh), but there is a bodily resurrection also, which I take it happens typically after old flesh dies (**[I Corinthians 15:42-48](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A42-48&version=ESV)**). In the resurrection they neither marry nor are given in marriage. Am I allowed to marry a believing (holding faith in Jesus Christ) wife? According to my present understanding, I think so (**[I Corinthians 9:5-9](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A5-9&version=ESV)**), but not whoever I want as a wife is a gift from God (**[I Corinthians 7:7](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A7&version=ESV)**) and they are <ins>given</ins> (**[Matthew 22:30](https://www.biblegateway.com/passage/?search=Matthew%2022%3A30&version=ESV)**). But even if I think that I am allowed to marry at all, that doesn't mean I would. I feel like my situation is very highly strung, so I wouldn't marry in my present state I think, and certainly not without reliable (**[I John 4:1-3](https://www.biblegateway.com/passage/?search=1%20John%204%3A1-3&version=ESV)**) instruction (**[Matthew 1:20](https://www.biblegateway.com/passage/?search=Matthew%201%3A20&version=ESV)**) from God:
 
 > **[II Timothy 2:11-18](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A11-18&version=ESV)** - The saying is trustworthy, for: <ins>If we have died with him, we will also live with him; if we endure, we will also reign with him; if we deny him, he also will deny us; if we are faithless, he remains faithful— for he cannot deny himself</ins>. Remind them of these things, and charge them before God not to quarrel about words, which does no good, but only ruins the hearers. Do your best to present yourself to God as one approved, a worker who has no need to be ashamed, rightly handling the word of truth. But <ins>avoid irreverent babble, for it will lead people into more and more ungodliness, and their talk will spread like gangrene</ins>. Among them are Hymenaeus and Philetus, who have **swerved from the truth, saying that the resurrection has already happened**. They are upsetting the faith of some. (ESV)
@@ -156,7 +174,7 @@ The resurrection of the body is to be awaited i.e. (it hasn't happened yet). Sur
 
 > **[I Corinthians 7:28-35](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A28-35&version=ESV)** - But if you do marry, you have not sinned, and if a betrothed woman marries, she has not sinned. Yet those who marry will have worldly troubles, and I would spare you that. This is what I mean, brothers: the appointed time has grown very short. From now on, let those who have wives live as though they had none, and those who mourn as though they were not mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those who deal with the world as though they had no dealings with it. For the present form of this world is passing away. I want you to be free from anxieties. The unmarried man is anxious about the things of the Lord, how to please the Lord. But the married man is anxious about worldly things, how to please his wife, and his interests are divided. And the unmarried or betrothed woman is anxious about the things of the Lord, how to be holy in body and spirit. But the married woman is anxious about worldly things, how to please her husband. I say this for your own benefit, not to lay any restraint upon you, but to promote good order and to secure your undivided devotion to the Lord. (ESV)
 
-A person gets born-again (made alive) but must go on as a believer with the circumcision of the heart to love God with their whole heart, practicing righteousness abiding in Jesus' commandments which involves having love for God and for God's children:
+A person gets born-again (made alive, made new) by the word of God (**[I Peter 1:23](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A23&version=ESV)**), but must go on as a believer with the circumcision of the heart to love God with their whole heart, practicing righteousness abiding in Jesus' commandments which involves having love for God and for God's children:
 
 > **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, and everyone who lives and believes in me shall never [(G3756 οὐ)](G3756) [(G3361 μή)](G3361) die. Do you believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
 
@@ -2043,10 +2061,70 @@ There is a certain "performing" of one's salvation (**[Philippians 2:12-16](http
 Now, some people take this word for "performing" / "working out" / "carrying out" and complain because it sounds like salvation then depends on "performance".
 The word *"performance"* in English carries an additional connotation of an evaluation of the quality of a person's work, and so they complain because grace is free and not based on "performance" / "how well one does".
 
-Real faith is not self-commending. If a person testifies to others about themself that they don't extort, commit adultery, commit sin generally etc. that is not the same thing in that moment as actually refraining from commiting sin.
-Real faith has the fear of God in it, so when a person comes to faith, they come to faith preferring God to evil. When a person comes to God in faith, they are, in having faith, by definition **not** committing sin from the love of evil, because they have faith. Of these two people in who went up to the temple to pray in the story in Luke 18:10-14, the one who beat his breast was non-self commending and had the fear of God. Whereas the pharisee in the story was self-commending.
-Both of these people had some idea about righteousness, but the tax collector was humble and the pharisee was not.
-Whatever is not done in faith is sin which is lawlessness (**[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**). I think that false humility would pervert the truth of Scripture to remove the necessity of repentance, and in doing so distort the gospel to make it a licence to sin. Both the pharisee and the tax collector in **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** had an idea about what it looks like to practice righteousness, but the pharisee was comparing himself with his peers and self-commending rather than seeking commendation from God, and the tax collector on the other hand was not self-commending and appeared to be repentant with the fear of God. But even though God looks at the humble and contrite who have the fear of God and are not self-commending, that doesn't mean the Scripture is wrong when it says that the one born of God doesn't sin. The truth of Scripture stands. What would be false humilty is to say the Scripture is wrong, that even the one born of God is a sinner by nature, and that there's nothing God wants me to do because Jesus Christ did it all:
+Real faith is not self-commending.
+Though we know Abraham was justified by faith, he didn't go around saying, "I'm righteous before God." He couldn't have read Genesis to say, I believe the promise and therefore I'm righteous!
+Rather, Abraham had faith, and God saw his faith.
+If a person testifies to others about themself that they don't extort, commit adultery, commit sin generally etc. that is not the same thing in that moment as actually refraining from commiting sin.
+
+> [John 5:31-37](https://www.biblegateway.com/passage/?search=John%205%3A31-37&version=ESV) - If I alone bear witness about myself, my testimony is not deemed true.
+
+God witnessed about his Son:
+
+> [Matthew 17:5](https://www.biblegateway.com/passage/?search=Matthew%2017%3A5&version=ESV) - He was still speaking when, behold, a  bright cloud overshadowed them, and a voice from the cloud said, This is my beloved Son, with whom I am well pleased; listen to him. (ESV)
+
+Self-commendation or seeking to justify oneself, rather than seeking commendation from God, is/are a big problems. Pride is very closely related to self-commendation.
+But consider Mark 10:17-23 where Jesus loves the person who said, "I have kept them (God's commandments) from my youth."
+
+This person appears to have made the statement not from "pride" but rather from curiousity or from being puzzled. Jesus still pointed out that he needed to follow Him, and I believe that following Jesus really means to learn from Jesus Christ, coming into agreement with His words, and it means having faith in Jesus Christ, trusting and loving the truth, taking one's thoughts into obedience to Christ.
+
+> **[Matthew 8:21-22](https://www.biblegateway.com/passage/?search=Matthew%208%3A21-22&version=ESV)** - Another of the disciples said to him, Lord, let me first go and bury my father. And Jesus said to him, **Follow me**, and leave the dead to bury their own dead. (ESV)
+
+> **[Matthew 23:1](https://www.biblegateway.com/passage/?search=Matthew%2023%3A1&version=ESV)** - Then Jesus said to the crowds and to his disciples, (ESV)
+
+> **[Matthew 23:9](https://www.biblegateway.com/passage/?search=Matthew%2023%3A9&version=ESV)** - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
+
+That faith will produces the deeds of Jesus. Jesus didn't sin. Neither did Jesus anywhere in recorded Scripture (to my knowledge) call anyone other than God His father. The person in Mark 10:17-23 was still attached to his material wealth.
+Following Jesus and doing the deeds of Jesus would look like imitating Christ, and so calling God our father (**[Matthew 8:21-22](https://www.biblegateway.com/passage/?search=Matthew%208%3A21-22&version=ESV)**), for example, and loving as Jesus loved, loving the children of God, loving anyone born of God (**[I John 5:1-2](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-2&version=ESV)**), having the love of God, loving Jesus (**[John 15:22-24](https://www.biblegateway.com/passage/?search=John%2015%3A22-24&version=ESV)**).
+
+The issue with the Pharisee in [Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV) seems to be pride.
+
+Of these two people in who went up to the temple to pray in the story in [Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV), the one who beat his breast was non-self commending and had the fear of God. Whereas the pharisee in the story was self-commending.
+
+Jesus explained that what makes someone great in the Kingdom of God is humility (Mt 18:4). So perhaps a person could still be in the Kingdom of God, but still "have" some pride. Not actively committing it but perhaps having some misconceptions about oneself (i.e. not being able to see it), but still presently following Jesus nevertheless, on the path to taking every thought captive for obedience to Christ, as they are being sanctified by faith in Jesus, and by obedience to Jesus. Can a "repentant" person "enter" the Kingdom of God, even if they "have" sin? I think so. But I think they need to be repentant, able to be corrected by God. I think that they need to be having faith, and in having faith are not committing sin, but rather being sanctified (cleaned up), committing faith (so to speak) rather than committing sin.
+
+I think inheriting the Kingdom of God requires having been cleaned up. So in my understanding there is a distinction between entering and inheriting the Kingdom. To inherit the Kingdom of God, a person needs to have put on incorruption. I take it a person inherits the Kingdom of God with their resurrection body:
+
+> **[I Corinthians 15:50-55](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A50-55&version=ESV)** - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor does the perishable inherit the imperishable. Behold! I tell you a mystery. We shall not all sleep, but we shall all be changed, in a moment, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, and the dead will be raised imperishable, and we shall be changed. For this perishable body must put on the imperishable, and this mortal body must put on immortality. When the perishable puts on the imperishable, and the mortal puts on immortality, then shall come to pass the saying that is written: Death is swallowed up in victory. O death, where is your victory? O death, where is your sting? (ESV)
+
+After all, Jesus said, the slave to sin doesn't abide/remain in the house forever.
+So I believe that sanctification (getting cleaned up) is necessary abide forever. Putting a stop to committing sin, and, instead holding faith in Jesus, is necessary to enter the Kingdom.
+
+I believe that a person can still be (have sin) sinful and enter the Kingdom of God. After all, God justifies even the ungodly if they have faith in Jesus Christ. But I believe that faith must be a repentant fatih, holding faith in Jesus Christ, prefering God to evil, so has stopped "committing" sin to enter the Kingdom of God through Jesus Christ who is the door.
+
+From [Matthew 21:24-32](https://www.biblegateway.com/passage/?search=Matthew%2021%3A24-32&version=ESV) - &#x2026; Truly, I say to you, the tax collectors and the prostitutes go into the kingdom of God before you. For John came to you in the way of righteousness, and you did not believe him, but the tax collectors and the prostitutes believed him. And even when you saw it, you did not afterward change your minds and believe him. (ESV)
+
+> [Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV) - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come and stand before me in this house, which is called by my name, and say, We are delivered to do all these abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I have seen it, saith the LORD. (KJV)
+
+> [John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV) - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
+
+Real faith still has the fear of God in it, so when a person comes to faith, they come to faith preferring God to evil. When a person comes to God in faith, they are, in having faith, by definition **not** committing sin from the love of evil, because they have faith (but God's the one who commends faith).
+
+So when I read about the one "born of God" who doesn't sin, who loves the way God has commanded and confesses the truth about Jesus such as that he is the Son of God, the Christ, etc. I'm hesitant to call myself the one "born of God" because it sounds like self-justification to me. But I think it's a better move to confess to others the truth about Jesus, and leave the commending to God. If a person says, "I'm a Christian." that doesn't mean they are a Christian. If someone told me that "Jesus is the Christ the Son of God who has come into the world and died on tree and rose from the dead." Then I'd assume that that person speaking to me is a Christian. I mean, God knows all things, even what is in every man's heart.
+
+But I've been thinking recently about how we receive a new heart and spirit when we are born again, but God keeps working on us. God circumcises our heart of flesh, so we can love God with our whole heart, and loving Him with our whole heart includes His children. That, I believe, is happening as we "take every thought captive for obedience to Christ".
+
+So we can affirm what Scripture says about what the person born of God looks like.
+
+But to tell others, "God is very pleased with me." is self-commendation in my view. I do not think it's humble to praise oneself.
+Even the heavens are not pure in His sight, and He puts no trust in His holy ones. God will always be able to point out some way in which we fall short of His glory.
+
+But by the grace of God we can receive from God a new heart, a new spirit, a new nature.
+But even after getting born-again, it's possible to make mistakes.
+Self-commendation is not good.
+
+So in  **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)**, both of these people had some idea about righteousness, but the tax collector was humble and the pharisee was not. Whatever is not done in faith is sin which is lawlessness (**[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**). I think that false humility would pervert the truth of Scripture to remove the necessity of repentance, and in doing so distort the gospel to make it a licence to sin. Both the pharisee and the tax collector in **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** had an idea about what it looks like to practice righteousness, but the pharisee was comparing himself with his peers and self-commending rather than seeking commendation from God, and the tax collector on the other hand was not self-commending and appeared to be repentant with the fear of God.
+
+But even though God looks at the humble and contrite who have the fear of God and are not self-commending, that doesn't mean the Scripture is wrong when it says that the one born of God doesn't sin. The truth of Scripture stands. What would be false humilty is to say the Scripture is wrong, that even the one born of God is a sinner by nature, and that there's nothing God wants me to do because Jesus Christ did it all.
 
 > **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** - Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing far off, would not even lift up his eyes to heaven, but **beat his breast, saying, God, be merciful to me, a sinner**! I tell you, this man went down to his house justified, rather than the other. For everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
 
@@ -15366,7 +15444,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5bef502) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgaa85c10) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -20608,7 +20686,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orge0a66b9).
+I didn't know but it turned out to be the last day of my [sentence](#org858d801).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -44734,7 +44812,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orge42954f)
+See: [33.4.1](#org31550a0)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -52788,6 +52866,122 @@ Giving up idols, and giving them up from the heart, is important for entering th
 Repentance is important:
 
 > **[Matthew 3:3-9](https://www.biblegateway.com/passage/?search=Matthew%203%3A3-9&version=ESV)** - For this is he who was spoken of by the prophet Isaiah when he said, The voice of one crying in the wilderness: Prepare the way of the Lord; make his paths straight. Now John wore a garment of camel's hair and a leather belt around his waist, and his food was locusts and wild honey. Then Jerusalem and all Judea and all the region about the Jordan were going out to him, and they were baptized by him in the river Jordan, confessing their sins. But when he saw many of the Pharisees and Sadducees coming for baptism, he said to them, You brood of vipers! Who warned you to flee from [(G575 apo; from, away from, of, by)](G575) the wrath to come? Bear fruit in keeping with repentance. And do not presume to say to yourselves, We have Abraham as our father, for I tell you, God is able from these stones to raise up children for Abraham.
+
+-   **[Answering the Hard Questions](https://www.youtube.com/post/UgkxA2CzxodX70FWq61PtWiy0yIqK4wx4X7E):** Proverbs 20:9 Reflection 2026-07-28
+    
+    “Who will boast about having a pure heart?
+    Or who will boldly declare, ‘I am clean from my sins’?”
+    
+    The pure of heart can never boast, for if they do, they are not pure and have hidden pride.
+    
+    Who can say they are without sin except for Christ and the One who bore Him?
+    
+    Who can find themselves in confession with no words to say, when even the One to whom we confess already knows they have sinned?
+    
+    And again, we call upon saints who have been found worthy of the title by God. Yet if you were to ask them, they would likely consider themselves worse sinners than anyone else.
+
+-   **I commented:** Very nice devotional.
+    I have some related thoughts. Also, after starting this comment, it has gotten bigger as I've been pondering about it and fixing issues.
+    I am not infallible.
+    
+    Though God does clean us, we still don't say, "I have no sin."
+    
+    I've been thinking about self commendation vs seeking the commendation that is from God.
+    
+    Real faith is not self-commending.
+    Though we know Abraham was justified by faith, he didn't go around saying, "I'm righteous before God." He couldn't have read Genesis to say, I believe the promise and therefore I'm righteous!
+    Rather, Abraham had faith, and God saw his faith.
+    If a person testifies to others about themself that they don't extort, commit adultery, commit sin generally etc. that is not the same thing in that moment as actually refraining from commiting sin.
+    
+    > [John 5:31-37](https://www.biblegateway.com/passage/?search=John%205%3A31-37&version=ESV) - If I alone bear witness about myself, my testimony is not deemed true.
+    
+    God witnessed about his Son:
+    
+    > [Matthew 17:5](https://www.biblegateway.com/passage/?search=Matthew%2017%3A5&version=ESV) - He was still speaking when, behold, a  bright cloud overshadowed them, and a voice from the cloud said, This is my beloved Son, with whom I am well pleased; listen to him. (ESV)
+    
+    Self-commendation or seeking to justify oneself, rather than seeking commendation from God, is/are a big problems. Pride is very closely related to self-commendation.
+    But consider Mark 10:17-23 where Jesus loves the person who said, "I have kept them (God's commandments) from my youth."
+    
+    This person appears to have made the statement not from "pride" but rather from curiousity or from being puzzled. Jesus still pointed out that he needed to follow Him, and I believe that following Jesus really means to learn from Jesus Christ, coming into agreement with His words, and it means having faith in Jesus Christ, trusting and loving the truth, taking one's thoughts into obedience to Christ.
+    
+    > **[Matthew 8:21-22](https://www.biblegateway.com/passage/?search=Matthew%208%3A21-22&version=ESV)** - Another of the disciples said to him, Lord, let me first go and bury my father. And Jesus said to him, **Follow me**, and leave the dead to bury their own dead. (ESV)
+    
+    > **[Matthew 23:1](https://www.biblegateway.com/passage/?search=Matthew%2023%3A1&version=ESV)** - Then Jesus said to the crowds and to his disciples, (ESV)
+    
+    > **[Matthew 23:9](https://www.biblegateway.com/passage/?search=Matthew%2023%3A9&version=ESV)** - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
+    
+    That faith will produces the deeds of Jesus. Jesus didn't sin. Neither did Jesus anywhere in recorded Scripture (to my knowledge) call anyone other than God His father. The person in Mark 10:17-23 was still attached to his material wealth.
+    Following Jesus and doing the deeds of Jesus would look like imitating Christ, and so calling God our father (**[Matthew 8:21-22](https://www.biblegateway.com/passage/?search=Matthew%208%3A21-22&version=ESV)**), for example, and loving as Jesus loved, loving the children of God, loving anyone born of God (**[I John 5:1-2](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-2&version=ESV)**), having the love of God, loving Jesus (**[John 15:22-24](https://www.biblegateway.com/passage/?search=John%2015%3A22-24&version=ESV)**).
+    
+    The issue with the Pharisee in [Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV) seems to be pride.
+    
+    Of these two people in who went up to the temple to pray in the story in [Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV), the one who beat his breast was non-self commending and had the fear of God. Whereas the pharisee in the story was self-commending.
+    
+    Jesus explained that what makes someone great in the Kingdom of God is humility (Mt 18:4). So perhaps a person could still be in the Kingdom of God, but still "have" some pride. Not actively committing it but perhaps having some misconceptions about oneself (i.e. not being able to see it), but still presently following Jesus nevertheless, on the path to taking every thought captive for obedience to Christ, as they are being sanctified by faith in Jesus, and by obedience to Jesus. Can a "repentant" person "enter" the Kingdom of God, even if they "have" sin? I think so. But I think they need to be repentant, able to be corrected by God. I think that they need to be having faith, and in having faith are not committing sin, but rather being sanctified (cleaned up), committing faith (so to speak) rather than committing sin.
+    
+    I think inheriting the Kingdom of God requires having been cleaned up. So in my understanding there is a distinction between entering and inheriting the Kingdom. To inherit the Kingdom of God, a person needs to have put on incorruption. I take it a person inherits the Kingdom of God with their resurrection body:
+    
+    > **[I Corinthians 15:50-55](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A50-55&version=ESV)** - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor does the perishable inherit the imperishable. Behold! I tell you a mystery. We shall not all sleep, but we shall all be changed, in a moment, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, and the dead will be raised imperishable, and we shall be changed. For this perishable body must put on the imperishable, and this mortal body must put on immortality. When the perishable puts on the imperishable, and the mortal puts on immortality, then shall come to pass the saying that is written: Death is swallowed up in victory. O death, where is your victory? O death, where is your sting? (ESV)
+    
+    After all, Jesus said, the slave to sin doesn't abide/remain in the house forever.
+    So I believe that sanctification (getting cleaned up) is necessary abide forever. Putting a stop to committing sin, and, instead holding faith in Jesus, is necessary to enter the Kingdom.
+    
+    I believe that a person can still be (have sin) sinful and enter the Kingdom of God. After all, God justifies even the ungodly if they have faith in Jesus Christ. But I believe that faith must be a repentant fatih, holding faith in Jesus Christ, prefering God to evil, so has stopped "committing" sin to enter the Kingdom of God through Jesus Christ who is the door.
+    
+    From [Matthew 21:24-32](https://www.biblegateway.com/passage/?search=Matthew%2021%3A24-32&version=ESV) - &#x2026; Truly, I say to you, the tax collectors and the prostitutes go into the kingdom of God before you. For John came to you in the way of righteousness, and you did not believe him, but the tax collectors and the prostitutes believed him. And even when you saw it, you did not afterward change your minds and believe him. (ESV)
+    
+    > [Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV) - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come and stand before me in this house, which is called by my name, and say, We are delivered to do all these abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I have seen it, saith the LORD. (KJV)
+    
+    > [John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV) - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
+    
+    Real faith still has the fear of God in it, so when a person comes to faith, they come to faith preferring God to evil. When a person comes to God in faith, they are, in having faith, by definition **not** committing sin from the love of evil, because they have faith (but God's the one who commends faith).
+    
+    So when I read about the one "born of God" who doesn't sin, who loves the way God has commanded and confesses the truth about Jesus such as that he is the Son of God, the Christ, etc. I'm hesitant to call myself the one "born of God" because it sounds like self-justification to me. But I think it's a better move to confess to others the truth about Jesus, and leave the commending to God. If a person says, "I'm a Christian." that doesn't mean they are a Christian. If someone told me that "Jesus is the Christ the Son of God who has come into the world and died on tree and rose from the dead." Then I'd assume that that person speaking to me is a Christian. I mean, God knows all things, even what is in every man's heart.
+    
+    But I've been thinking recently about how we receive a new heart and spirit when we are born again, but God keeps working on us. God circumcises our heart of flesh, so we can love God with our whole heart, and loving Him with our whole heart includes His children. That, I believe, is happening as we "take every thought captive for obedience to Christ".
+    
+    So we can affirm what Scripture says about what the person born of God looks like.
+    
+    But to tell others, "God is very pleased with me." is self-commendation in my view. I do not think it's humble to praise oneself.
+    Even the heavens are not pure in His sight, and He puts no trust in His holy ones. God will always be able to point out some way in which we fall short of His glory.
+    
+    But by the grace of God we can receive from God a new heart, a new spirit, a new nature.
+    But even after getting born-again, it's possible to make mistakes.
+    Self-commendation is not good.
+    
+    So in  **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)**, both of these people had some idea about righteousness, but the tax collector was humble and the pharisee was not. Whatever is not done in faith is sin which is lawlessness (**[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**). I think that false humility would pervert the truth of Scripture to remove the necessity of repentance, and in doing so distort the gospel to make it a licence to sin. Both the pharisee and the tax collector in **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** had an idea about what it looks like to practice righteousness, but the pharisee was comparing himself with his peers and self-commending rather than seeking commendation from God, and the tax collector on the other hand was not self-commending and appeared to be repentant with the fear of God.
+    
+    But even though God looks at the humble and contrite who have the fear of God and are not self-commending, that doesn't mean the Scripture is wrong when it says that the one born of God doesn't sin. The truth of Scripture stands. What would be false humilty is to say the Scripture is wrong, that even the one born of God is a sinner by nature, and that there's nothing God wants me to do because Jesus Christ did it all.
+    Father God wants us to have faith in Him. And we can do that by having faith in Jesus Christ.
+    So that's what we have to do, right. And when a person is trusting in Jesus, they are by definition not sinning.
+    
+    But holding faith in God, while it does mean "not committing sin", doesn't mean, "not having sin".
+    
+    I have used a "car analogy". In this analogy the car is ourself. When we were children of wrath, we would sin against our car i.e. thrash the car, and do jumps and skids and doughnuts and wear out the tires, and not change the oil, and take it to the beach and wreck the carpet with sand. And the penalty for committing sin against the car is that the car will break down.
+    
+    But when we receive the new nature from God and are forgiven, we stop damaging the car. But the car still has damage (Apostle Paul talks about indwelling sin),.
+    
+    Then we need to confess the damage to the car (confess the sin). If we don't confess the tires need replacing then the tires wont be replaced. So to confess "homologeo" (speak the same thing) our sin which we have might be: I agree with You Father God that this sinful behaviour which I have enjoyed doing is sin, or that thing that I did was sin as You, God, say it is sin. And then since what is not done in faith is sin and we must continue in faith, it's important to stop committing that sin. God cleans us, but we've got to stop doing it.
+    But we stop thrashing the metaphorical car, so we stop making more damage to ourselves, at least it is our new nature, the default, to not commit sin, because by default the "believer", being a believer is someone who walks by faith (rather than from the love of evil).
+    
+    But if we do slip up after getting born-again and "thrash the car", (commit sin), then we need to repent from it, and return to faith.
+    We still have Jesus Christ as our advocate.
+    
+    Sin is enslaving and not good, and we need to love God rather than evil, and be enslaved to practicing righteousness from the love of God. Loving evil leads to death. Loving God, Jesus Christ and our neighbour as commanded is eternal life.
+    
+    But the new nature means that when we sin, it's the mistake. Holy Spirit convicts of sin and righteousness.
+    
+    When Jesus gives mercy, it's not to go on sinning:
+    
+    > **[John 8:11](https://www.biblegateway.com/passage/?search=John%208%3A11&version=ESV)** - She said, No one, Lord. And Jesus said, Neither do I condemn you; go, and from now on sin no more.]] (ESV)
+    
+    > **[John 5:14](https://www.biblegateway.com/passage/?search=John%205%3A14&version=ESV)** - Afterward Jesus found him in the temple and said to him, See, you are well! Sin no more, that nothing worse may happen to you. (ESV)
+    
+    > **[I Peter 4:1-3](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A1-3&version=ESV)** - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
+    
+    The follower of Jesus should be endeavouring to bring their obedience to completion, to take every thought captive for obedience to Christ, and God writes His laws on our heart, so that we love in the way God has commanded us to love, but in that process, I have personally experienced God's correcting influence on me after getting born-again.
+    
+    > Polycarp 3:3 [3:2 the faith given to you] which is the mother of us all, while hope followeth after and love goeth before – love toward God and Christ and toward our neighbor. For if any man be occupied with these, he hath fulfilled the commandment of righteousness; for he that hath love is far from all sin.
 
 Jesus will gather His <ins>wheat</ins> into the barn:
 
@@ -65910,7 +66104,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orge42954f)
+See: [33.4.1](#org31550a0)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -68564,7 +68758,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org011a2c0) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org6a3873c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -76747,7 +76941,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org011a2c0) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org6a3873c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -78083,7 +78277,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgecc8236)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org9d47536)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
