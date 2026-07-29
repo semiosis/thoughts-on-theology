@@ -247,6 +247,11 @@ To have the love of God completed in us we need to be those who love others as w
 
 > **[I John 5:1-2](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-2&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. <ins>By this we know that we love the children of God, when we love God **and** obey his commandments.</ins> (ESV)
 
+-   [Polycarp 3:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html) [3:2 the faith given to you] which is the mother of us all, while hope followeth after and
+    **love goeth before** &#x2013; <ins>love toward God and Christ and toward our neighbor.</ins> For
+    if any man be occupied with these, he hath fulfilled the commandment
+    of righteousness; for he that hath love is far from all sin.
+
 > **[II Thessalonians 1:3](https://www.biblegateway.com/passage/?search=2%20Thessalonians%201%3A3&version=ESV)** - We ought always to give thanks to God for you, brothers, as is right, because your faith is growing abundantly, and the love of every one of you for one another is increasing. (ESV)
 
 > **[I John 3:14](https://www.biblegateway.com/passage/?search=1%20John%203%3A14&version=ESV)** - We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. (ESV)
@@ -511,7 +516,7 @@ God at some point in His Sovereign and wise plan, makes a person born again. Thi
 
 > **[Jude 1:20-21](https://www.biblegateway.com/passage/?search=Jude%201%3A20-21&version=ESV)** - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
 
-This person is freed from compulsively committing evil by the power that comes from having faith in Jesus Christ who is victorious over evil, Jesus Christ having condemned sin in the flesh.
+This person is freed from compulsively committing evil deeds by the power that comes from having faith in Jesus Christ who is victorious over evil, Jesus Christ having condemned sin in the flesh.
 When someone is born-again / baptised into Christ's death it is especially necessary to consider oneself dead to sin.
 
 If a person is from the love of the truth obeying God's commandment to have faith in Jesus Christ, obedient now to Christ, then by the grace of God they no longer compulsively sin:
@@ -844,7 +849,7 @@ A person who has faith in Jesus, even in His name, must some amount of love for 
     shall be able to be builded up unto the faith given to you,
     
     [3:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html) which is the mother of us all, while hope followeth after and
-    \*love goeth before \* &#x2013; <ins>love toward God and Christ and toward our neighbor.</ins> For
+    **love goeth before** &#x2013; <ins>love toward God and Christ and toward our neighbor.</ins> For
     if any man be occupied with these, he hath fulfilled the commandment
     of righteousness; for he that hath love is far from all sin.
 
@@ -1060,6 +1065,11 @@ If we do what Jesus commands us then we will love one-another (**[John 15:14-17]
 > **[Galatians 5:3-7](https://www.biblegateway.com/passage/?search=Galatians%205%3A3-7&version=ESV)** - I testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed from Christ, you who would be justified by the law; you have fallen away from grace. For through the Spirit, by faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith working through love. You were running well. Who hindered you from obeying the truth? (ESV)
 
 > **[Galatians 5:13-14](https://www.biblegateway.com/passage/?search=Galatians%205%3A13-14&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your neighbor as yourself. (ESV)
+
+-   [Polycarp 3:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html) [3:2 the faith given to you] which is the mother of us all, while hope followeth after and
+    **love goeth before** &#x2013; <ins>love toward God and Christ and toward our neighbor.</ins> For
+    if any man be occupied with these, he hath fulfilled the commandment
+    of righteousness; for he that hath love is far from all sin.
 
 Jesus instructed His disciples to call no man on earth "father". This instruction, therefore, is for the Christian:
 
@@ -2032,6 +2042,23 @@ There is a certain "performing" of one's salvation (**[Philippians 2:12-16](http
 
 Now, some people take this word for "performing" / "working out" / "carrying out" and complain because it sounds like salvation then depends on "performance".
 The word *"performance"* in English carries an additional connotation of an evaluation of the quality of a person's work, and so they complain because grace is free and not based on "performance" / "how well one does".
+
+Real faith is not self-commending. If a person testifies to others about themself that they don't extort, commit adultery, commit sin generally etc. that is not the same thing in that moment as actually refraining from commiting sin.
+Real faith has the fear of God in it, so when a person comes to faith, they come to faith preferring God to evil. When a person comes to God in faith, they are, in having faith, by definition **not** committing sin from the love of evil, because they have faith. Of these two people in who went up to the temple to pray in the story in Luke 18:10-14, the one who beat his breast was non-self commending and had the fear of God. Whereas the pharisee in the story was self-commending.
+Both of these people had some idea about righteousness, but the tax collector was humble and the pharisee was not.
+Whatever is not done in faith is sin which is lawlessness (**[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**). I think that false humility would pervert the truth of Scripture to remove the necessity of repentance, and in doing so distort the gospel to make it a licence to sin. Both the pharisee and the tax collector in **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** had an idea about what it looks like to practice righteousness, but the pharisee was comparing himself with his peers and self-commending rather than seeking commendation from God, and the tax collector on the other hand was not self-commending and appeared to be repentant with the fear of God. But even though God looks at the humble and contrite who have the fear of God and are not self-commending, that doesn't mean the Scripture is wrong when it says that the one born of God doesn't sin. The truth of Scripture stands. What would be false humilty is to say the Scripture is wrong, that even the one born of God is a sinner by nature, and that there's nothing God wants me to do because Jesus Christ did it all:
+
+> **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** - Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing far off, would not even lift up his eyes to heaven, but **beat his breast, saying, God, be merciful to me, a sinner**! I tell you, this man went down to his house justified, rather than the other. For everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+
+> **[Luke 19:8-9](https://www.biblegateway.com/passage/?search=Luke%2019%3A8-9&version=ESV)** - And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor. And if I have defrauded anyone of anything, I restore it fourfold. And Jesus said to him, Today salvation has come to this house, since he also is a son of Abraham. (ESV)
+
+When Jesus gives mercy, it's not to go on sinning:
+
+> **[John 8:11](https://www.biblegateway.com/passage/?search=John%208%3A11&version=ESV)** - She said, No one, Lord. And Jesus said, Neither do I condemn you; go, and from now on sin no more.]] (ESV)
+
+> **[John 5:6-15](https://www.biblegateway.com/passage/?search=John%205%3A6-15&version=ESV)** - When Jesus saw him lying there and knew that he had already been there a long time, he said to him, **Do you want to be healed?** The sick man answered him, Sir, I have no one to put me into the pool when the water is stirred up, and while I am going another steps down before me. Jesus said to him, Get up, take up your bed, and walk. And at once the man was healed, and he took up his bed and walked. Now that day was the Sabbath. So the Jews said to the man who had been healed, It is the Sabbath, and it is not lawful for you to take up your bed. But he answered them, The man who healed me, that man said to me, Take up your bed, and walk. They asked him, Who is the man who said to you, Take up your bed and walk? Now the man who had been healed did not know who it was, for Jesus had withdrawn, as there was a crowd in the place. Afterward Jesus found him in the temple and said to him, See, you are well! **Sin no more, that nothing worse may happen to you.** The man went away and told the Jews that it was Jesus who had healed him. (ESV)
+
+> **[I Peter 4:1-3](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A1-3&version=ESV)** - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
 
 To be saved is to be saved from committing sin while having faith in Jesus Christ (**[John 8:34-36](https://www.biblegateway.com/passage/?search=John%208%3A34-36&version=ESV)**, **[Romans 8:8-13](https://www.biblegateway.com/passage/?search=Romans%208%3A8-13&version=ESV)**) and so so-called grace or salvation that is denying of being saved from committing sin is not true grace or true salvation.
 
@@ -15339,7 +15366,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9c7cee8) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5bef502) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -20581,7 +20608,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgf1955f4).
+I didn't know but it turned out to be the last day of my [sentence](#orge0a66b9).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -44707,7 +44734,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org80a6b01)
+See: [33.4.1](#orge42954f)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -65883,7 +65910,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org80a6b01)
+See: [33.4.1](#orge42954f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -68537,7 +68564,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org6349536) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org011a2c0) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -76720,7 +76747,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org6349536) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org011a2c0) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -78056,7 +78083,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgec619c0)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgecc8236)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
