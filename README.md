@@ -470,6 +470,23 @@ The salvation Jesus has bought is salvation from committing sin. Sanctification 
 
 > **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
 
+[youtube.com:  Lovers of Darkness bring Corruption {@ TheOnceLostAndNowFoundSheep267 }](https://www.youtube.com/watch?v=S-NQGsmBE5c)
+
+Real faith loves God rather than evil.
+Real faith in Jesus prefers Him to evil.
+Real faith in Jesus prefers Him to other things.
+And God cleans us as we hold our faith in Jesus Christ preferring Him.
+
+There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
+
+> **[Isaiah 48:22](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A22&version=ESV)** - There is no peace, says the LORD, for the wicked. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For <ins>whatever does not proceed from faith is sin.</ins> (ESV)
+
+> **[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)** - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself, and that wicked one toucheth him not. (KJV)
+
+> **[John 5:42-43](https://www.biblegateway.com/passage/?search=John%205%3A42-43&version=ESV)** - But I know that you do not have the love of God within you. I have come in my Father's name, and you do not receive me. If another comes in his own name, you will receive him. (ESV)
+
 When a person gets born-again of the spirit, they do need to not then double-down on the passions of the flesh. They do need to not "walk by the corpse/flesh" letting the corpse dictate one's actions, but rather "walk by the spirit" doing the will of God. New spirit in old flesh needs to not be carnal and walk by the flesh, but should rather try to use the old flesh to practice righteousness from an inward desire to do the will of God. The flesh does seem to resist the will of the spirit though (consider, for example, if a born-again person's flesh was craving nicotine or pornography while this person knows in their heart that to act on indulging themself with it is against their faith in Jesus, and I'm not saying that having a cigarette is sin in all circumstances) for what is not done in faith is sin. It's right for a person who has been born-again of the spirit to strive to then walk by the spirit, as in not just be driven by the cravings of the flesh, of the old nature, but to actually by faith practice righteousness, resisting carnality, the way that we have been instructed to do, using ones' body for practicing righteousnessness, putting to death the "passions of the flesh". Being born-again of the spirit, a person has "woken up" and is in the light where all things are visible and the right thing to do is to put off the old self and to walk like Christ, as He has instructed:
 
 > **[Galatians 5:24](https://www.biblegateway.com/passage/?search=Galatians%205%3A24&version=ESV)** - And those who belong to Christ Jesus have crucified the flesh with its passions and desires. (ESV)
@@ -7255,6 +7272,19 @@ Faith, hope and love all overlap. I don't think it's possible to have hope witho
 
 > **[Romans 15:13](https://www.biblegateway.com/passage/?search=Romans%2015%3A13&version=NIV)** - May the God of hope fill you with all <ins>joy and **peace as you trust in him**, so that you may overflow with **hope** by the power of the Holy Spirit</ins>. (NIV)
 
+Real faith loves God rather than evil.
+Real faith in Jesus prefers Him to evil.
+Real faith in Jesus prefers Him to other things.
+And God cleans us as we hold our faith in Jesus Christ preferring Him.
+
+There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
+
+> **[Isaiah 48:22](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A22&version=ESV)** - There is no peace, says the LORD, for the wicked. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For <ins>whatever does not proceed from faith is sin.</ins> (ESV)
+
+> **[John 5:42-43](https://www.biblegateway.com/passage/?search=John%205%3A42-43&version=ESV)** - But I know that you do not have the love of God within you. I have come in my Father's name, and you do not receive me. If another comes in his own name, you will receive him. (ESV)
+
 Real faith loves the Truth and the love of the truth saves (**[II Thessalonians 2:10](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A10&version=ESV)**).
 Real faith and genuine agape love and hope in God are "overlapping". Love believes and hopes. We've got to love the Truth, love Jesus Christ, love Jesus' words, love Father God, love Holy Spirit, love the Word of God:
 
@@ -7733,6 +7763,19 @@ So resting from our works is not about ceasing to do good, it's just about havin
 We enter God's rest **while** we are believing in Christ. The day is today. Every day is the Sabbath:
 
 > **[Hebrews 4:7-12](https://www.biblegateway.com/passage/?search=Hebrews%204%3A7-12&version=ESV)** - again he appoints a **certain day, Today**, saying through David so long afterward, in the words already quoted, Today, if you hear his voice, do not harden your hearts. For if Joshua had given them rest, God would not have spoken of another day later on. So then, there remains a Sabbath rest for the people of God, for whoever has entered God's rest has also rested from his works as God did from his. **Let us therefore strive to enter that rest, so that no one may fall by the same sort of disobedience.** For the word of God is living and active, sharper than any two-edged sword, piercing to the division of soul and of spirit, of joints and of marrow, and discerning the thoughts and intentions of the heart. (ESV)
+
+Real faith loves God rather than evil.
+Real faith in Jesus prefers Him to evil.
+Real faith in Jesus prefers Him to other things.
+And God cleans us as we hold our faith in Jesus Christ preferring Him.
+
+There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
+
+> **[Isaiah 48:22](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A22&version=ESV)** - There is no peace, says the LORD, for the wicked. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For <ins>whatever does not proceed from faith is sin.</ins> (ESV)
+
+> **[John 5:42-43](https://www.biblegateway.com/passage/?search=John%205%3A42-43&version=ESV)** - But I know that you do not have the love of God within you. I have come in my Father's name, and you do not receive me. If another comes in his own name, you will receive him. (ESV)
 
 Abiding by Christ's law (Christ's commandments), which is a law of faith (we're not under the curse of the law of Moses) and is not a law of works (**[Romans 3:21-31](https://www.biblegateway.com/passage/?search=Romans%203%3A21-31&version=ESV)**), is not being under a curse, but, rather is being under grace:
 
@@ -15460,7 +15503,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7b85bab) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge241798) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -16675,6 +16718,25 @@ I think entering into God's rest is not an act of disobedience, and it's not an 
 We "do" the will of God to enter into God's rest. After all, how can someone rest if they are being tormented because they did not pass forward forgiveness?
 
 > **[Matthew 18:32-35](https://www.biblegateway.com/passage/?search=Matthew%2018%3A32-35&version=ESV)** - Then his lord, after that he had called him, said unto him, O thou wicked servant, I forgave thee all that debt, because thou desiredst me: Shouldest not thou also have had compassion on thy fellowservant, even as I had pity on thee? And his lord was wroth, and delivered him to the tormentors, till he should pay all that was due unto him. So likewise shall my heavenly Father do also unto you, if ye from your hearts forgive not every one his brother their trespasses. (KJV)
+
+Real faith loves God rather than evil.
+Real faith in Jesus prefers Him to evil.
+Real faith in Jesus prefers Him to other things.
+And God cleans us as we hold our faith in Jesus Christ preferring Him.
+
+There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
+
+> **[Isaiah 48:22](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A22&version=ESV)** - There is no peace, says the LORD, for the wicked. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For <ins>whatever does not proceed from faith is sin.</ins> (ESV)
+
+> **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)** - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come and stand before me in this house, which is called by my name, and say, We are delivered to do all these abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I have seen it, saith the LORD. (KJV)
+
+> **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
+
+> **[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)** - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself, and that wicked one toucheth him not. (KJV)
+
+> **[John 5:42-43](https://www.biblegateway.com/passage/?search=John%205%3A42-43&version=ESV)** - But I know that you do not have the love of God within you. I have come in my Father's name, and you do not receive me. If another comes in his own name, you will receive him. (ESV)
 
 -   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-05-28 Thu 08:09&gt;</span></span>:** We entering into God's rest through "faith and obedience" to Jesus Christ and to His gospel:
     
@@ -20702,7 +20764,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgc7685a1).
+I didn't know but it turned out to be the last day of my [sentence](#org3974aa8).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -28261,6 +28323,14 @@ These people who have done this thing are criminals. They should be in jail.
 -   **[youtube.com:  David Baldacci vs . ChatGPT : " This Is The Hill I ' m Going To Die On " | 60 Minutes Australia {@ 60MinutesAU }](https://www.youtube.com/watch?v=uR1Hmklq7p4):** Case in point.
 
 -   **[youtube.com:  Is AI selling our own work back to us ? {@ RichardJMurphy }](https://www.youtube.com/watch?v=oKzNqacehQQ):** Another case in point.
+
+-   **[youtube.com:  AI Is Breaking Education {@ LMGClipsYT } @time: 45 sec](https://youtube.com/watch?v=23D25nQFCNU&t=45):** By making
+    teachers' jobs more difficult and
+    preventing students from developing
+    their own writing skills and authentic
+    voices, that they would not have the
+    skillset to tell their stories in an
+    authentic, personal way.
 
 -   **[youtube.com:  I QUIT Claude {@ ThePrimeTimeagen }](https://www.youtube.com/shorts/QGgjBjlNZ1Y):** After reading and listening to Dario, I have stopped all usage of Claude completely since 4.5. I think Dario is one of the most manipulating and corrupt people on our planet right now.  They stole many, many books and they decry continuously copyright for anybody and everybody. It feels very annoying, very, very annoying. Right? Like they they get to they get to do what they want, but not you guys.
 
@@ -44828,7 +44898,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org6c43e67)
+See: [33.4.1](#org2203e1b)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -66120,7 +66190,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org6c43e67)
+See: [33.4.1](#org2203e1b)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -68774,7 +68844,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgaddd1c9) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org677369a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -76957,7 +77027,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgaddd1c9) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org677369a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -78293,7 +78363,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgaf48467)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org3b54ae3)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

@@ -1084,6 +1084,31 @@ The salvation Jesus has bought is salvation from committing sin. Sanctification 
   John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
   way, that man is a thief and a robber. (ESV)
 
+youtube.com: Lovers of Darkness bring Corruption {@ TheOnceLostAndNowFoundSheep267 }
+
+Real faith loves God rather than evil. Real faith in Jesus prefers Him to evil. Real faith in Jesus prefers Him to
+other things. And God cleans us as we hold our faith in Jesus Christ preferring Him.
+
+There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus
+with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We
+don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who
+come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having
+faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in
+Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure
+rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in
+Jesus:
+
+  Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  I John 5:18 - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself,
+  and that wicked one toucheth him not. (KJV)
+
+  John 5:42-43 - But I know that you do not have the love of God within you. I have come in my Father's name, and
+  you do not receive me. If another comes in his own name, you will receive him. (ESV)
+
 When a person gets born-again of the spirit, they do need to not then double-down on the passions of the flesh.
 They do need to not "walk by the corpse/flesh" letting the corpse dictate one's actions, but rather "walk by the
 spirit" doing the will of God. New spirit in old flesh needs to not be carnal and walk by the flesh, but should
@@ -13859,6 +13884,26 @@ faith without agape love because Jesus said to some Jews "if God were your Fathe
   Romans 15:13 - May the God of hope fill you with all joy and peace as you trust in him, so that you may overflow
   with hope by the power of the Holy Spirit. (NIV)
 
+Real faith loves God rather than evil. Real faith in Jesus prefers Him to evil. Real faith in Jesus prefers Him to
+other things. And God cleans us as we hold our faith in Jesus Christ preferring Him.
+
+There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus
+with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We
+don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who
+come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having
+faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in
+Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure
+rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in
+Jesus:
+
+  Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 5:42-43 - But I know that you do not have the love of God within you. I have come in my Father's name, and
+  you do not receive me. If another comes in his own name, you will receive him. (ESV)
+
 Real faith loves the Truth and the love of the truth saves (II Thessalonians 2:10). Real faith and genuine agape
 love and hope in God are "overlapping". Love believes and hopes. We've got to love the Truth, love Jesus Christ,
 love Jesus' words, love Father God, love Holy Spirit, love the Word of God:
@@ -14573,6 +14618,26 @@ We enter God's rest while we are believing in Christ. The day is today. Every da
   enter that rest, so that no one may fall by the same sort of disobedience. For the word of God is living and
   active, sharper than any two-edged sword, piercing to the division of soul and of spirit, of joints and of
   marrow, and discerning the thoughts and intentions of the heart. (ESV)
+
+Real faith loves God rather than evil. Real faith in Jesus prefers Him to evil. Real faith in Jesus prefers Him to
+other things. And God cleans us as we hold our faith in Jesus Christ preferring Him.
+
+There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus
+with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We
+don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who
+come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having
+faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in
+Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure
+rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in
+Jesus:
+
+  Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 5:42-43 - But I know that you do not have the love of God within you. I have come in my Father's name, and
+  you do not receive me. If another comes in his own name, you will receive him. (ESV)
 
 Abiding by Christ's law (Christ's commandments), which is a law of faith (we're not under the curse of the law of
 Moses) and is not a law of works (Romans 3:21-31), is not being under a curse, but, rather is being under grace:
@@ -30148,6 +30213,38 @@ because they did not pass forward forgiveness?
   even as I had pity on thee? And his lord was wroth, and delivered him to the tormentors, till he should pay all
   that was due unto him. So likewise shall my heavenly Father do also unto you, if ye from your hearts forgive not
   every one his brother their trespasses. (KJV)
+
+Real faith loves God rather than evil. Real faith in Jesus prefers Him to evil. Real faith in Jesus prefers Him to
+other things. And God cleans us as we hold our faith in Jesus Christ preferring Him.
+
+There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus
+with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We
+don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who
+come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having
+faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in
+Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure
+rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in
+Jesus:
+
+  Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+  John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
+  way, that man is a thief and a robber. (ESV)
+
+  I John 5:18 - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself,
+  and that wicked one toucheth him not. (KJV)
+
+  John 5:42-43 - But I know that you do not have the love of God within you. I have come in my Father's name, and
+  you do not receive me. If another comes in his own name, you will receive him. (ESV)
 
 Journal <2026-05-28 Thu 08:09>
 
@@ -47899,6 +47996,10 @@ Case in point.
 
 youtube.com: Is AI selling our own work back to us ? {@ RichardJMurphy }
 Another case in point.
+
+youtube.com: AI Is Breaking Education {@ LMGClipsYT } @time: 45 sec
+By making teachers' jobs more difficult and preventing students from developing their own writing skills and
+authentic voices, that they would not have the skillset to tell their stories in an authentic, personal way.
 
 youtube.com: I QUIT Claude {@ ThePrimeTimeagen }
 After reading and listening to Dario, I have stopped all usage of Claude completely since 4.5. I think Dario is
@@ -130015,11 +130116,11 @@ His saints out of the hand of the wicked He delivers them (Interlinear)
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-07-30 Thu 15:15
+Date: 2026-07-31 Fri 08:12
 
 Author: Shane Mulligan
 
-Created: 2026-07-30 Thu 16:01
+Created: 2026-07-31 Fri 09:08
 
 Validate
 
