@@ -2747,6 +2747,30 @@ was called "Jesus". For he will save his people from their sins.
   sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law
   might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
 
+We need to be those who love God's righteous precepts:
+
+  Psalms 119:155 - Salvation is far from the wicked, for they do not seek your statutes. (ESV)
+
+  Psalms 50:16 - But to the wicked God says: What right have you to recite my statutes or take my covenant on your
+  lips? (ESV)
+
+  Psalms 50:23 - The one who offers thanksgiving as his sacrifice glorifies me; to one who orders his way rightly
+  I will show the salvation of God! (ESV)
+
+Loving God's word, loving what God loves, loving the truth of God, loving God a person would love Jesus and His
+words:
+
+  John 5:42-47 - But I know that you do not have the love of God within you. I have come in my Father's name, and
+  you do not receive me. If another comes in his own name, you will receive him. How can you believe, when you
+  receive glory from one another and do not seek the glory that comes from the only God? Do not think that I will
+  accuse you to the Father. There is one who accuses you: Moses, on whom you have set your hope. If you believed
+  Moses, you would believe me; for he wrote of me. But if you do not believe his writings, how will you believe my
+  words? (ESV)
+
+  I John 5:1-2 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. (ESV)
+
 Christians are justified by the law of faith in Jesus Christ (Romans 3:26-28) apart from (G5565 chōris) the works
 of the law (Romans 3:20-22) and rather than by the Old Covenant Law. It's faith in heart which God sees (Romans
 10:10).
@@ -4477,10 +4501,10 @@ the ungodly if they have faith in Jesus Christ. But I believe that faith must be
 in Jesus Christ, prefering God to evil, so has stopped "committing" sin to enter the Kingdom of God through Jesus
 Christ who is the door.
 
-From Matthew 21:24-32 - … Truly, I say to you, the tax collectors and the prostitutes go into the kingdom of God
-before you. For John came to you in the way of righteousness, and you did not believe him, but the tax collectors
-and the prostitutes believed him. And even when you saw it, you did not afterward change your minds and believe
-him. (ESV)
+  From Matthew 21:24-32 - … Truly, I say to you, the tax collectors and the prostitutes go into the kingdom of God
+  before you. For John came to you in the way of righteousness, and you did not believe him, but the tax
+  collectors and the prostitutes believed him. And even when you saw it, you did not afterward change your minds
+  and believe him. (ESV)
 
   Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
   adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
@@ -4585,6 +4609,15 @@ salvation.
   God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
   practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
   you have heard from the beginning, that we should love one another. (ESV)
+
+  I Peter 4:18-19,5:8-10,12 - And If the righteous is scarcely saved, what will become of the ungodly and the
+  sinner? Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while
+  doing good. Be sober-minded; be watchful. Your adversary the devil prowls around like a roaring lion, seeking
+  someone to devour. Resist him, firm in your faith, knowing that the same kinds of suffering are being
+  experienced by your brotherhood throughout the world. And after you have suffered a little while, the God of all
+  grace, who has called you to his eternal glory in Christ, will himself restore, confirm, strengthen, and
+  establish you. By Silvanus, a faithful brother as I regard him, I have written briefly to you, exhorting and
+  declaring that this is the true grace of God. Stand firm in it. (ESV)
 
 The carrying out of sanctification is absolutely a necessary part of salvation and also impacts the quality of a
 person's life before the day of the Lord (I Corinthians 5:1-13).
@@ -85500,10 +85533,10 @@ the ungodly if they have faith in Jesus Christ. But I believe that faith must be
 in Jesus Christ, prefering God to evil, so has stopped "committing" sin to enter the Kingdom of God through Jesus
 Christ who is the door.
 
-From Matthew 21:24-32 - … Truly, I say to you, the tax collectors and the prostitutes go into the kingdom of God
-before you. For John came to you in the way of righteousness, and you did not believe him, but the tax collectors
-and the prostitutes believed him. And even when you saw it, you did not afterward change your minds and believe
-him. (ESV)
+  From Matthew 21:24-32 - … Truly, I say to you, the tax collectors and the prostitutes go into the kingdom of God
+  before you. For John came to you in the way of righteousness, and you did not believe him, but the tax
+  collectors and the prostitutes believed him. And even when you saw it, you did not afterward change your minds
+  and believe him. (ESV)
 
   Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
   adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
@@ -129982,11 +130015,11 @@ His saints out of the hand of the wicked He delivers them (Interlinear)
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-07-29 Wed 18:00
+Date: 2026-07-30 Thu 15:15
 
 Author: Shane Mulligan
 
-Created: 2026-07-29 Wed 19:08
+Created: 2026-07-30 Thu 16:01
 
 Validate
 
