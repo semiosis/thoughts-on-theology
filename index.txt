@@ -1089,14 +1089,15 @@ youtube.com: Lovers of Darkness bring Corruption {@ TheOnceLostAndNowFoundSheep2
 Real faith loves God rather than evil. Real faith in Jesus prefers Him to evil. Real faith in Jesus prefers Him to
 other things. And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus
-with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We
-don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who
-come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having
-faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in
-Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure
-rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in
-Jesus:
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in
+Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages
+people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to
+repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
+gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
+Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those
+who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us
+to have genuine faith in Jesus:
 
   Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
 
@@ -1105,6 +1106,17 @@ Jesus:
 
   I John 5:18 - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself,
   and that wicked one toucheth him not. (KJV)
+
+  John 5:6-15 - When Jesus saw him lying there and knew that he had already been there a long time, he said to
+  him, Do you want to be healed? The sick man answered him, Sir, I have no one to put me into the pool when the
+  water is stirred up, and while I am going another steps down before me. Jesus said to him, Get up, take up your
+  bed, and walk. And at once the man was healed, and he took up his bed and walked. Now that day was the Sabbath.
+  So the Jews said to the man who had been healed, It is the Sabbath, and it is not lawful for you to take up your
+  bed. But he answered them, The man who healed me, that man said to me, Take up your bed, and walk. They asked
+  him, Who is the man who said to you, Take up your bed and walk? Now the man who had been healed did not know who
+  it was, for Jesus had withdrawn, as there was a crowd in the place. Afterward Jesus found him in the temple and
+  said to him, See, you are well! Sin no more, that nothing worse may happen to you. The man went away and told
+  the Jews that it was Jesus who had healed him. (ESV)
 
   John 5:42-43 - But I know that you do not have the love of God within you. I have come in my Father's name, and
   you do not receive me. If another comes in his own name, you will receive him. (ESV)
@@ -13887,19 +13899,31 @@ faith without agape love because Jesus said to some Jews "if God were your Fathe
 Real faith loves God rather than evil. Real faith in Jesus prefers Him to evil. Real faith in Jesus prefers Him to
 other things. And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus
-with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We
-don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who
-come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having
-faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in
-Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure
-rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in
-Jesus:
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in
+Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages
+people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to
+repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
+gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
+Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those
+who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us
+to have genuine faith in Jesus:
 
   Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
 
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
+
+  John 5:6-15 - When Jesus saw him lying there and knew that he had already been there a long time, he said to
+  him, Do you want to be healed? The sick man answered him, Sir, I have no one to put me into the pool when the
+  water is stirred up, and while I am going another steps down before me. Jesus said to him, Get up, take up your
+  bed, and walk. And at once the man was healed, and he took up his bed and walked. Now that day was the Sabbath.
+  So the Jews said to the man who had been healed, It is the Sabbath, and it is not lawful for you to take up your
+  bed. But he answered them, The man who healed me, that man said to me, Take up your bed, and walk. They asked
+  him, Who is the man who said to you, Take up your bed and walk? Now the man who had been healed did not know who
+  it was, for Jesus had withdrawn, as there was a crowd in the place. Afterward Jesus found him in the temple and
+  said to him, See, you are well! Sin no more, that nothing worse may happen to you. The man went away and told
+  the Jews that it was Jesus who had healed him. (ESV)
 
   John 5:42-43 - But I know that you do not have the love of God within you. I have come in my Father's name, and
   you do not receive me. If another comes in his own name, you will receive him. (ESV)
@@ -14622,19 +14646,31 @@ We enter God's rest while we are believing in Christ. The day is today. Every da
 Real faith loves God rather than evil. Real faith in Jesus prefers Him to evil. Real faith in Jesus prefers Him to
 other things. And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus
-with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We
-don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who
-come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having
-faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in
-Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure
-rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in
-Jesus:
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in
+Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages
+people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to
+repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
+gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
+Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those
+who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us
+to have genuine faith in Jesus:
 
   Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
 
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
+
+  John 5:6-15 - When Jesus saw him lying there and knew that he had already been there a long time, he said to
+  him, Do you want to be healed? The sick man answered him, Sir, I have no one to put me into the pool when the
+  water is stirred up, and while I am going another steps down before me. Jesus said to him, Get up, take up your
+  bed, and walk. And at once the man was healed, and he took up his bed and walked. Now that day was the Sabbath.
+  So the Jews said to the man who had been healed, It is the Sabbath, and it is not lawful for you to take up your
+  bed. But he answered them, The man who healed me, that man said to me, Take up your bed, and walk. They asked
+  him, Who is the man who said to you, Take up your bed and walk? Now the man who had been healed did not know who
+  it was, for Jesus had withdrawn, as there was a crowd in the place. Afterward Jesus found him in the temple and
+  said to him, See, you are well! Sin no more, that nothing worse may happen to you. The man went away and told
+  the Jews that it was Jesus who had healed him. (ESV)
 
   John 5:42-43 - But I know that you do not have the love of God within you. I have come in my Father's name, and
   you do not receive me. If another comes in his own name, you will receive him. (ESV)
@@ -30217,14 +30253,15 @@ because they did not pass forward forgiveness?
 Real faith loves God rather than evil. Real faith in Jesus prefers Him to evil. Real faith in Jesus prefers Him to
 other things. And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus
-with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We
-don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who
-come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having
-faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in
-Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure
-rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in
-Jesus:
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in
+Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages
+people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to
+repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
+gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
+Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those
+who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us
+to have genuine faith in Jesus:
 
   Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
 
@@ -30242,6 +30279,17 @@ Jesus:
 
   I John 5:18 - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself,
   and that wicked one toucheth him not. (KJV)
+
+  John 5:6-15 - When Jesus saw him lying there and knew that he had already been there a long time, he said to
+  him, Do you want to be healed? The sick man answered him, Sir, I have no one to put me into the pool when the
+  water is stirred up, and while I am going another steps down before me. Jesus said to him, Get up, take up your
+  bed, and walk. And at once the man was healed, and he took up his bed and walked. Now that day was the Sabbath.
+  So the Jews said to the man who had been healed, It is the Sabbath, and it is not lawful for you to take up your
+  bed. But he answered them, The man who healed me, that man said to me, Take up your bed, and walk. They asked
+  him, Who is the man who said to you, Take up your bed and walk? Now the man who had been healed did not know who
+  it was, for Jesus had withdrawn, as there was a crowd in the place. Afterward Jesus found him in the temple and
+  said to him, See, you are well! Sin no more, that nothing worse may happen to you. The man went away and told
+  the Jews that it was Jesus who had healed him. (ESV)
 
   John 5:42-43 - But I know that you do not have the love of God within you. I have come in my Father's name, and
   you do not receive me. If another comes in his own name, you will receive him. (ESV)
@@ -130120,7 +130168,7 @@ Date: 2026-07-31 Fri 08:12
 
 Author: Shane Mulligan
 
-Created: 2026-07-31 Fri 09:08
+Created: 2026-07-31 Fri 13:21
 
 Validate
 

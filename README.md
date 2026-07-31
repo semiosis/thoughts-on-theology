@@ -477,13 +477,15 @@ Real faith in Jesus prefers Him to evil.
 Real faith in Jesus prefers Him to other things.
 And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
 
 > **[Isaiah 48:22](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A22&version=ESV)** - There is no peace, says the LORD, for the wicked. (ESV)
 
 > **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For <ins>whatever does not proceed from faith is sin.</ins> (ESV)
 
 > **[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)** - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself, and that wicked one toucheth him not. (KJV)
+
+> **[John 5:6-15](https://www.biblegateway.com/passage/?search=John%205%3A6-15&version=ESV)** - When Jesus saw him lying there and knew that he had already been there a long time, he said to him, **Do you want to be healed?** The sick man answered him, Sir, I have no one to put me into the pool when the water is stirred up, and while I am going another steps down before me. Jesus said to him, Get up, take up your bed, and walk. And at once the man was healed, and he took up his bed and walked. Now that day was the Sabbath. So the Jews said to the man who had been healed, It is the Sabbath, and it is not lawful for you to take up your bed. But he answered them, The man who healed me, that man said to me, Take up your bed, and walk. They asked him, Who is the man who said to you, Take up your bed and walk? Now the man who had been healed did not know who it was, for Jesus had withdrawn, as there was a crowd in the place. Afterward Jesus found him in the temple and said to him, See, you are well! **Sin no more, that nothing worse may happen to you.** The man went away and told the Jews that it was Jesus who had healed him. (ESV)
 
 > **[John 5:42-43](https://www.biblegateway.com/passage/?search=John%205%3A42-43&version=ESV)** - But I know that you do not have the love of God within you. I have come in my Father's name, and you do not receive me. If another comes in his own name, you will receive him. (ESV)
 
@@ -7277,11 +7279,13 @@ Real faith in Jesus prefers Him to evil.
 Real faith in Jesus prefers Him to other things.
 And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
 
 > **[Isaiah 48:22](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A22&version=ESV)** - There is no peace, says the LORD, for the wicked. (ESV)
 
 > **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For <ins>whatever does not proceed from faith is sin.</ins> (ESV)
+
+> **[John 5:6-15](https://www.biblegateway.com/passage/?search=John%205%3A6-15&version=ESV)** - When Jesus saw him lying there and knew that he had already been there a long time, he said to him, **Do you want to be healed?** The sick man answered him, Sir, I have no one to put me into the pool when the water is stirred up, and while I am going another steps down before me. Jesus said to him, Get up, take up your bed, and walk. And at once the man was healed, and he took up his bed and walked. Now that day was the Sabbath. So the Jews said to the man who had been healed, It is the Sabbath, and it is not lawful for you to take up your bed. But he answered them, The man who healed me, that man said to me, Take up your bed, and walk. They asked him, Who is the man who said to you, Take up your bed and walk? Now the man who had been healed did not know who it was, for Jesus had withdrawn, as there was a crowd in the place. Afterward Jesus found him in the temple and said to him, See, you are well! **Sin no more, that nothing worse may happen to you.** The man went away and told the Jews that it was Jesus who had healed him. (ESV)
 
 > **[John 5:42-43](https://www.biblegateway.com/passage/?search=John%205%3A42-43&version=ESV)** - But I know that you do not have the love of God within you. I have come in my Father's name, and you do not receive me. If another comes in his own name, you will receive him. (ESV)
 
@@ -7769,11 +7773,13 @@ Real faith in Jesus prefers Him to evil.
 Real faith in Jesus prefers Him to other things.
 And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
 
 > **[Isaiah 48:22](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A22&version=ESV)** - There is no peace, says the LORD, for the wicked. (ESV)
 
 > **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For <ins>whatever does not proceed from faith is sin.</ins> (ESV)
+
+> **[John 5:6-15](https://www.biblegateway.com/passage/?search=John%205%3A6-15&version=ESV)** - When Jesus saw him lying there and knew that he had already been there a long time, he said to him, **Do you want to be healed?** The sick man answered him, Sir, I have no one to put me into the pool when the water is stirred up, and while I am going another steps down before me. Jesus said to him, Get up, take up your bed, and walk. And at once the man was healed, and he took up his bed and walked. Now that day was the Sabbath. So the Jews said to the man who had been healed, It is the Sabbath, and it is not lawful for you to take up your bed. But he answered them, The man who healed me, that man said to me, Take up your bed, and walk. They asked him, Who is the man who said to you, Take up your bed and walk? Now the man who had been healed did not know who it was, for Jesus had withdrawn, as there was a crowd in the place. Afterward Jesus found him in the temple and said to him, See, you are well! **Sin no more, that nothing worse may happen to you.** The man went away and told the Jews that it was Jesus who had healed him. (ESV)
 
 > **[John 5:42-43](https://www.biblegateway.com/passage/?search=John%205%3A42-43&version=ESV)** - But I know that you do not have the love of God within you. I have come in my Father's name, and you do not receive me. If another comes in his own name, you will receive him. (ESV)
 
@@ -15503,7 +15509,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge241798) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org228bd6f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -16724,7 +16730,7 @@ Real faith in Jesus prefers Him to evil.
 Real faith in Jesus prefers Him to other things.
 And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease or not, they need to come to faith in Jesus with the love of God. It's not right to say, "The diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us to have genuine faith in Jesus:
 
 > **[Isaiah 48:22](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A22&version=ESV)** - There is no peace, says the LORD, for the wicked. (ESV)
 
@@ -16735,6 +16741,8 @@ There is no rest for the unrepentant. Whether a person has a disease or not, the
 > **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
 
 > **[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)** - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself, and that wicked one toucheth him not. (KJV)
+
+> **[John 5:6-15](https://www.biblegateway.com/passage/?search=John%205%3A6-15&version=ESV)** - When Jesus saw him lying there and knew that he had already been there a long time, he said to him, **Do you want to be healed?** The sick man answered him, Sir, I have no one to put me into the pool when the water is stirred up, and while I am going another steps down before me. Jesus said to him, Get up, take up your bed, and walk. And at once the man was healed, and he took up his bed and walked. Now that day was the Sabbath. So the Jews said to the man who had been healed, It is the Sabbath, and it is not lawful for you to take up your bed. But he answered them, The man who healed me, that man said to me, Take up your bed, and walk. They asked him, Who is the man who said to you, Take up your bed and walk? Now the man who had been healed did not know who it was, for Jesus had withdrawn, as there was a crowd in the place. Afterward Jesus found him in the temple and said to him, See, you are well! **Sin no more, that nothing worse may happen to you.** The man went away and told the Jews that it was Jesus who had healed him. (ESV)
 
 > **[John 5:42-43](https://www.biblegateway.com/passage/?search=John%205%3A42-43&version=ESV)** - But I know that you do not have the love of God within you. I have come in my Father's name, and you do not receive me. If another comes in his own name, you will receive him. (ESV)
 
@@ -20764,7 +20772,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org3974aa8).
+I didn't know but it turned out to be the last day of my [sentence](#org3f406c0).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -44898,7 +44906,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org2203e1b)
+See: [33.4.1](#orgfaaeb88)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -66190,7 +66198,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org2203e1b)
+See: [33.4.1](#orgfaaeb88)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -68844,7 +68852,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org677369a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org8cf07ec) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -77027,7 +77035,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org677369a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org8cf07ec) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -78363,7 +78371,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org3b54ae3)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org201951e)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
