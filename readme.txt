@@ -1095,9 +1095,13 @@ people to turn from the error of their ways. It's not right to say, "The ill/dis
 repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
 gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
 Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
-Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those
-who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us
-to have genuine faith in Jesus:
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+
+Those who love the darkness rather than love God (John 3:14-19, II Timothy 3:1-5) are unrepentant people (II
+Timothy 3:6-8) who are disqualified in their faith and who do not come to the knowledge of the truth which God
+desires all people to come to know (I Timothy 2:4). So having the love of God in us is important for being saved.
+And unless someone is keeping God's commandments, for them, then they surely cannot have come to the knowledge of
+the truth (I John 2:3-6). We have to have the love of God in us to have genuine faith in Jesus:
 
   Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
 
@@ -13905,9 +13909,13 @@ people to turn from the error of their ways. It's not right to say, "The ill/dis
 repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
 gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
 Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
-Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those
-who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us
-to have genuine faith in Jesus:
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+
+Those who love the darkness rather than love God (John 3:14-19, II Timothy 3:1-5) are unrepentant people (II
+Timothy 3:6-8) who are disqualified in their faith and who do not come to the knowledge of the truth which God
+desires all people to come to know (I Timothy 2:4). So having the love of God in us is important for being saved.
+And unless someone is keeping God's commandments, for them, then they surely cannot have come to the knowledge of
+the truth (I John 2:3-6). We have to have the love of God in us to have genuine faith in Jesus:
 
   Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
 
@@ -14652,9 +14660,13 @@ people to turn from the error of their ways. It's not right to say, "The ill/dis
 repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
 gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
 Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
-Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those
-who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us
-to have genuine faith in Jesus:
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+
+Those who love the darkness rather than love God (John 3:14-19, II Timothy 3:1-5) are unrepentant people (II
+Timothy 3:6-8) who are disqualified in their faith and who do not come to the knowledge of the truth which God
+desires all people to come to know (I Timothy 2:4). So having the love of God in us is important for being saved.
+And unless someone is keeping God's commandments, for them, then they surely cannot have come to the knowledge of
+the truth (I John 2:3-6). We have to have the love of God in us to have genuine faith in Jesus:
 
   Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
 
@@ -30259,9 +30271,13 @@ people to turn from the error of their ways. It's not right to say, "The ill/dis
 repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
 gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
 Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
-Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin. Those
-who are lovers of pleasure rather than lovers of God are unrepentant people. We have to have the love of God in us
-to have genuine faith in Jesus:
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+
+Those who love the darkness rather than love God (John 3:14-19, II Timothy 3:1-5) are unrepentant people (II
+Timothy 3:6-8) who are disqualified in their faith and who do not come to the knowledge of the truth which God
+desires all people to come to know (I Timothy 2:4). So having the love of God in us is important for being saved.
+And unless someone is keeping God's commandments, for them, then they surely cannot have come to the knowledge of
+the truth (I John 2:3-6). We have to have the love of God in us to have genuine faith in Jesus:
 
   Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
 
@@ -130164,11 +130180,11 @@ His saints out of the hand of the wicked He delivers them (Interlinear)
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-07-31 Fri 08:12
+Date: 2026-07-31 Fri 14:23
 
 Author: Shane Mulligan
 
-Created: 2026-07-31 Fri 13:21
+Created: 2026-07-31 Fri 14:32
 
 Validate
 
