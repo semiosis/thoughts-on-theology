@@ -1095,7 +1095,8 @@ people to turn from the error of their ways. It's not right to say, "The ill/dis
 repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
 gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
 Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
-Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (I John
+5:18, I John 5:1-6, Romans 14:23).
 
 Those who love the darkness rather than love God (John 3:14-19, II Timothy 3:1-5) are unrepentant people (II
 Timothy 3:6-8) who are disqualified in their faith and who do not come to the knowledge of the truth which God
@@ -13909,7 +13910,8 @@ people to turn from the error of their ways. It's not right to say, "The ill/dis
 repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
 gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
 Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
-Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (I John
+5:18, I John 5:1-6, Romans 14:23).
 
 Those who love the darkness rather than love God (John 3:14-19, II Timothy 3:1-5) are unrepentant people (II
 Timothy 3:6-8) who are disqualified in their faith and who do not come to the knowledge of the truth which God
@@ -14660,7 +14662,8 @@ people to turn from the error of their ways. It's not right to say, "The ill/dis
 repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
 gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
 Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
-Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (I John
+5:18, I John 5:1-6, Romans 14:23).
 
 Those who love the darkness rather than love God (John 3:14-19, II Timothy 3:1-5) are unrepentant people (II
 Timothy 3:6-8) who are disqualified in their faith and who do not come to the knowledge of the truth which God
@@ -30271,7 +30274,8 @@ people to turn from the error of their ways. It's not right to say, "The ill/dis
 repent and have faith." We don't just take the rest from Jesus without coming to Jesus (learning from Him). Jesus
 gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth.
 Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in
-Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (I John
+5:18, I John 5:1-6, Romans 14:23).
 
 Those who love the darkness rather than love God (John 3:14-19, II Timothy 3:1-5) are unrepentant people (II
 Timothy 3:6-8) who are disqualified in their faith and who do not come to the knowledge of the truth which God
@@ -130118,6 +130122,133 @@ His saints out of the hand of the wicked He delivers them (Interlinear)
   Revelation of John 14:19 - So the angel swung his sickle across the earth and gathered the grape harvest of the
   earth and threw it into the great winepress of the wrath of God. (ESV)
 
+78.4.90. Journal <2026-08-02 Sun 02:58>
+
+So I have just had a couple of interesting dreams. It still bothers me that there was no explicit testimony of
+Jesus Christ from Holy Spirit to me. But I will quote relevant Scripture. Trust God's word through Scripture,
+rather than rely on dreams (Jude 1:8). It also bothers me that yesterday there was a greater than average
+experience of this defilement and demonic dreams etc. It's been a real spiritual battle. I've been feeling sick
+because of the ongoing spiritual warfare. May Yahweh (Father, Son and Holy Spirit), deliver me completely from it
+(II Corinthians 7:1) and from this world (Acts 2:40) in Jesus Christ's name.
+
+First dream
+
+The first one was of me walking through a restaurant or conference with dining tables and people seated at them
+and someone called out to me loudly so that everyone had his attention stating that I have the answer to why Jesus
+said, "Call no man on earth your father for you have one father who is in heaven." And so everyone seemed to pay
+close attention as I began speaking.
+
+I said, "Firstly, nowhere in the New Testament…" Then I paused as I thought that these people may not be aware of
+the New Testament because they may be people who are living in the period before the New Testament was written.
+But I continued, "Nowhere is it recorded as Jesus having called anybody on earth 'father' other than God." Then
+all of a sudden, strangely, people lost interest dramatically and just returned to conversing with each other at
+their tables, even speaking over me in commotion as I continued speaking.
+
+I continued while nobody was listening to me, "Secondly, when Jesus said, 'You have one father who is in heaven,
+He was saying that,'" and everyone was speaking so loudly with one another ignoring me that it was difficult to
+speak or think. "He was saying that a person has only one…." (and I was thinking of what to say, 'dad' or
+'parent') He was saying that whoever has been begotten of God, they have a new…" (and I was thinking of what to
+say, 'dad' or 'parent') But everyone was speaking to loudly over top of me it was difficult to think.
+
+  I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. (ESV)
+
+Second dream
+
+In this second dream I was in some kind of backyard where there was what appeared to be a vintage carnival going
+on. In this carnival there might have been themes of "bad theology". At least one other person was standing over
+what appeared to be a attraction comprised of a silverware tray with some teacups on it at one end of a bench, and
+at the other end of the bench was tree stump that was horizontally oriented to work like a pile-driver. Something
+triggered the tree stump to whack the silverware tray and send the tray moving down the bench. So I tried to
+explain to a lady (if I recall correctly) how it worked.
+
+Then I found myself inside and someone was asking me about Jesus. So I said to them, "About a year after I was
+born-again, perhaps a little less then a year, I began to get clued up on discerning sound theology. In this
+dream, I said, "Jesus said whoever learns from him, comes to him. So we have to actually be learning from Jesus."
+And then the lady said, "And do what he says." And I said, "Yes, and do what he says." And then she sounded,
+"Huh," as if something clicked for her.
+
+Then I woke up.
+
+I immediately reflected on this dream. It did bother me initially that in the dream I had said in this dream,
+"Jesus said 'whoever learns from him, comes to him'." because Jesus actually said that whoever has heard and
+learned from the Father comes to him. Yet Jesus also said that the Father who sent him has told him what to speak,
+and he said that the Son can do nothing apart from what he sees the Father doing. So, really, if someone is
+learning from Jesus who is the Son of God then they are still learning from Father God and as such are coming to
+Jesus.
+
+  John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
+  And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
+  may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not
+  come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge;
+  the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the
+  Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his
+  commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+
+  John 5:19 - So Jesus said to them, Truly, truly, I say to you, the Son can do nothing of his own accord, but
+  only what he sees the Father doing. For whatever the Father does, that the Son does likewise.
+
+  Luke 8:12 - The ones along the path are those who have heard. Then the devil comes and takes away the word from
+  their hearts, so that they may not believe and be saved. (ESV)
+
+  Luke 8:21| - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+  Matthew 23:9 - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
+
+  John 6:45 - It is written in the Prophets, And they will all be taught by God. Everyone who has heard and
+  learned from the Father comes to me— (ESV)
+
+  John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
+  through me. (ESV)
+
+I also want to say that ever since being born-again, yes there has been a lot of correction going on, but I've had
+the fear of God since I was newly born-again, and I've had a love for God and for people and desire to do the will
+of God right from the very beginning. But who am I to self-commend or to say, I love God and my neighbour in the
+way that God requires? But I'm still called to not hide my light under a bush. Newly born-again, I'm called to
+tell other people about Jesus.
+
+But the subsequent and prolonged war of attrition against me from chronic demonic/satanic oppression, the sleep
+interruptions, being opposed with extreme high frequency in even basic daily tasks, as I endeavour to walk in the
+truth, and the lack of hearing the testimony of Jesus Christ from Holy Spirit ongoingly, has had me continually
+seeking guidance from Scripture, and praying for deliverance several times daily for years. And even going back
+before I was born-again, I would ask God to deliver me.
+
+In the month after getting born-again I was writing about keeping the 10 commandments from the heart, and I was
+also writing about how a person's beliefs in their heart should be in agreement with the truth about God. No-one
+in these years has taken time to critique my writings and respond to me. I have not been told how much of the
+theologising I was doing was correct or incorrect, even at the early stages. I certainly wouldn't throw it all
+out.
+
+I had written about following God's commandments from the heart. But God is the one who circumcises the heart. The
+elect have soft hearts. When God gives a person a new heart of flesh, He gives a person a new heart that is soft.
+A heart of stone can't receive correction. God doesn't remove a heart of flesh to put in a heart of stone. God
+removes the heart of stone and puts in a heart of flesh that is responsive to correction and then He writes His
+laws on it.
+
+Just because God circumcises our heart, doesn't mean the new heart of flesh didn't have any love in it. On the
+contrary, I felt healed when I was made new. But God continued to work on me. In some ways I feel as though
+"religious theologising" has put heavy burdens on me who felt so free when I was born-again, but at the same time,
+I think that it has been prudent and absolutely necessary to receive correction from the Scripture. By learning
+from Scripture, I have been saved from endorsing some very demonic doctrines.
+
+I haven't been so self-sure as to ignore guidance from my peers too but I've also wisened up to the fact that
+there is absolutely atrocious theology circulating, and it just seems to me as though even amongst the "churches"
+what is being preached is so compromised, and distracts and actively deters people from actually coming into
+agreement with Jesus Christ's words and actually doing as He says.
+
+Generally-speaking (but not in all cases), people I interact with seem to be actively hostile to, or impatient
+when talking about theology, or stubbornly resistant to what the Scripture is actually saying. And all the while
+I've been getting such intense spiritual attacks, and strange dreams. I've felt opposed in every direction.
+
+May God deliver me from this evil which has continued to against me. I'm still waiting for God to testify of Jesus
+Christ by the Holy Spirit as a direct word to my heart. That God seems to have just handed me over to being
+ravaged by this defilement and demonic dreams, harassment etc. is very confusing and disappointing to me. I hope
+and pray that God cleans me up and speaks to me.
+
+  John 15:26 - But when the Comforter (G3875 Paraklētos; Advocate, Helper, Comforter, Counselor, Intercessor) is
+  come, whom I will send unto you from the Father, even the Spirit of truth, which proceedeth from the Father, he
+  shall testify of me: (KJV)
+
 78.5. Prayer of thanks
 
   I Chronicles 29:11 - Yours, O LORD, is the greatness and the power and the glory and the victory and the
@@ -130180,11 +130311,11 @@ His saints out of the hand of the wicked He delivers them (Interlinear)
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-07-31 Fri 14:23
+Date: 2026-08-02 Sun 03:46
 
 Author: Shane Mulligan
 
-Created: 2026-07-31 Fri 14:32
+Created: 2026-08-02 Sun 05:20
 
 Validate
 
