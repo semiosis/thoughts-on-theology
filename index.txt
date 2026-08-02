@@ -587,6 +587,17 @@ the teachings of Jesus Christ (i.e. His words) and the teachings about Jesus Chr
 
   John 6:37 - All that the Father gives me will come to me, and whoever comes to me I will never cast out. (ESV)
 
+Learning from Father God, coming to Jesus, is receiving the pure spiritual milk:
+
+  I Peter 2:2-4 - Like newborn infants, long for the pure spiritual milk, that by it you may grow up to salvation—
+  if indeed you have tasted that the Lord is good. As you come to him, a living stone rejected by men but in the
+  sight of God chosen and precious, (ESV)
+
+  Hebrews 5:12-14 - For though by this time you ought to be teachers, you need someone to teach you again the
+  basic principles of the oracles of God. You need milk, not solid food, for everyone who lives on milk is
+  unskilled in the word of righteousness, since he is a child. But solid food is for the mature, for those who
+  have their powers of discernment trained by constant practice to distinguish good from evil. (ESV)
+
 Whatever my thoughts on how salvation works, I believe that if a person has come around to having a genuine faith
 in Jesus Christ then they are not presently judged (John 3:16-21, Romans 14:18, II Timothy 3:7-8). But they must
 continue holding that faith, actively "faithing" in Jesus even to the point of having the love of God made
@@ -130184,6 +130195,11 @@ and he said that the Son can do nothing apart from what he sees the Father doing
 learning from Jesus who is the Son of God then they are still learning from Father God and as such are coming to
 Jesus.
 
+As for the "doing" is concerned, the promise is that those who have faith will do the works of Jesus. If a person
+has the right faith then the promise to them is that they will do good deeds. We don't try to contrive the deeds.
+Rather we walk by faith and the deeds follow (Revelation of John 14:13). Obedience depends on love for the truth
+(Psalms 81:15).
+
   John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
   And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
   may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not
@@ -130247,14 +130263,27 @@ Generally-speaking (but not in all cases), people I interact with seem to be act
 when talking about theology, or stubbornly resistant to what the Scripture is actually saying. And all the while
 I've been getting such intense spiritual attacks, and strange dreams. I've felt opposed in every direction.
 
-May God deliver me from this evil which has continued to against me. I'm still waiting for God to testify of Jesus
-Christ by the Holy Spirit as a direct word to my heart. That God seems to have just handed me over to being
-ravaged by this defilement and demonic dreams, harassment etc. is very confusing and disappointing to me. I hope
-and pray that God cleans me up and speaks to me.
+May God deliver me from this evil which has continued to come against me. The spirtual warfare has been so
+intense. It's not easy to think sometimes because of the attacks that come against my mind. I'm still waiting for
+God to testify of Jesus Christ by the Holy Spirit as a direct word to my heart, but in due time I'm sure He will
+(Hebrews 11:6, Luke 11:2-13).
+
+Father God is the Truth (Saint Justin Martyr). Jesus Christ the Son of God is the Truth (John 14:6). Holy Spirit
+is the Truth (I John 5:1-6) God is the Truth.
+
+The truth is reality (G225 aletheia). I refuse to imbibe on this delusional AI chatbot theft rubbish.
+
+I hope and pray that God cleans me up, delivers me from the evil, silences the demons and speaks to me clearly as
+a direct word with the testimony of Jesus Christ.
 
   John 15:26 - But when the Comforter (G3875 Paraklētos; Advocate, Helper, Comforter, Counselor, Intercessor) is
   come, whom I will send unto you from the Father, even the Spirit of truth, which proceedeth from the Father, he
   shall testify of me: (KJV)
+
+  John 14:15-18 - If you love me, you will keep my commandments. And I will ask the Father, and he will give you
+  another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it
+  neither sees him nor knows him. You know him, for he dwells with you and will be in you. I will not leave you as
+  orphans; I will come to you. (ESV)
 
 78.5. Prayer of thanks
 
@@ -130318,11 +130347,11 @@ and pray that God cleans me up and speaks to me.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-02 Sun 11:21
+Date: 2026-08-02 Sun 14:38
 
 Author: Shane Mulligan
 
-Created: 2026-08-02 Sun 11:31
+Created: 2026-08-02 Sun 15:03
 
 Validate
 
