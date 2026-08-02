@@ -477,7 +477,7 @@ Real faith in Jesus prefers Him to evil.
 Real faith in Jesus prefers Him to other things.
 And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (**[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)**, **[I John 5:1-6](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-6&version=ESV)**, **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**).
 
 Those who love the darkness rather than love God (**[John 3:14-19](https://www.biblegateway.com/passage/?search=John%203%3A14-19&version=ESV)**, **[II Timothy 3:1-5](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A1-5&version=ESV)**) are unrepentant people (**[II Timothy 3:6-8](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A6-8&version=ESV)**) who are disqualified in their faith and who do not come to the knowledge of the truth which God desires all people to come to know (**[I Timothy 2:4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A4&version=ESV)**). So having the love of God in us is important for being saved. And unless someone is keeping God's commandments, for them, then they surely cannot have come to the knowledge of the truth (**[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)**). We have to have the love of God in us to have genuine faith in Jesus:
 
@@ -548,12 +548,14 @@ The person who has been born-again has stopped "committing sin" (**[I John 3:4](
 > **[I Peter 2:24](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A24&version=ESV)** - **He himself bore our sins in his body on the tree**, <ins>that we might die to sin and live to righteousness. **By his wounds you have been healed**</ins>. (ESV)
 
 A person who is being taught by God, comes to Jesus (**[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)**).
-They receive the seed of the word of God in them (**[Mark 4:14-20](https://www.biblegateway.com/passage/?search=Mark%204%3A14-20&version=ESV)**) which actually is the new person.
+They receive the seed of the word of God in them (**[Mark 4:14-20](https://www.biblegateway.com/passage/?search=Mark%204%3A14-20&version=ESV)**) which actually is the new person (**[I Peter 1:22-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22-25&version=ESV)**).
 That seed grows up (**[Matthew 13:37-42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-42&version=ESV)**) and the person gets **born** <ins>again</ins>, born of the spirit.
 Jesus taught words from His Father, and so a person receiving Jesus and His words, or the words of God that have been spoken about Him, come to Jesus.
 God at some point in His Sovereign and wise plan, makes a person born again. This new birth I believe is being baptised into Jesus' death, and this purifies the heart, regenerating the spirit, killing the sin that was there, and empowers the person to practice righteousness:
 
 > **[Jude 1:20-21](https://www.biblegateway.com/passage/?search=Jude%201%3A20-21&version=ESV)** - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
+
+> **[I Peter 1:22-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22-25&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; for All flesh is like grass and all its glory like the flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this word is the good news that was preached to you. (ESV)
 
 This person is freed from compulsively committing evil deeds by the power that comes from having faith in Jesus Christ who is victorious over evil, Jesus Christ having condemned sin in the flesh.
 When someone is born-again / baptised into Christ's death it is especially necessary to consider oneself dead to sin.
@@ -7281,7 +7283,7 @@ Real faith in Jesus prefers Him to evil.
 Real faith in Jesus prefers Him to other things.
 And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (**[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)**, **[I John 5:1-6](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-6&version=ESV)**, **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**).
 
 Those who love the darkness rather than love God (**[John 3:14-19](https://www.biblegateway.com/passage/?search=John%203%3A14-19&version=ESV)**, **[II Timothy 3:1-5](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A1-5&version=ESV)**) are unrepentant people (**[II Timothy 3:6-8](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A6-8&version=ESV)**) who are disqualified in their faith and who do not come to the knowledge of the truth which God desires all people to come to know (**[I Timothy 2:4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A4&version=ESV)**). So having the love of God in us is important for being saved. And unless someone is keeping God's commandments, for them, then they surely cannot have come to the knowledge of the truth (**[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)**). We have to have the love of God in us to have genuine faith in Jesus:
 
@@ -7777,7 +7779,7 @@ Real faith in Jesus prefers Him to evil.
 Real faith in Jesus prefers Him to other things.
 And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (**[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)**, **[I John 5:1-6](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-6&version=ESV)**, **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**).
 
 Those who love the darkness rather than love God (**[John 3:14-19](https://www.biblegateway.com/passage/?search=John%203%3A14-19&version=ESV)**, **[II Timothy 3:1-5](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A1-5&version=ESV)**) are unrepentant people (**[II Timothy 3:6-8](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A6-8&version=ESV)**) who are disqualified in their faith and who do not come to the knowledge of the truth which God desires all people to come to know (**[I Timothy 2:4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A4&version=ESV)**). So having the love of God in us is important for being saved. And unless someone is keeping God's commandments, for them, then they surely cannot have come to the knowledge of the truth (**[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)**). We have to have the love of God in us to have genuine faith in Jesus:
 
@@ -15515,7 +15517,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd35d0b1) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org41c56d2) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -16736,7 +16738,7 @@ Real faith in Jesus prefers Him to evil.
 Real faith in Jesus prefers Him to other things.
 And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
-There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin.
+There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (**[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)**, **[I John 5:1-6](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-6&version=ESV)**, **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**).
 
 Those who love the darkness rather than love God (**[John 3:14-19](https://www.biblegateway.com/passage/?search=John%203%3A14-19&version=ESV)**, **[II Timothy 3:1-5](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A1-5&version=ESV)**) are unrepentant people (**[II Timothy 3:6-8](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A6-8&version=ESV)**) who are disqualified in their faith and who do not come to the knowledge of the truth which God desires all people to come to know (**[I Timothy 2:4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A4&version=ESV)**). So having the love of God in us is important for being saved. And unless someone is keeping God's commandments, for them, then they surely cannot have come to the knowledge of the truth (**[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)**). We have to have the love of God in us to have genuine faith in Jesus:
 
@@ -20780,7 +20782,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgb2225e0).
+I didn't know but it turned out to be the last day of my [sentence](#org30b48ce).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -44914,7 +44916,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga763839)
+See: [33.4.1](#org051bfb4)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -66206,7 +66208,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga763839)
+See: [33.4.1](#org051bfb4)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -68860,7 +68862,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgb3aa456) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org162dcdb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -77043,7 +77045,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgb3aa456) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org162dcdb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -78379,7 +78381,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org8a72b12)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org8bca582)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -82735,6 +82737,112 @@ Saints should not "directly" judge their neighbours (**[James 4:12](https://www.
 > **[Revelation of John 14:14-18](https://www.biblegateway.com/passage/?search=Revelation%2014%3A14-18&version=ESV)** - Then I looked, and behold, a white cloud, and seated on the cloud one like a son of man, with a golden crown on his head, and a sharp sickle in his hand. And another angel came out of the temple, calling with a loud voice to him who sat on the cloud, Put in your sickle, and reap, for the hour to reap has come, for the harvest of the earth is fully ripe. So he who sat on the cloud swung his sickle across the earth, and the earth was reaped. Then another angel came out of the temple in heaven, and he too had a sharp sickle. And another angel came out from the altar, the angel who has authority over the fire, and he called with a loud voice to the one who had the sharp sickle, Put in your sickle and gather the clusters from the vine of the earth, for its grapes are ripe. (ESV)
 
 > **[Revelation of John 14:19](https://www.biblegateway.com/passage/?search=Revelation%2014%3A19&version=ESV)** - So the angel swung his sickle across the earth and gathered the grape harvest of the earth and threw it into the great winepress of the wrath of God. (ESV)
+
+
+### Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-08-02 Sun 02:58&gt;</span></span>
+
+So I have just had a couple of interesting dreams. It still bothers me that there was no explicit testimony of Jesus Christ from Holy Spirit to me.
+But I will quote relevant Scripture. Trust God's word through Scripture, rather than rely on dreams (**[Jude 1:8](https://www.biblegateway.com/passage/?search=Jude%201%3A8&version=ESV)**).
+It also bothers me that yesterday there was a greater than average experience of this defilement and demonic dreams etc.
+It's been a real spiritual battle. I've been feeling sick because of the ongoing spiritual warfare.
+May Yahweh (Father, Son and Holy Spirit), deliver me completely from it (**[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)**) and from this world (**[Acts 2:40](https://www.biblegateway.com/passage/?search=Acts%202%3A40&version=ESV)**) in Jesus Christ's name.
+
+-   **First dream:** The first one was of me walking through a restaurant or conference with dining tables and people seated at them
+    and someone called out to me loudly so that everyone had his attention stating that I have the answer to why Jesus said,
+    "Call no man on earth your father for you have one father who is in heaven."
+    And so everyone seemed to pay close attention as I began speaking.
+    
+    I said, "Firstly, nowhere in the New Testament&#x2026;"
+    Then I paused as I thought that these people may not be aware of the New Testament
+    because they may be people who are living in the period before the New Testament was written.
+    But I continued, "Nowhere is it recorded as Jesus having called anybody on earth 'father' other than God."
+    Then all of a sudden, strangely, people lost interest dramatically and just returned to conversing with each other at their tables,
+    even speaking over me in commotion as I continued speaking.
+    
+    I continued while nobody was listening to me, "Secondly, when Jesus said, 'You have one father who is in heaven, He was saying that,'"
+    and everyone was speaking so loudly with one another ignoring me that it was difficult to speak or think.
+    "He was saying that a person has only one&#x2026;."  (and I was thinking of what to say, 'dad' or 'parent')
+     He was saying that whoever has been begotten of God, they have a new&#x2026;" (and I was thinking of what to say, 'dad' or 'parent')
+    But everyone was speaking to loudly over top of me it was difficult to think.
+
+> **[I John 5:1](https://www.biblegateway.com/passage/?search=1%20John%205%3A1&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. (ESV)
+
+-   **Second dream:** In this second dream I was in some kind of backyard where there was what appeared to be a vintage carnival going on.
+    In this carnival there might have been themes of "bad theology".
+    At least one other person was standing over what appeared to be a attraction comprised of a silverware tray with some teacups on it at one end of a bench,
+    and at the other end of the bench was tree stump that was horizontally oriented to work like a pile-driver.
+    Something triggered the tree stump to whack the silverware tray and send the tray moving down the bench.
+    So I tried to explain to a lady (if I recall correctly) how it worked.
+    
+    Then I found myself inside and someone was asking me about Jesus.
+    So I said to them, "About a year after I was born-again, perhaps a little less then a year, I began to get clued up
+    on discerning sound theology.
+    In this dream, I said, "Jesus said whoever learns from him, comes to him. So we have to actually be learning from Jesus."
+    And then the lady said, "And do what he says."
+    And I said, "Yes, and do what he says."
+    And then she sounded, "Huh," as if something clicked for her.
+    
+    Then I woke up.
+    
+    I immediately reflected on this dream.
+    It did bother me initially that in the dream I had said in this dream, "Jesus said 'whoever learns from him, comes to him'."
+    because Jesus actually said that whoever has heard and learned from the Father comes to him.
+    Yet Jesus also said that the Father who sent him has told him what to speak,
+    and he said that the Son can do nothing apart from what he sees the Father doing.
+    So, really, if someone is learning from Jesus who is the Son of God then they are still learning from Father God and as such are coming to Jesus.
+
+> **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but **the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me.** (ESV)
+
+> **[John 5:19](https://www.biblegateway.com/passage/?search=John%205%3A19&version=ESV)** - So Jesus said to them, Truly, truly, I say to you, the Son can do nothing of his own accord, but   only what he sees the Father doing. For whatever the Father does, that the Son does likewise.
+
+> **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)** - The ones along the path are those who have heard. Then the devil comes and takes away the word from their hearts, so that they may not believe and be saved. (ESV)
+
+> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)|** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+> **[Matthew 23:9](https://www.biblegateway.com/passage/?search=Matthew%2023%3A9&version=ESV)** - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
+
+> **[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)** - It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— (ESV)
+
+> **[John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)** - Jesus said to him, I am the way, and the truth, and the life. **No one comes to the Father except through me**. (ESV)
+
+I also want to say that ever since being born-again, yes there has been a lot of correction going on, but I've had the fear of God since I was newly born-again, and I've had a love for God and for people and desire to do the will of God right from the very beginning.
+But who am I to self-commend or to say, I love God and my neighbour in the way that God requires? But I'm still called to not hide my light under a bush. Newly born-again, I'm called to tell other people about Jesus.
+
+But the subsequent and prolonged war of attrition against me from chronic demonic/satanic oppression,
+the sleep interruptions, being opposed with extreme high frequency in even basic daily tasks,
+as I endeavour to walk in the truth, and the lack of hearing the testimony of Jesus Christ from Holy Spirit ongoingly, has had me continually seeking guidance from Scripture, and praying for deliverance several times daily for years.
+And even going back before I was born-again, I would ask God to deliver me.
+
+In the month after getting born-again I was writing about keeping the 10 commandments from the heart, and I was also writing about how a person's beliefs in their heart should be
+in agreement with the truth about God.
+No-one in these years has taken time to critique my writings and respond to me.
+I have not been told how much of the theologising I was doing was correct or incorrect, even at the early stages. I certainly wouldn't throw it all out.
+
+I had written about following God's commandments from the heart. But God is the one who circumcises the heart. The elect have soft hearts.
+When God gives a person a new heart of flesh, He gives a person a new heart that is soft.
+A heart of stone can't receive correction. God doesn't remove a heart of flesh to put in a heart of stone.
+God removes the heart of stone and puts in a heart of flesh that is responsive to correction and then He writes His laws on it.
+
+Just because God circumcises our heart, doesn't mean the new heart of flesh didn't have any love in it.
+On the contrary, I felt healed when I was made new. But God continued to work on me.
+In some ways I feel as though "religious theologising" has put heavy burdens on me who felt so free when I was born-again,
+but at the same time, I think that it has been prudent and absolutely necessary to receive correction from the Scripture.
+By learning from Scripture, I have been saved from endorsing some very demonic doctrines.
+
+I haven't been so self-sure as to ignore guidance from my peers too but I've also wisened up to the fact that there is absolutely atrocious theology circulating, and it just seems to me as though
+even amongst the "churches" what is being preached is so compromised, and distracts and actively deters people from actually coming into agreement with Jesus Christ's words
+and actually doing as He says.
+
+Generally-speaking (but not in all cases), people I interact with seem to be actively hostile to, or impatient when talking about theology, or stubbornly resistant to what the Scripture is actually saying.
+And all the while I've been getting such intense spiritual attacks, and strange dreams.
+I've felt opposed in every direction.
+
+May God deliver me from this evil which has continued to against me.
+I'm still waiting for God to testify of Jesus Christ by the Holy Spirit as a direct word to my heart.
+That God seems to have just handed me over to being ravaged by this defilement and demonic dreams, harassment etc. is very confusing and disappointing to me.
+I hope and pray that God cleans me up and speaks to me.
+
+> **[John 15:26](https://www.biblegateway.com/passage/?search=John%2015%3A26&version=ESV)** - But when the Comforter [(G3875 Paraklētos; Advocate, Helper, Comforter, Counselor, Intercessor)](G3875) is come, whom I will send unto you from the Father, even the Spirit of truth, which proceedeth from the Father, he shall testify of me: (KJV)
 
 
 ## Prayer of thanks

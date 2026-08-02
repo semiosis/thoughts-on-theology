@@ -1267,14 +1267,21 @@ death.
   righteousness. By his wounds you have been healed. (ESV)
 
 A person who is being taught by God, comes to Jesus (John 6:45). They receive the seed of the word of God in them
-(Mark 4:14-20) which actually is the new person. That seed grows up (Matthew 13:37-42) and the person gets born
-again, born of the spirit. Jesus taught words from His Father, and so a person receiving Jesus and His words, or
-the words of God that have been spoken about Him, come to Jesus. God at some point in His Sovereign and wise plan,
-makes a person born again. This new birth I believe is being baptised into Jesus' death, and this purifies the
-heart, regenerating the spirit, killing the sin that was there, and empowers the person to practice righteousness:
+(Mark 4:14-20) which actually is the new person (I Peter 1:22-25). That seed grows up (Matthew 13:37-42) and the
+person gets born again, born of the spirit. Jesus taught words from His Father, and so a person receiving Jesus
+and His words, or the words of God that have been spoken about Him, come to Jesus. God at some point in His
+Sovereign and wise plan, makes a person born again. This new birth I believe is being baptised into Jesus' death,
+and this purifies the heart, regenerating the spirit, killing the sin that was there, and empowers the person to
+practice righteousness:
 
   Jude 1:20-21 - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep
   yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
+
+  I Peter 1:22-25 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love
+  one another earnestly from a pure heart, since you have been born again, not of perishable seed but of
+  imperishable, through the living and abiding word of God; for All flesh is like grass and all its glory like the
+  flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this
+  word is the good news that was preached to you. (ESV)
 
 This person is freed from compulsively committing evil deeds by the power that comes from having faith in Jesus
 Christ who is victorious over evil, Jesus Christ having condemned sin in the flesh. When someone is born-again /
@@ -130311,11 +130318,11 @@ and pray that God cleans me up and speaks to me.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-02 Sun 03:46
+Date: 2026-08-02 Sun 11:21
 
 Author: Shane Mulligan
 
-Created: 2026-08-02 Sun 05:20
+Created: 2026-08-02 Sun 11:31
 
 Validate
 
