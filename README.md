@@ -1354,6 +1354,8 @@ The person must not ultimately remain ungodly if they are to avoid the wrath of 
 
 > **[Jude 1:14-18](https://www.biblegateway.com/passage/?search=Jude%201%3A14-18&version=ESV)** - It was also about these that Enoch, the seventh from Adam, prophesied, saying, Behold, the Lord came with ten thousands of his holy ones, to execute judgment on all and to convict all the ungodly of all their deeds of ungodliness that they have committed in such an ungodly way, and of all the harsh things that ungodly sinners have spoken against him. These are grumblers, malcontents, following their own sinful desires; they are loud-mouthed boasters, showing favoritism to gain advantage. But you must remember, beloved, the predictions of the apostles of our Lord Jesus Christ. They said to you, In the last time there will be scoffers, following their own ungodly passions. (ESV)
 
+> **[Romans 11:25-27](https://www.biblegateway.com/passage/?search=Romans%2011%3A25-27&version=ESV)** - Lest you be wise in your own conceits, I want you to understand this mystery, brothers: a partial hardening has come upon Israel, until the fullness of the Gentiles has come in. And in this way all Israel will be saved, as it is written, The Deliverer will come from Zion, **he will banish ungodliness from Jacob**; and this will be my covenant with them when I take away their sins. (ESV)
+
 We need to continue to hold fast to the truth of the Gospel. It's important to continue to hold fast to what is of first importance. Holding fast to these most important doctrines of faith, eventually the believer will "win out", because they're holding fast to the actual truth:
 
 > **[I Corinthians 15:1-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-8&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and **by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain.** For I delivered to you as of <ins>first importance what I also received: that Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures,</ins> and that he appeared to Cephas, then to the twelve. Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. (ESV)
@@ -11573,6 +11575,8 @@ We live by trusting Him and that includes His words. Receiving and believing His
 
 > **[Deuteronomy 8:2-6](https://www.biblegateway.com/passage/?search=Deuteronomy%208%3A2-6&version=ESV)** - And you shall remember the whole way that the LORD your God has led you these forty years in the wilderness, that he might humble you, **testing you to know what was in your heart, whether you would keep his commandments or not**. And he humbled you and let you hunger and fed you with manna, which you did not know, nor did your fathers know, that he might make you know that **man does not live by bread alone, but man lives by every word that comes from the mouth of the LORD**. Your clothing did not wear out on you and your foot did not swell these forty years. Know then in your heart that, as a man disciplines his son, the LORD your God disciplines you. So you shall **keep the commandments of the LORD your God by walking in his ways and by fearing him**. (ESV)
 
+> **[John 4:46-54](https://www.biblegateway.com/passage/?search=John%204%3A46-54&version=ESV)** - So he came again to Cana in Galilee, where he had made the water wine. And at Capernaum there was an official whose son was ill. When this man heard that Jesus had come from Judea to Galilee, he went to him and asked him to come down and heal his son, for he was at the point of death. So Jesus said to him, Unless you see signs and wonders you will not believe. The official said to him, Sir, come down before my child dies. Jesus said to him, Go; your son will live. **The man believed the word that Jesus spoke to him** and went on his way. As he was going down, his servants met him and told him that his son was recovering. So he asked them the hour when he began to get better, and they said to him, Yesterday at the seventh hour the fever left him. The father knew that was the hour when Jesus had said to him, Your son will live. And he himself believed, and all his household. This was now the second sign that Jesus did when he had come from Judea to Galilee. (ESV)
+
 If you love Jesus, keep His commandments. The one who keeps Jesus' commandments is the one who loves Jesus:
 
 > **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
@@ -15523,7 +15527,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org37437bd) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org2796432) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -20788,7 +20792,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org7e2bf3d).
+I didn't know but it turned out to be the last day of my [sentence](#org12558a6).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -44922,7 +44926,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org01b6b10)
+See: [33.4.1](#org37f599c)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -66214,7 +66218,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org01b6b10)
+See: [33.4.1](#org37f599c)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -68868,7 +68872,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org4f16f3d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org1ec533d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -77051,7 +77055,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org4f16f3d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org1ec533d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -78387,7 +78391,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orge7bd02d)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgf6be209)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -82865,6 +82869,115 @@ I hope and pray that God cleans me up, delivers me from the evil, silences the d
 > **[John 15:26](https://www.biblegateway.com/passage/?search=John%2015%3A26&version=ESV)** - But when the Comforter [(G3875 Paraklētos; Advocate, Helper, Comforter, Counselor, Intercessor)](G3875) is come, whom I will send unto you from the Father, even the Spirit of truth, which proceedeth from the Father, he shall testify of me: (KJV)
 
 > **[John 14:15-18](https://www.biblegateway.com/passage/?search=John%2014%3A15-18&version=ESV)** - If you love me, you will keep my commandments. And I will ask the Father, and he will give you another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it neither sees him nor knows him. You know him, for he dwells with you and will be in you. I will not leave you as orphans; I will come to you. (ESV)
+
+
+### Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-08-04 Tue 18:38&gt;</span></span>
+
+-   **[youtube.com:  Poll from Ready to Harvest](https://www.youtube.com/post/UgkxgX8BWXRa5vaEQnb6AuSTRSz_mNvdqUI1):** I commented:
+    
+    The only hard requirement for salvation is the mercy of God (**[1 Tim 4:10](https://www.biblegateway.com/passage/?search=1%20Timothy%204%3A10&version=ESV)**, **[Rom 9:16](https://www.biblegateway.com/passage/?search=Romans%209%3A16&version=ESV)**).
+    Being found in Christ, having the righteousness from God that depends on faith, depends on having faith in Christ.
+    And God is the one who commends faith. God sees a person's faith.
+    Justification depends on having faith in Jesus Christ, even if we are ungodly, and this justification is by God's grace, and sanctification depends on justification. We can't be saved by committing sin. We're saved as we hold our faith in and are obeying Jesus Christ, and we are saved from committing sin and into instead walking by faith.
+    If a person is having faith in Jesus, then they are saved/being saved/will be saved, and they must continue in faith to remain saved.
+    If a person is hating Jesus, rejecting Jesus, distrusting Jesus, not faithing in Jesus, then they are condemned, and they need to repent lest they perish.
+    
+    In the heart indeed is faith unto righteousness.
+    In the mouth is confession unto salvation.
+    
+    But there are some promises for how to be saved:
+    
+    -   Those who are having faith in Jesus Christ will be saved.
+    -   Those who are obeying Jesus Christ from a love for the truth (**[Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)**) will be saved.
+    -   If you confess with your mouth that Jesus is Lord and believe in your heart that God raised Him from the dead you will be saved. (So while believing in your heart that God raised Jesus Christ from the dead, confess with the mouth that Jesus is Lord). Faith must continue to be saved, to continue being saved.
+    -   If you have faith in Jesus Christ and are baptized (i.e. into His name) you will be saved, but faith must absolutely continue. Baptism and apostasy doesn't save. Consider Simon Magus who had believed and was baptised but later had the love of evil and was told "may your silver perish with you" by an apostle.
+    -   If we love Jesus we will keep His commandments.
+    
+    As we go on we must also go on abiding in the teaching of Christ, even as we are being sanctified by the truth and corrected. For example, we must love one another, forgive one another, etc. If a person continues on but do not abide in the teaching of Christ then they do not have God.
+    
+    Repentance (metanoia) is a change of mind (from not having faith, to having faith). What does not proceed from faith is sin, and sin is lawlessness. Repentance and faith go hand in hand. While having faith in their heart, a person may confess Jesus with their mouth, or they may get baptised or they may take the Lord's supper (eucharist) or they may do all three.
+    But whatever the true Christian does, they do it by faith. And we need to continue walking by faith to be saved.
+    
+    A deed is done in faith or not in faith.
+    Whoever has faith in Jesus Christ will do the deeds He does and Jesus didn't sin.
+    So we are saved into doing good deeds that come from faith.
+    
+    If a person is truly holding faith in God in the matters of first importance of the gospel such as that Christ died for our sins in accordance with the Scriptures, and that God raised Him from the dead, then they will be doing deeds while holding their faith. I'm sure that if they hold their faith, they will be saved.
+    
+    -   **[I Corinthians 15:1-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-8&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain. For I delivered to you as of first importance what I also received: that Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures, and that he appeared to Cephas, then to the twelve. Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. (ESV)
+    
+    Someone might say, "Confession unto salvation is a work! And we are not saved by works but by faith alone." But that is nonsense. We are saved by sanctification by the truth. We are saved by sanctification and faith.
+    We're not saved by our own deeds apart from (G5565 chōris) Jesus, but we are saved into doing good deeds from the love of the truth.
+    If someone stops having faith and instead decides to make a practice of committing sin, then they need to repent and return to faith. Salvation is being saved from committing sin and into doing things by faith.
+    
+    > **[Romans 6:22](https://www.biblegateway.com/passage/?search=Romans%206%3A22&version=ESV)** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. (ESV)
+    
+    We are not delivered/saved to do evil deeds. So we must be those who walk by faith rather than from the love of darkness:
+    
+    > **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)** - Behold, ye trust in lying words, that cannot profit. Will ye steal,  murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come and stand before me in this house, which  is called by my name, and say, We are delivered to do all these abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even  I have seen it, saith the LORD. (KJV)
+    
+    > **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but  climbs in by another way, that man is a thief and a robber. (ESV)
+    
+    We are saved into loving God and one another the way God wants us to:
+    **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)**
+    
+    The wrath of God is against all ungodliness. So while God justifies the ungodly who have faith, God also sanctifies them.
+    It's not possible to separate faith and obedience. Obedience necessitates love for the truth (**[Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)**).
+    Good deeds are done in faith, done in love for the truth.
+    Good deeds are done in obedience, done in love for the truth.
+    Deeds (external actions done from faith) doesn't equal obedience (which is in the heart).
+    But those who having faith in Jesus are promised to have the deeds of Jesus.
+    
+    We obey the gospel of Jesus Christ to be saved.
+    We have faith in Jesus Christ to be saved.
+    
+    OK, so baptism is an appeal to God for a good conscience through the resurrection of Jesus Christ.
+    Partaking in the resurrection of Jesus Christ involves being baptised into Jesus' death and raised to walk in newness of life,
+    and so involves being born-again of the Spirit.
+    
+    A person is gets born of woman, and then they get born of the spirit. Being born of water and the spirit is what needs to happen for a person to be able to see or enter the kingdom of God. 
+    
+    > **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
+    
+    > **[Romans 6:3-8](https://www.biblegateway.com/passage/?search=Romans%206%3A3-8&version=ESV)** - Do you not know that all of us who have been baptized into Christ Jesus were baptized into his death? We were buried therefore with him by baptism into death, in order that, just as Christ was raised from the dead by the glory of the Father, we too might walk in newness of life. For if we have been united with him in a death like his, we shall certainly be united with him in a resurrection like his. We know that our old self was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe that we will also live with him. (ESV)
+    
+    > **[II John 1:9-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-11&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him int  o your house or give him any greeting, for whoever greets him takes part in his wicked works. (ESV)
+    
+    > **[I Peter 3:21](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A21&version=ESV)** - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
+
+-   **[youtube.com:  Poll from Ready to Harvest](https://www.youtube.com/post/UgkxgX8BWXRa5vaEQnb6AuSTRSz_mNvdqUI1):** I made another comment:
+    
+    @ShaneMulligan-n7h Jesus is Lord
+
+-   **And I got a reply:** @kov6126 Personally I prefer "Jesus is God" because it's stronger and discludes Mormons and Muslims in Jehovah's witnesses and whatnot.
+
+-   **And I replied to that reply:** @ShaneMulligan-n7h @kov6126 Clarifying what I believe about Jesus being Lord. Jesus is the Christ who came from God into the world in the flesh (God's word become flesh, not merely a spirit).
+    Jesus the Son of God is one with (H259. echad) God.
+    The Son of God, God's Word, is reigning as Lord until he himself is subjected to Father God.
+    Father God has given all judgement to the Son of God.
+    
+    Jesus (Yeshua, Iesous) is Yahweh (Jehovah). I'm not too hung up about the transliteration of God's proper name.
+    Who I mean by God is the God of Abraham, Isaac and Jacob. The God of Israel.
+    
+    God's the one who commends faith and God sees the heart. So I'm not too concerned about getting the precise pronunciation, but it is a question I really want to ask God.
+    
+    Father, Son and Holy Spirit are all Yahweh, and are all God.
+    But God the Father is not the Son.
+    Father God sent Christ the Son His eternal word.
+    
+    Those who come to know Jesus Christ through faith in Him, who come to know in Truth that Jesus Christ the Son of God has come from God the Father will also be one (H259. echad) with God and God sanctifies them in the Truth.
+
+I was also just thinking about "confessing faith before other people directly" rather than "confessing faith on the internet". My YouTube account isn't me :D And the computer, and my online accounts are not an extension of me.
+
+I wish that in the city in which I dwell presently on earth that more people would give me direct verbal confessions of faith. I've often encountered flat-out hostility or silence when I've asked people to confess verbally to me the facts about Jesus such as that Jesus is the Son of God, but especially the confession that Jesus is the Christ who has come from God into the world in the flesh.
+
+I John 4 teaches that we should not trust every spirit, but test the spirits to see if they come from God. That includes human beings because a human being has a spirit.
+
+Asides from affirming various truths about God, I just wanted to point out that an indirect confession of faith via the internet or whatever is far less than ideal to me, and my main hope in writing online is not "confession unto salvation" but is rather only to seek to lead people to the truth with my writing.
+
+When it comes to making confession of my faith to people, I place more value on face-to-face interactions than I do with the internet. But if God makes use of some internet things to lead people to Jesus, so be it. If the work burns up, so be it also.
+
+I think when it comes to confessing one's faith unto salvation, the most important thing is that God sees (and He does), and second to that is testifying before other human beings. 
 
 
 ## Prayer of thanks
