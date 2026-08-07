@@ -6649,6 +6649,11 @@ Jesus hates Father God (John 15:22-24).
 
 And those who hate Father God will be repayed (Deuteronomy 32:43).
 
+  Deuteronomy 7:9-10 - Know therefore that the LORD your God is God, the faithful God who keeps covenant and
+  steadfast love with those who love him and keep his commandments, to a thousand generations, and repays to their
+  face those who hate him, by destroying them. He will not be slack with one who hates him. He will repay him to
+  his face. (ESV)
+
 In giving Jesus, in sending Jesus to us, and in Christ dying for us, God demonstrates His love for us (John 3:16,
 Romans 5:7-10).
 
@@ -42143,6 +42148,88 @@ of righteousness to God. We should be practicing righteousness, practicing love 
   presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
   those alive from the dead, and your members as instruments of righteousness to God. (NASB)
 
+youtube.com: Discovering the * PROFOUND * Wisdom of Proverbs 24 : 16 {@ LakepointeChurch }
+
+I commented:
+
+I'm unsure if Proverbs 24:15-16 is a perfect match for this dynamic, but if we tie "getting back up" to "returning
+to faith, returning to walk in the light", then I think it is true to say the righteous do "get back up"/"return
+to faith" after stumbling. Typically that looks like confessing and forsaking sin, and continuing on in faith and
+love.
+
+  I John 1:7-9 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. If we say we have no sin, we deceive ourselves, and the truth
+  is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all
+  unrighteousness. (ESV)
+
+  James 1:26-27,3:1-2 - If anyone thinks he is religious and does not bridle his tongue but deceives his heart,
+  this person's religion is worthless. Religion that is pure and undefiled before God, the Father, is this: to
+  visit orphans and widows in their affliction, and to keep oneself unstained from the world. Not many of you
+  should become teachers, my brothers, for you know that we who teach will be judged with greater strictness. For
+  we all stumble in many ways, and if anyone does not stumble in what he says, he is a perfect man, able also to
+  bridle his whole body. (ESV)
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; _but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
+
+youtube.com: Shawn Ryan to Pastor : " Why Did Jesus Have to Die ?" {@ LakepointeChurch }
+
+I commented,
+
+I think that what this illustration doesn't convey is that the blessing is for the ungodly "who are believing
+(having faith) in Him". Not to all the ungodly, but to the ungodly who have faith in Him. What is not done in
+faith is sin, and sin is lawlessness. Therefore, the blessing is for those who are repentant because they stop
+committing sin and instead have faith in Him who justifies the ungodly. Because a person can't be having faith and
+committing sin at the same time.
+
+  Romans 4:23-25 - But the words it was counted to him were not written for his sake alone, but for ours also. It
+  will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our
+  trespasses and raised for our justification. (ESV)
+
+  Romans 4:5-8 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted
+  as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart
+  from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man
+  against whom the Lord will not count his sin.
+
+And Jesus did say whoever believes in Him will do the deeds he does (John 14:12). And Jesus didn't sin. So once
+again, the blessing is for those who are holding faith in Jesus rather than committing sin, even if they are
+ungodly. And as they hold this faith in Jesus Christ, they are being cleaned up (sanctified). I just wanted to
+clarify that.
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+The wrath of God is against all who forsake Him (Ezra 8:22) and against ungodliness and unrighteousness of men who
+by their unrighteousness suppress the truth (Romans 1:18).
+
+All thanks to Jesus Christ for the salvation He has bought with His blood which we receive through faith in Him.
+
+  Jude 1:24-25 - Now to him who is able to keep you from stumbling and to present you blameless before the
+  presence of his glory with great joy, to the only God, our Savior, through Jesus Christ our Lord, be glory,
+  majesty, dominion, and authority, before all time and now and forever. Amen. (ESV).
+
+  II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
+  righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
+  (ESV)
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
+
+  Hebrews 9:22 - Indeed, under the law almost everything is purified with blood, and without the shedding of blood
+  there is no forgiveness of sins. (ESV)
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; _but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
+
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
+
 3.17.4. There's some bonuses to suffering for Christ's sake and for endurance
 
 Not all Christian suffering is the same:
@@ -50424,6 +50511,9 @@ God can give eternal life. Jesus can give eternal life. Jesus is God, the Son of
 
   Mark 10:17 - And as he was setting out on his journey, a man ran up and knelt before him and asked him, Good
   Teacher, what must I do to inherit eternal life? (ESV)
+
+  Romans 9:5 - To them belong the patriarchs, and from their race, according to the flesh, is the Christ who is
+  God over all, blessed forever. Amen. (ESV)
 
 Jesus must be God because the Scripture says that salvation for man is impossible for man without God, and Jesus
 Christ is our Saviour. "God through Jesus Christ":
@@ -62084,6 +62174,9 @@ I believe that Jesus Christ is Jehovah, in that Jesus is God the Son, and the na
   John 1:1-3 - In the beginning was the Word, and the Word was with God, and the Word was God. He was in the
   beginning with God. All things were made through him, and without him was not any thing made that was made.
   (ESV)
+
+  Romans 9:5 - To them belong the patriarchs, and from their race, according to the flesh, is the Christ who is
+  God over all, blessed forever. Amen. (ESV)
 
 Song
 youtube.com: What A Beautiful Name - Hillsong Worship
@@ -130528,11 +130621,11 @@ does), and second to that is testifying before other human beings.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-04 Tue 20:42
+Date: 2026-08-07 Fri 20:27
 
 Author: Shane Mulligan
 
-Created: 2026-08-04 Tue 20:51
+Created: 2026-08-07 Fri 20:36
 
 Validate
 
@@ -137187,6 +137280,11 @@ Jesus hates Father God (John 15:22-24).
 
 And those who hate Father God will be repayed (Deuteronomy 32:43).
 
+  Deuteronomy 7:9-10 - Know therefore that the LORD your God is God, the faithful God who keeps covenant and
+  steadfast love with those who love him and keep his commandments, to a thousand generations, and repays to their
+  face those who hate him, by destroying them. He will not be slack with one who hates him. He will repay him to
+  his face. (ESV)
+
 In giving Jesus, in sending Jesus to us, and in Christ dying for us, God demonstrates His love for us (John 3:16,
 Romans 5:7-10).
 
@@ -172681,6 +172779,88 @@ of righteousness to God. We should be practicing righteousness, practicing love 
   presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
   those alive from the dead, and your members as instruments of righteousness to God. (NASB)
 
+youtube.com: Discovering the * PROFOUND * Wisdom of Proverbs 24 : 16 {@ LakepointeChurch }
+
+I commented:
+
+I'm unsure if Proverbs 24:15-16 is a perfect match for this dynamic, but if we tie "getting back up" to "returning
+to faith, returning to walk in the light", then I think it is true to say the righteous do "get back up"/"return
+to faith" after stumbling. Typically that looks like confessing and forsaking sin, and continuing on in faith and
+love.
+
+  I John 1:7-9 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. If we say we have no sin, we deceive ourselves, and the truth
+  is not in us. If we confess our sins, he is faithful and just to forgive us our sins and to cleanse us from all
+  unrighteousness. (ESV)
+
+  James 1:26-27,3:1-2 - If anyone thinks he is religious and does not bridle his tongue but deceives his heart,
+  this person's religion is worthless. Religion that is pure and undefiled before God, the Father, is this: to
+  visit orphans and widows in their affliction, and to keep oneself unstained from the world. Not many of you
+  should become teachers, my brothers, for you know that we who teach will be judged with greater strictness. For
+  we all stumble in many ways, and if anyone does not stumble in what he says, he is a perfect man, able also to
+  bridle his whole body. (ESV)
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; _but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
+
+youtube.com: Shawn Ryan to Pastor : " Why Did Jesus Have to Die ?" {@ LakepointeChurch }
+
+I commented,
+
+I think that what this illustration doesn't convey is that the blessing is for the ungodly "who are believing
+(having faith) in Him". Not to all the ungodly, but to the ungodly who have faith in Him. What is not done in
+faith is sin, and sin is lawlessness. Therefore, the blessing is for those who are repentant because they stop
+committing sin and instead have faith in Him who justifies the ungodly. Because a person can't be having faith and
+committing sin at the same time.
+
+  Romans 4:23-25 - But the words it was counted to him were not written for his sake alone, but for ours also. It
+  will be counted to us who believe in him who raised from the dead Jesus our Lord, who was delivered up for our
+  trespasses and raised for our justification. (ESV)
+
+  Romans 4:5-8 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted
+  as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart
+  from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man
+  against whom the Lord will not count his sin.
+
+And Jesus did say whoever believes in Him will do the deeds he does (John 14:12). And Jesus didn't sin. So once
+again, the blessing is for those who are holding faith in Jesus rather than committing sin, even if they are
+ungodly. And as they hold this faith in Jesus Christ, they are being cleaned up (sanctified). I just wanted to
+clarify that.
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+The wrath of God is against all who forsake Him (Ezra 8:22) and against ungodliness and unrighteousness of men who
+by their unrighteousness suppress the truth (Romans 1:18).
+
+All thanks to Jesus Christ for the salvation He has bought with His blood which we receive through faith in Him.
+
+  Jude 1:24-25 - Now to him who is able to keep you from stumbling and to present you blameless before the
+  presence of his glory with great joy, to the only God, our Savior, through Jesus Christ our Lord, be glory,
+  majesty, dominion, and authority, before all time and now and forever. Amen. (ESV).
+
+  II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
+  righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
+  (ESV)
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
+
+  Hebrews 9:22 - Indeed, under the law almost everything is purified with blood, and without the shedding of blood
+  there is no forgiveness of sins. (ESV)
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; _but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
+
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
+
 3.17.4. There's some bonuses to suffering for Christ's sake and for endurance
 
 Not all Christian suffering is the same:
@@ -180962,6 +181142,9 @@ God can give eternal life. Jesus can give eternal life. Jesus is God, the Son of
 
   Mark 10:17 - And as he was setting out on his journey, a man ran up and knelt before him and asked him, Good
   Teacher, what must I do to inherit eternal life? (ESV)
+
+  Romans 9:5 - To them belong the patriarchs, and from their race, according to the flesh, is the Christ who is
+  God over all, blessed forever. Amen. (ESV)
 
 Jesus must be God because the Scripture says that salvation for man is impossible for man without God, and Jesus
 Christ is our Saviour. "God through Jesus Christ":
@@ -192622,6 +192805,9 @@ I believe that Jesus Christ is Jehovah, in that Jesus is God the Son, and the na
   John 1:1-3 - In the beginning was the Word, and the Word was with God, and the Word was God. He was in the
   beginning with God. All things were made through him, and without him was not any thing made that was made.
   (ESV)
+
+  Romans 9:5 - To them belong the patriarchs, and from their race, according to the flesh, is the Christ who is
+  God over all, blessed forever. Amen. (ESV)
 
 Song
 youtube.com: What A Beautiful Name - Hillsong Worship
@@ -261066,11 +261252,11 @@ does), and second to that is testifying before other human beings.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-04 Tue 20:42
+Date: 2026-08-07 Fri 20:27
 
 Author: Shane Mulligan
 
-Created: 2026-08-04 Tue 20:51
+Created: 2026-08-07 Fri 20:36
 
 Validate
 
