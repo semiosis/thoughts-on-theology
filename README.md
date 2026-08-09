@@ -720,7 +720,7 @@ Repenting again:
 
 > **[Acts 3:18-21](https://www.biblegateway.com/passage/?search=Acts%203%3A18-21&version=ESV)** - But what God foretold by the mouth of all the prophets, that his Christ would suffer, he thus fulfilled. Repent therefore, and turn again, that your sins may be blotted out, that times of refreshing may come from the presence of the Lord, and that he may send the Christ appointed for you, Jesus, whom heaven must receive until the time for restoring all the things about which God spoke by the mouth of his holy prophets long ago. (ESV)
 
-So having faith in God who justifies the ungodly, his faith is counted as righteousness. So we are talking about someone who has up until this point of coming to faith, has been ungodly, and they have recognised the fact that they have been ungodly, but in this moment they have faith in God and also they recognise their ungodliness. Someone who has not yet brought holiness to completion in the fear of God is in some way "ungodly". But that doesn't mean that they do not have faith. But we do need to bring holiness to completion, because "the wrath of God is revealed from heaven **against <ins>all ungodliness</ins> and unrighteousness of men**, who by their unrighteousness suppress the truth":
+So having faith in God who justifies the ungodly, their faith is counted as righteousness. So we are talking about someone who has up until this point of coming to faith, has been ungodly, and they have recognised the fact that they have been ungodly, but in this moment they have faith in God and also they recognise their ungodliness. Someone who has not yet brought holiness to completion in the fear of God is in some way "ungodly". But that doesn't mean that they do not have faith. But we do need to bring holiness to completion, because "the wrath of God is revealed from heaven **against <ins>all ungodliness</ins> and unrighteousness of men**, who by their unrighteousness suppress the truth":
 
 > **[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)** - Now to the one who works [(G2038 ergazomenō; is working for payment)](G2038), his wages are not counted as a gift but as his due. And to the one who does not work [(G2038 ergazomenō; is working for payment)](G2038) but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from [(G5565 chōris)](G5565) works [(G2041 ergōn)](G2041): (ESV)
 
@@ -14787,7 +14787,7 @@ The command to believe is a command to obedience, the obedience of faith.
 The command to obedience is to Jesus Christ who has fulfilled the law. It's still obedience to law but Jesus is our Master, not the old written code, so it's obedience to Jesus primarily.
 In other words, it's law-abiding obedience, but you can't obey the law and disobey Jesus at the same time.
 
-We're must be lawful to Christ (abiding in the 'law of Christ'). Though we don't commend ourselves for doing this. We should normally be doers of Christ's law. What's not done in faith is sin, after all. And whoever has no love for Christ has a curse upon them. And whoever hates their brother who they have seen can't love God who they have not seen. So our duty and normal walk should be doing Christ's commandments such as to have faith in Him and to love one another as He commanded:
+We must be lawful to Christ (abiding in the 'law of Christ'). Though we don't commend ourselves for doing this. We should normally be doers of Christ's law. What's not done in faith is sin, after all. And whoever has no love for Christ has a curse upon them. And whoever hates their brother who they have seen can't love God who they have not seen. So our duty and normal walk should be doing Christ's commandments such as to have faith in Him and to love one another as He commanded:
 
 > **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)** - To those outside the law I became as one outside the law (not being outside the law of God but under the law of [(G1772 ennomos; lawful to, law-abiding to, in the law of)](G1772) Christ) that I might win those outside the law. (ESV)
 
@@ -14883,7 +14883,7 @@ It's necessary to separate from idolators in order to be received by God and to 
 
 The blessing is for both the circumcised and the uncircumcised who have faith in God through Jesus Christ:
 
-> **Romans 4:5-9** - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man against whom the Lord will not count his sin. Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. (ESV)
+> **[Romans 4:5-9](https://www.biblegateway.com/passage/?search=Romans%204%3A5-9&version=ESV)** - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man against whom the Lord will not count his sin. Is this blessing then only for the circumcised, or also for the uncircumcised? We say that faith was counted to Abraham as righteousness. (ESV)
 
 While faith is commanded by Jesus, and is one of Jesus' commandments (Christ's law, Christ's torah), God still recognises when people have faith in Him regardless of whether they see it as 'law' or not:
 
@@ -15529,7 +15529,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgcce024a) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge83a2c1) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -16725,6 +16725,266 @@ We walk according to His commandments and by faith in Jesus.
 It's the standard of teaching that has been committed to us by the Apostles and but especially Jesus Christ Himself that we are to be obedient to:
 
 > **[Romans 6:16-18](https://www.biblegateway.com/passage/?search=Romans%206%3A16-18&version=ESV)** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
+
+The elect have soft hearts:
+
+> **[Romans 11:7-10](https://www.biblegateway.com/passage/?search=Romans%2011%3A7-10&version=ESV)** - What then? Israel failed to obtain what it was seeking. The **elect** obtained it, but **the rest were hardened**, as it is written, God gave them a spirit of stupor, eyes that would not see and ears that would not hear, down to this very day.  And David says, Let their table become a snare and a trap, a stumbling block and a retribution for them; let their eyes be darkened so that they cannot see, and bend their backs forever.
+
+A soft heart is needed to perceive and understand:
+
+> **[Mark 8:17](https://www.biblegateway.com/passage/?search=Mark%208%3A17&version=ESV)** - And Jesus, aware of this, said to them, Why are you discussing the fact that you have no bread? Do you not yet perceive or understand? Are your hearts hardened? (ESV)
+
+God can harden or soften hearts, but so can people harden and soften their own heart:
+
+> **[II Chronicles 36:12-13](https://www.biblegateway.com/passage/?search=2%20Chronicles%2036%3A12-13&version=ESV)** - He did what was evil in the sight of the Lord his God. He did not humble himself before Jeremiah the prophet, who spoke from the mouth of the Lord. He also rebelled against King Nebuchadnezzar, who had made him swear by God. He stiffened his neck and hardened his heart against turning to the Lord, the God of Israel. (ESV)
+
+> **[Hebrews 3:8](https://www.biblegateway.com/passage/?search=Hebrews%203%3A8&version=ESV)** - do not harden your hearts as in the rebellion, on the day of testing in the wilderness,
+
+Someone learning from Father God is coming to Jesus, and they will never hunger:
+
+> **[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)** - It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— (ESV)
+
+> **[II Timothy 3:14-15](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A14-15&version=ESV)** - But as for you, continue in what you have learned and have firmly believed, knowing from whom you learned it and how from childhood you have been acquainted with the sacred writings, which are able to make you wise for salvation through faith in Christ Jesus. (ESV)
+
+> **[John 5:37-42](https://www.biblegateway.com/passage/?search=John%205%3A37-42&version=ESV)** - And the Father who sent me has himself borne witness about me. His voice you have never heard, his form you have never seen, and you do not have his word abiding in you, for you do not believe the one whom he has sent. You search the Scriptures because you think that in them you have eternal life; and it is they that bear witness about me, yet you refuse to come to me that you may have life. I do not receive glory from people. But I know that you do not have the love of God within you. (ESV)
+
+> **[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)** - It is written in the Prophets, And they will all be taught by God. **Everyone who has heard and learned from the Father comes to me—** (ESV)
+
+We should keep coming to Jesus, keep learning from Jesus:
+
+> **[John 6:37](https://www.biblegateway.com/passage/?search=John%206%3A37&version=ESV)** - All that the Father gives me will come to me, and whoever comes to me I will never cast out. (ESV)
+
+> **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
+
+I believe that a person can be an "unregenerate" "believer" (**[Jude 1:20-21](https://www.biblegateway.com/passage/?search=Jude%201%3A20-21&version=ESV)**)
+who is coming to Jesus, learning from Father God (**[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)**),
+and then the law kills them at some point because they cant keep the law (**[Romans 7:8-11](https://www.biblegateway.com/passage/?search=Romans%207%3A8-11&version=ESV)**) and then they get born-again, given a new heart of flesh, and are regenerated (given a new spirit) and must go on as a believer after that. But for the regenerated believer with a new heart, they still do go on in faith, receiving correction from God (the circumcision of the heart), and continue in faith onwards. If a person is presently faithing in Jesus Christ then they are not committing sin because what is not done in faith is sin which is lawlessness. A person can't genuinely obey God without a love for God. So from a love for Jesus Christ, we are able to keep His commandments for us, and that is primarily a heart-attitude thing, and does not mean doing the works of the entire Mosaic law. Being a heart attitue thing, it means, for example, from the love of Jesus Christ who God is pleased with, loving one-another as God commands us, abstaining from bearing false witness, and abstaining from lust and covetousness, and from that faith in Jesus Christ doing the deeds of Jesus, good deeds. But we don't contrive the deeds for ourselves. God sets them up for the person who has faith in Jesus. Those who have the love of the truth in their heart are promised deeds, and promised fellowship and promised that the blood of Jesus Christ will cleanse them from sin:
+
+> **[Romans 7:8-11](https://www.biblegateway.com/passage/?search=Romans%207%3A8-11&version=ESV)** - But sin, seizing an opportunity through the commandment, produced in me all kinds of covetousness. Apart from the law, sin lies dead. I was once alive apart from the law, but when the commandment came, sin came alive and I died. The very commandment that promised life proved to be death to me. For sin, seizing an opportunity through the commandment, deceived me and through it killed me. (ESV)
+
+> **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
+
+But getting regenerated with a soft heart now, one goes on keeping the commandments of God that are for us to keep:
+
+> **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)** - For neither circumcision counts for anything nor uncircumcision, but keeping the commandments of God. (ESV)
+
+God doesn't condemn a person if they are learning from Him, coming to Jesus:
+
+> **[John 6:37](https://www.biblegateway.com/passage/?search=John%206%3A37&version=ESV)** - All that the Father gives me will come to me, and whoever comes to me I will never cast out. (ESV)
+
+God judges those outside the church and God is a fair judge of their deeds:
+
+> **[Romans 2:1-13](https://www.biblegateway.com/passage/?search=Romans%202%3A1-13&version=ESV)** - Therefore you have no excuse, O man, every one of you who judges. For in passing judgment on another you condemn yourself, because you, the judge, practice the very same things. We know that the judgment of God rightly falls on those who do such things. Do you suppose, O man—you who judge those who do such things and yet do them yourself—that you will escape the judgment of God? Or do you presume on the riches of his kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? But because of your hard and impenitent heart you are storing up wrath for yourself on the day of wrath when God's righteous judgment will be revealed. He will render to each one according to his works: to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for every human being who does evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality. For all who have sinned without the law will also perish without the law, and all who have sinned under the law will be judged by the law. For it is not the hearers of the law who are righteous before God, but the doers of the law who will be justified. (ESV)
+
+> **[I Corinthians 5:12-13](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A12-13&version=ESV)** - For what have I to do with judging outsiders? Is it not those inside the church whom you are to judge? God judges those outside. Purge the evil person from among you. (ESV)
+
+> **[I Peter 1:17-19](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A17-19&version=ESV)** - And if you call on him as Father who judges impartially according to each one's deeds, conduct yourselves with fear throughout the time of your exile, knowing that you were ransomed from the futile ways inherited from your forefathers, not with perishable things such as silver or gold, but with the precious blood of Christ, like that of a lamb without blemish or spot. (ESV)
+
+But if people reject Jesus, as in hate Him, God's righteousness revealed, they are condemned. They are condemned because anyone who hates Jesus hates Father God and Father God repays all who hate Him:
+
+> **[John 15:22-24](https://www.biblegateway.com/passage/?search=John%2015%3A22-24&version=ESV)** - If I had not come and spoken to them, they would not have been guilty of sin, but now they have no excuse for their sin. Whoever hates me hates my Father also. If I had not done among them the works that no one else did, they would not be guilty of sin, but now they have seen and hated both me and my Father. (ESV)
+
+> **[Deuteronomy 32:43](https://www.biblegateway.com/passage/?search=Deuteronomy%2032%3A43&version=ESV)** - Rejoice with him, O heavens; bow down to him, all gods, for he avenges the blood of his children and takes vengeance on his adversaries. He repays those who hate him and cleanses his people's land. (ESV)
+
+> **[Deuteronomy 7:9-10](https://www.biblegateway.com/passage/?search=Deuteronomy%207%3A9-10&version=ESV)** - Know therefore that the LORD your God is God, the faithful God who keeps covenant and steadfast love with those who love him and keep his commandments, to a thousand generations, and repays to their face those who hate him, by destroying them. He will not be slack with one who hates him. He will repay him to his face. (ESV)
+
+> **[I Chronicles 28:9](https://www.biblegateway.com/passage/?search=1%20Chronicles%2028%3A9&version=ESV)** - And you, Solomon my son, know the God of your father and serve him with a whole heart and with a willing mind, for the LORD searches all hearts and understands every plan and thought. If you seek him, he will be found by you, but if you forsake him, he will cast you off forever. (ESV)
+
+God is good all the time. A son of God practices righteousness from the love of righteousness (Jesus said, if God were your Father, you would love me):
+
+> **[John 8:39-42](https://www.biblegateway.com/passage/?search=John%208%3A39-42&version=ESV)** - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God. This is not what Abraham did. You are doing what your father did. They said to him, We were not born of sexual immorality. We have one Father—even God. Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
+
+The children of the devil practice unrighteousness:
+
+> **[John 8:43-47](https://www.biblegateway.com/passage/?search=John%208%3A43-47&version=ESV)** - Why do you not understand what I say? It is because you cannot bear to hear my word. You are of your father the devil, and your will is to do your father's desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. But because I tell the truth, you do not believe me. Which one of you convicts me of sin? If I tell the truth, why do you not believe me? Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of God. (ESV)
+
+> **[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV),8,9** - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. **The reason the Son of God appeared was to destroy the works of the devil.** No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
+
+> **[1 John 3:12](https://www.biblegateway.com/passage/?search=1%20John%203%3A12&version=ESV)** - We should not be like Cain, who was of the evil one and murdered his brother. And why did he murder him? **Because his own deeds were evil and his brother's righteous.** (ESV)
+
+> **[Matthew 13:38-43](https://www.biblegateway.com/passage/?search=Matthew%2013%3A38-43&version=ESV)** - The field is the world, and the good seed is the children of the kingdom. The weeds are the sons of the evil one, and the enemy who sowed them is the devil. The harvest is the close of the age, and the reapers are angels. Just as the weeds are gathered and burned with fire, so will it be at the close of the age. The Son of Man will send his angels, and they will gather out of his kingdom all causes of sin and all law-breakers <ins>[(G458 anomian; wicked i.e. those who hate righteousness, those who prefer evil to Jesus Christ)](G458)</ins>, and throw them into the fiery furnace. In that place there will be weeping and gnashing of teeth. Then the righteous will shine like the sun in the kingdom of their Father. He who has ears, let him hear. (ESV)
+
+If a person really thinks that Jesus was evil, then they are condemned, and they must repent (change their mind and come to faith in Jesus) or they will perish:
+
+> **[John 15:22-24](https://www.biblegateway.com/passage/?search=John%2015%3A22-24&version=ESV)** - If I had not come and spoken to them, they would not have been guilty of sin, but now they have no excuse for their sin. Whoever hates me hates my Father also. If I had not done among them the works that no one else did, they would not be guilty of sin, but now they have seen and hated both me and my Father. (ESV)
+
+> **[Mark 16:16](https://www.biblegateway.com/passage/?search=Mark%2016%3A16&version=ESV)** - Whoever believes and is baptized will be saved, but whoever does not believe will be condemned. (ESV)
+
+> **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes in him is not condemned [(G2919 krinetai: is judged V-PIM/P-3S)](G2919), but whoever does not believe is condemned already [(G2919 kekritai: has been judged V-RIM/P-3S)](G2919), because he has not believed in the name of the only Son of God. (ESV)
+
+> **[John 12:47-48](https://www.biblegateway.com/passage/?search=John%2012%3A47-48&version=ESV)** - If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. (ESV)
+
+> **[Luke 13:3](https://www.biblegateway.com/passage/?search=Luke%2013%3A3&version=ESV)** - No, I tell you; but unless you repent, you will all likewise perish. (ESV)
+
+If a person blasphemes the Son of Man, they need to repent. They can be forgiven for it but they need to repent. But I'm trying to make the point that Jesus is God's righteousness revealed and we need to be in agreement with God about Him, and Father God is well pleased with Jesus Christ His Son:
+
+> **[Matthew 12:31-33](https://www.biblegateway.com/passage/?search=Matthew%2012%3A31-33&version=ESV)** - Therefore I tell you, every sin and blasphemy will be forgiven people, but the blasphemy against the Spirit will not be forgiven. And whoever speaks a word against the Son of Man will be forgiven, but whoever speaks against the Holy Spirit will not be forgiven, either in this age or in the age to come. Either make the tree good and its fruit good, or make the tree bad and its fruit bad, for the tree is known by its fruit. (ESV)
+
+> **[Mark 3:28-30](https://www.biblegateway.com/passage/?search=Mark%203%3A28-30&version=ESV)** - Truly, I say to you, all sins will be forgiven the children of man, and whatever blasphemies they utter, but whoever blasphemes against the Holy Spirit never has forgiveness, but is guilty of an eternal sin— for they had said, He has an unclean spirit. (ESV)
+
+> [Matthew 17:5](https://www.biblegateway.com/passage/?search=Matthew%2017%3A5&version=ESV) - He was still speaking when, behold, a  bright cloud overshadowed them, and a voice from the cloud said, This is my beloved Son, with whom I am well pleased; listen to him. (ESV)
+
+Since **all people** will be drawn to Jesus, everyone ultimately must either have faith in Jesus or reject Him:
+
+> **[John 12:31-32](https://www.biblegateway.com/passage/?search=John%2012%3A31-32&version=ESV)** - Now is the judgment of this world; now will the ruler of this world be cast out. And I, when I am lifted up from the earth, will draw all people to myself. (ESV)
+
+God's wrath is coming for the ungodly who remain ungodly and reject Jesus (i.e. The wrath of God comes for the ungodly who are not being cleaned up by faith in Jesus Christ):
+
+> **[Romans 1:18-25](https://www.biblegateway.com/passage/?search=Romans%201%3A18-25&version=ESV)** - For the wrath of God is revealed from heaven **against all ungodliness and unrighteousness of men**, who by their unrighteousness suppress the truth. For what can be known about God is plain to them, because God has shown it to them. For his invisible attributes, namely, his eternal power and divine nature, have been clearly perceived, ever since the creation of the world, in the things that have been made. So they are without excuse. For although they knew God, they did not honor him as God or give thanks to him, but they became futile in their thinking, and their foolish hearts were darkened. Claiming to be wise, they became fools, and exchanged the glory of the immortal God for images resembling mortal man and birds and animals and reptiles. Therefore God gave them up in the lusts of their hearts to impurity, to the dishonoring of their bodies among themselves, because they exchanged the truth about God for a lie and worshiped and served the creature rather than the Creator, who is blessed forever! Amen. (ESV)
+
+Ungodliness is because of sinful desire, so what we need is to change to be those who desire God rather than desire evil. So we should love Jesus:
+
+> **[II Peter 1:3-9](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A3-9&version=ESV)** - His divine power has granted to us all things that pertain to life and godliness, through the knowledge of him who called us to his own glory and excellence, by which he has granted to us his precious and very great promises, so that through them you may become partakers of the divine nature, having escaped from the corruption that is in the world because of sinful desire. For this very reason, make every effort to supplement your faith with virtue, and virtue with knowledge, and knowledge with self-control, and self-control with steadfastness, and steadfastness with godliness, and godliness with brotherly affection, and brotherly affection with love. For if these qualities are yours and are increasing, they keep you from being ineffective or unfruitful in the knowledge of our Lord Jesus Christ. For whoever lacks these qualities is so nearsighted that he is blind, having forgotten that he was cleansed from his former sins. (ESV)
+
+Those who do wicked things do it from a hatred of the light, and having a hatred of the light, they do not learn from God, and do not come to Jesus who is the light.
+
+If we love Jesus Christ in preference to other things, we can learn from Him and be cleaned up. From the love of God we can learn from God and come to Jesus and practice good deeds. If we have faith in Jesus Christ then we will do His deeds:
+
+> **[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)** - **For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him.** Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light **because their deeds were evil.** For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does [(G4160 poiōn; doing)](G4160) what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+The promises are to those who love God, so we have to love God rather than sin:
+
+> **[II Corinthians 6:17-18](https://www.biblegateway.com/passage/?search=2%20Corinthians%206%3A17-18&version=ESV),7:1** - Therefore go out from their midst, and be separate from them, says the Lord, and touch no unclean thing; then I will welcome you, and I will be a father to you, and you shall be sons and daughters to me, says the Lord Almighty. Since we have these promises, beloved, let us cleanse ourselves from every defilement of body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+> **[II Peter 1:3-9](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A3-9&version=ESV)** - His divine power has granted to us all things that pertain to life and godliness, through the knowledge of him who called us to his own glory and excellence, by which he has granted to us his precious and very great promises, so that through them you may become partakers of the divine nature, having escaped from the corruption that is in the world because of sinful desire. For this very reason, make every effort to supplement your faith with virtue, and virtue with knowledge, and knowledge with self-control, and self-control with steadfastness, and steadfastness with godliness, and godliness with brotherly affection, and brotherly affection with love. For if these qualities are yours and are increasing, they keep you from being ineffective or unfruitful in the knowledge of our Lord Jesus Christ. For whoever lacks these qualities is so nearsighted that he is blind, having forgotten that he was cleansed from his former sins. (ESV)
+
+But God's word promises that those who seek Him will find Him:
+
+> **[Matthew 7:7](https://www.biblegateway.com/passage/?search=Matthew%207%3A7&version=ESV)** - Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you. (ESV)
+
+> **[I Chronicles 28:9](https://www.biblegateway.com/passage/?search=1%20Chronicles%2028%3A9&version=ESV)** - And you, Solomon my son, know the God of your father and serve him with a whole heart and with a willing mind, for the LORD searches all hearts and understands every plan and thought. If you seek him, he will be found by you, but if you forsake him, he will cast you off forever. (ESV)
+
+> **[Acts 17:24-28](https://www.biblegateway.com/passage/?search=Acts%2017%3A24-28&version=ESV)** - The God who made the world and everything in it, being Lord of heaven and earth, does not live in temples made by man, nor is he served by human hands, as though he needed anything, since he himself gives to all mankind life and breath and everything. And he made from one man every nation of mankind to live on all the face of the earth, having determined allotted periods and the boundaries of their dwelling place, that they should seek God, in the hope that they might feel their way toward him and find him. Yet he is actually not far from each one of us, for In him we live and move and have our being; as even some of your own poets have said, For we are indeed his offspring. (ESV)
+
+It's not too late to seek God. But we need to not be deceived so we need the love of the truth, the love of God, the love of God's word, the love of God's precepts, the love of God's children:
+
+> **[II Thessalonians 2:1-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A1-12&version=ESV)** - Now concerning the coming of our Lord Jesus Christ and our being gathered together to him, we ask you, brothers, not to be quickly shaken in mind or alarmed, either by a spirit or a spoken word, or a letter seeming to be from us, to the effect that the day of the Lord has come. Let no one deceive you in any way. For that day will not come, unless the rebellion comes first, and the man of lawlessness is revealed, the son of destruction, who opposes and exalts himself against every so-called god or object of worship, so that he takes his seat in the temple of God, proclaiming himself to be God. Do you not remember that when I was still with you I told you these things? And you know what is restraining him now so that he may be revealed in his time. For the mystery of lawlessness is already at work. Only he who now restrains it will do so until he is out of the way. And then the lawless one will be revealed, whom the Lord Jesus will kill with the breath of his mouth and bring to nothing by the appearance of his coming. The coming of the lawless one is by the activity of Satan with all power and false signs and wonders, and with <ins>all wicked deception for those who are **perishing**, because they refused to love the truth and so be saved.</ins> Therefore God sends them a strong delusion, so that they may believe what is false, in order that all may be condemned who did not believe the truth but had pleasure in unrighteousness. (ESV)
+
+> **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)** - The ones along the path are those who have heard. Then the devil comes and takes away the word from their hearts, so that they may not believe and be saved. (ESV)
+
+So having faith in God who justifies the ungodly, their faith is counted as righteousness. So we are talking about someone who has up until this point of coming to faith, has been ungodly, and they have recognised the fact that they have been ungodly, but in this moment they have faith in God and also they recognise their ungodliness. Someone who has not yet brought holiness to completion in the fear of God is in some way "ungodly". But that doesn't mean that they do not have faith. But we do need to bring holiness to completion, because "the wrath of God is revealed from heaven **against <ins>all ungodliness</ins> and unrighteousness of men**, who by their unrighteousness suppress the truth":
+
+> **[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)** - Now to the one who works [(G2038 ergazomenō; is working for payment)](G2038), his wages are not counted as a gift but as his due. And to the one who does not work [(G2038 ergazomenō; is working for payment)](G2038) but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from [(G5565 chōris)](G5565) works [(G2041 ergōn)](G2041): (ESV)
+
+> **[Romans 1:18-25](https://www.biblegateway.com/passage/?search=Romans%201%3A18-25&version=ESV)** - For the wrath of God is revealed from heaven **against all ungodliness and unrighteousness of men**, who by their unrighteousness suppress the truth. For what can be known about God is plain to them, because God has shown it to them. For his invisible attributes, namely, his eternal power and divine nature, have been clearly perceived, ever since the creation of the world, in the things that have been made. So they are without excuse. For although they knew God, they did not honor him as God or give thanks to him, but they became futile in their thinking, and their foolish hearts were darkened. Claiming to be wise, they became fools, and exchanged the glory of the immortal God for images resembling mortal man and birds and animals and reptiles. Therefore God gave them up in the lusts of their hearts to impurity, to the dishonoring of their bodies among themselves, because they exchanged the truth about God for a lie and worshiped and served the creature rather than the Creator, who is blessed forever! Amen. (ESV)
+
+> **[Colossians 3:1-10](https://www.biblegateway.com/passage/?search=Colossians%203%3A1-10&version=ESV)** - If then you have been raised with Christ, seek the things that are above, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. **On account of these the wrath of God is coming.** In these you too once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge after the image of its creator. (ESV)
+
+But if we are believing in Jesus Christ then we will not *remain* in darkness. And since those who hate their brother are in darkness (**[I John 2:9-10](https://www.biblegateway.com/passage/?search=1%20John%202%3A9-10&version=ESV)**), then those having faith in Jesus will be sanctified by the truth into loving God with their whole heart which includes loving God's children. A person believing in the name of Jesus Christ receives forgiveness for former sin and has the right to become a child of God, and children of God walk in the light with a love for the truth, a love for God, and from the heart of love for God, also love God's children. Their family do the will of God the father of Jesus Christ:
+
+> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+> **[James 1:22](https://www.biblegateway.com/passage/?search=James%201%3A22&version=ESV)** - But be doers of the word, and not hearers only, deceiving yourselves. (ESV)
+
+> **[Mark 3:34-35](https://www.biblegateway.com/passage/?search=Mark%203%3A34-35&version=ESV)** - And looking about at those who sat around him, he said, Here are my mother and my brothers! Whoever does the will of God, he is my brother and sister and mother. (ESV)
+
+> **[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)** - As for that in the good soil, they are those who, hearing the word, hold it fast in an honest and good heart, and bear fruit with patience. (ESV)
+
+> **[I John 2:17-29](https://www.biblegateway.com/passage/?search=1%20John%202%3A17-29&version=ESV)** - And the world is passing away along with its desires, but whoever does the will of God abides forever. Children, it is the last hour, and as you have heard that antichrist is coming, so now many antichrists have come. Therefore we know that it is the last hour. **They went out from us, but they were not of us; for if they had been of us, they would have continued with us**. But they went out, that it might become plain that they all are not of us. But you have been anointed by the Holy One, and you all have knowledge. I write to you, not because you do not know the truth, but because you know it, and because no lie is of the truth. Who is the liar but he who denies that Jesus is the Christ? This is the antichrist, he who denies the Father and the Son. No one who denies the Son has the Father. Whoever confesses the Son has the Father also. Let what you heard from the beginning abide in you. If what you heard from the beginning abides in you, then you too will abide in the Son and in the Father. And this is the promise that he made to us—eternal life. I write these things to you about those who are trying to deceive you. But the anointing that you received from him abides in you, and **you have no need that anyone should teach you**. But as **his anointing teaches you about everything—and is true and is no lie**, just as it has taught you—abide in him. And now, little children, abide in him, so that when he appears we may have confidence and not shrink from him in shame at his coming. If you know that he is righteous, you may be sure that everyone who practices righteousness has been born of him. (ESV)
+
+Former sin being forgiven through faith in Jesus Christ, the Christian must now continue walking by faith in Jesus Christ as what is not done in faith is sin which is lawlessness. So a person isn't sanctified by sinning, but rather by continuing on in the love of the truth, by faith and obedience to Jesus Christ, and the type of faith in Jesus that a person is sanctified by having is the type of faith that leads to producing good deeds done from faith in Jesus:
+
+> **[II Peter 1:3-9](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A3-9&version=ESV)** - His divine power has granted to us all things that pertain to life and godliness, through the knowledge of him who called us to his own glory and excellence, by which he has granted to us his precious and very great promises, so that through them you may become partakers of the divine nature, having escaped from the corruption that is in the world because of sinful desire. For this very reason, make every effort to supplement your faith with virtue, and virtue with knowledge, and knowledge with self-control, and self-control with steadfastness, and steadfastness with godliness, and godliness with brotherly affection, and brotherly affection with love. For if these qualities are yours and are increasing, they keep you from being ineffective or unfruitful in the knowledge of our Lord Jesus Christ. For whoever lacks these qualities is so nearsighted that he is blind, having forgotten that he was cleansed from his former sins. (ESV)
+
+God helps us to put to death the deeds of the sinful flesh and we hold out faith in Jesus:
+
+> **[Colossians 3:1-10](https://www.biblegateway.com/passage/?search=Colossians%203%3A1-10&version=ESV)** - If then you have been raised with Christ, seek the things that are above, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. **On account of these the wrath of God is coming.** In these you too once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge after the image of its creator. (ESV)
+
+For this reason did Jesus Christ the Son of God appear, to destroy the works of the devil. The true gospel of Jesus Christ saves a preson from committing sin. It is not committing sin to confess that Jesus is the Christ the Son of God because the one born of God confesses that Jesus is the Christ and sinneth not (**[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)**). And the Christian from there needs to continue in faith. We are not those who shrink back and are destroyed, but those who continue walking by faith to the preservation of our souls:
+
+> **[John 12:46](https://www.biblegateway.com/passage/?search=John%2012%3A46&version=ESV)** - I have come into the world as light, so that whoever believes in me may not remain in darkness. (ESV)
+
+> **[I John 2:9-10](https://www.biblegateway.com/passage/?search=1%20John%202%3A9-10&version=ESV)** - Whoever says he is in the light and hates his brother is still in darkness. Whoever loves his brother abides in the light, and in him there is no cause for stumbling. (ESV)
+
+> **[John 1:12](https://www.biblegateway.com/passage/?search=John%201%3A12&version=ESV)** - But **to all who did receive him, who believed in his name, he gave the right to become children of God**, (ESV)
+
+> **[Matthew 12:50](https://www.biblegateway.com/passage/?search=Matthew%2012%3A50&version=ESV)** - For whoever does the will of my Father in heaven is my brother and sister and mother. (ESV)
+
+> **[I John 3:8](https://www.biblegateway.com/passage/?search=1%20John%203%3A8&version=ESV)** - Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. (ESV)
+
+> **[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)** - We know that everyone who has been born of God does not keep on sinning, but he who was born of God protects him, and the evil one does not touch him. (ESV)
+
+And we are perfected through obedience to the Truth (Jesus) and faith in Jesus as His Spirit sanctifies us:
+
+> **[I Peter 1:22-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22-25&version=ESV)** - Having purified your souls by your **obedience to the truth for a sincere brotherly love**, <ins>love one another earnestly **from a pure heart**,</ins> since **you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God**; for All flesh is like grass and all its glory like the flower of grass. The grass withers, and the flower falls, but **the word of the Lord remains forever. And this word is the good news that was preached to you.** (ESV)
+
+> **[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)** - And by this we know that we have come to know him, if we keep his commandments. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure that we are in him: whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
+
+Jesus has many commandments but among the most important is to believe who He is: Son of God, Christ, Messiah. Otherwise, as He said&#x2026;
+
+> **[John 8:24](https://www.biblegateway.com/passage/?search=John%208%3A24&version=ESV)** - I told you that you would die in your sins, for unless you believe that I am he you will die in your sins. (ESV)
+
+> **[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV)** - Let not your hearts be troubled. Believe in God; believe also in me. (ESV)
+
+> **[John 15:9-14](https://www.biblegateway.com/passage/?search=John%2015%3A9-14&version=ESV)** - As the Father has loved me, so have I loved you. Abide in my love. If you keep my commandments, you will abide in my love, just as I have kept my Father's commandments and abide in his love. **These things I have spoken to you, that my joy may be in you, and that your joy may be full.** This is my commandment, that you love one another as I have loved you. Greater love has no one than this, that someone lays down his life for his friends. **You are my friends if you do what I command you.** (ESV)
+
+And we can't love God with our whole heart if we don't love our family in Christ:
+
+> **[I John 3:14](https://www.biblegateway.com/passage/?search=1%20John%203%3A14&version=ESV)** - We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. (ESV)
+
+We should just do good to everyone, even to those who hate us:
+
+> **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
+
+Like the Samaritan in this story, we should just do good to people:
+
+> **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him, You have answered correctly; do this, and you will live. But he, desiring to justify himself, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, he had compassion. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, Take care of him, and whatever more you spend, I will repay you when I come back. Which of these three, do you think, proved to be a neighbor to the man who fell among the robbers? He said, The one who showed him mercy. And Jesus said to him, You go, and do likewise. (ESV)
+
+> **[Hebrews 13:2](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A2&version=ESV)** - Do not neglect to show hospitality to strangers, for thereby some have entertained angels unawares. (ESV)
+
+And when God sees, He remembers. The person may not know **when** they served Jesus' family in their hour of need. The Bible does teach to do good to all:
+
+> **[Matthew 25:31-40](https://www.biblegateway.com/passage/?search=Matthew%2025%3A31-40&version=ESV)** - When the Son of Man comes in his glory, and all the angels with him, then he will sit on his glorious throne. Before him will be gathered all the nations, and he will separate people one from another as a shepherd separates the sheep from the goats. And he will place the sheep on his right, but the goats on the left. Then the King will say to those on his right, Come, you who are blessed by my Father, inherit the kingdom prepared for you from the foundation of the world. For I was hungry and you gave me food, I was thirsty and you gave me drink, I was a stranger and you welcomed me, <ins>I was naked and you clothed me, I was sick and you visited me, I was in prison and you came to me.</ins> Then the righteous will answer him, saying, Lord, when did we see you hungry and feed you, or thirsty and give you drink? And when did we see you a stranger and welcome you, or naked and clothe you? And when did we see you sick or in prison and visit you? And the King will answer them, Truly, I say to you, <ins>as you did it to one of the least of these my brothers, you did it to me.</ins>
+
+To have the love of God completed in us we need to be those who love others as we have been loved by God. To love God in a complete way involves not simply loving His word but loving His children:
+
+> **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
+
+> **[I John 4:16-17](https://www.biblegateway.com/passage/?search=1%20John%204%3A16-17&version=ESV)** - So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
+
+> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect [(G5046 teleioi; complete, mature)](G5046), as your heavenly Father is perfect. (ESV)
+
+Father God's commandment is for us to have faith in Jesus Christ's name and to love one-another as He has commanded:
+
+> **[I John 3:23](https://www.biblegateway.com/passage/?search=1%20John%203%3A23&version=ESV)** - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. (ESV)
+
+> **[John 16:25-28](https://www.biblegateway.com/passage/?search=John%2016%3A25-28&version=ESV)** - I have said these things to you in figures of speech. The hour is coming when I will no longer speak to you in figures of speech but will tell you plainly about the Father. In that day you will ask in my name, and I do not say to you that I will ask the Father on your behalf; for **the Father himself loves [(G5368 philei)](G5368) you, <ins>because you have loved [(G5368 pephilēkate)](G5368) me and have believed that I came from God.</ins>** I came from the Father and have come into the world, and now I am leaving the world and going to the Father.
+
+Real faith loves the truth rather than hates the truth and Jesus is the Truth and Father God and Holy Spirit are also the Truth. And God's word is the truth:
+
+> **[I Corinthians 13:1-13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A1-13&version=ESV)** - If I speak in the tongues of men and of angels, but have not love, I am a noisy gong or a clanging cymbal. And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have all faith, so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I deliver up my body to be burned, but have not love, I gain nothing. Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but rejoices with the truth. Love bears all things, believes all things, hopes all things, endures all things. Love never ends. As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. For we know in part and we prophesy in part, but when the perfect comes, the partial will pass away. When I was a child, I spoke like a child, I thought like a child, I reasoned like a child. When I became a man, I gave up childish ways. For now we see in a mirror dimly, but then face to face. Now I know in part; then I shall know fully, even as I have been fully known. So now faith, hope, and love abide, these three; but the greatest [(G3173 meizōn; [the] greatest, most preceeding)](G3173) of these is love. (ESV)
+
+A person gets born of God through having faith in the gospel of Jesus Christ:
+
+> **[I John 5:1-6](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-6&version=ESV)** - **Everyone who believes that Jesus is the Christ has been born of God**, and **everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of God, when we love God and obey his commandments**. For this is the love of God, that we keep his commandments. And his commandments are not burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has overcome the world—our faith. Who is it that overcomes the world except the one who believes that Jesus is the Son of God? This is he who came by water and blood—Jesus Christ; not by the water only but by the water and the blood. And the Spirit is the one who testifies, because **the Spirit is the truth.** (ESV)
+
+> **[James 1:21-25](https://www.biblegateway.com/passage/?search=James%201%3A21-25&version=ESV)** - Therefore put away all filthiness and rampant wickedness and receive with meekness the implanted word, which is able to save your souls. But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. But the one who looks into the perfect law, the law of liberty, and perseveres, being no hearer who forgets but a doer who acts, he will be blessed in his doing. (ESV)
+
+> **[John 6:63](https://www.biblegateway.com/passage/?search=John%206%3A63&version=ESV)** - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are spirit and life. (ESV)
+
+By faith in Jesus Christ (trusting Jesus' words), we do what Jesus says. The reality is that a born-again person does not have a father on the earth. When a person is born-again of the spirit and they call God their own father out of a loving faith in Jesus Christ, it's true in an absolute sense. No-one else is that person's father:
+
+> **[Matthew 23:9](https://www.biblegateway.com/passage/?search=Matthew%2023%3A9&version=ESV)** - And **call no man your father on earth**, for you have one Father, who is in heaven. (ESV)
+
+Faith in Jesus Christ brings us into being law-abiding by the law of faith in Christ.
+
+We must be lawful to Christ (abiding in the 'law of Christ'). Though we don't commend ourselves for doing this. We should normally be doers of Christ's law. What's not done in faith is sin, after all. And whoever has no love for Christ has a curse upon them. And whoever hates their brother who they have seen can't love God who they have not seen. So our duty and normal walk should be doing Christ's commandments such as to have faith in Him and to love one another as He commanded:
+
+> **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)** - To those outside the law I became as one outside the law (not being outside the law of God but under the law of [(G1772 ennomos; lawful to, law-abiding to, in the law of)](G1772) Christ) that I might win those outside the law. (ESV)
+
+The word "ennomos" used in I Cor 9:21 for being "law-abiding" is closely related to the word "onnomō" which is used in Acts 19:39:
+
+> **[Acts 19:39](https://www.biblegateway.com/passage/?search=Acts%2019%3A39&version=ESV)** - But if you want anything beyond this, it shall be settled in the lawful [(G1772 ennomō lawful)](G1772) assembly [(G1577 ekklēsia; assembly)](G1577). (NASB)
+
+Jesus Christ is the righteousness that God has revealed who we must love first and foremost as Christians but loving Him includes loving His family and serving Him involves serving His family. No Christian can exceed God's righteousness and no Christian can take the place of Christ who is the head of His body the church (**[Colossians 1:15-18](https://www.biblegateway.com/passage/?search=Colossians%201%3A15-18&version=ESV)**). No messenger is greater than the one who sent them (**[John 13:12-16](https://www.biblegateway.com/passage/?search=John%2013%3A12-16&version=ESV)**):
+
+> **[Romans 3:23-26](https://www.biblegateway.com/passage/?search=Romans%203%3A23-26&version=ESV)** - for all have sinned and fall short of the glory of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. **This was to show God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that he might be just and the justifier of the one who has faith in Jesus.** (ESV)
+
+> **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
+
+> **[I John 4:19-21](https://www.biblegateway.com/passage/?search=1%20John%204%3A19-21&version=ESV)** - We love because he first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: **whoever loves God must also love his brother**. (ESV)
 
 
 ## Entering into God's rest
@@ -20794,7 +21054,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org0de1a92).
+I didn't know but it turned out to be the last day of my [sentence](#orgb3a5196).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -43927,6 +44187,20 @@ Cleaned up from sin by having faith in the truth.
     7   itself:--assurance, belief, believe, faith, fidelity.
     8   see GREEK for 3982
 
+The elect have soft hearts:
+
+> **[Romans 11:7-10](https://www.biblegateway.com/passage/?search=Romans%2011%3A7-10&version=ESV)** - What then? Israel failed to obtain what it was seeking. The **elect** obtained it, but **the rest were hardened**, as it is written, God gave them a spirit of stupor, eyes that would not see and ears that would not hear, down to this very day.  And David says, Let their table become a snare and a trap, a stumbling block and a retribution for them; let their eyes be darkened so that they cannot see, and bend their backs forever.
+
+A soft heart is needed to perceive and understand:
+
+> **[Mark 8:17](https://www.biblegateway.com/passage/?search=Mark%208%3A17&version=ESV)** - And Jesus, aware of this, said to them, Why are you discussing the fact that you have no bread? Do you not yet perceive or understand? Are your hearts hardened? (ESV)
+
+God can harden or soften hearts, but so can people harden and soften their own heart:
+
+> **[II Chronicles 36:12-13](https://www.biblegateway.com/passage/?search=2%20Chronicles%2036%3A12-13&version=ESV)** - He did what was evil in the sight of the Lord his God. He did not humble himself before Jeremiah the prophet, who spoke from the mouth of the Lord. He also rebelled against King Nebuchadnezzar, who had made him swear by God. He stiffened his neck and hardened his heart against turning to the Lord, the God of Israel. (ESV)
+
+> **[Hebrews 3:8](https://www.biblegateway.com/passage/?search=Hebrews%203%3A8&version=ESV)** - do not harden your hearts as in the rebellion, on the day of testing in the wilderness,
+
 God opens/softens our hearts to be receptive or hardens them to be unreceptive to what is said to us, but from our angle, we still receive or reject voluntarily. God guides and leads we're still asked to seek, receive, trust, obey and follow Jesus Christ and His teachings. Yes, salvation is by grace through faith, and it's a free gift, but we still trust and obey Jesus to be saved:
 
 > **[Acts 16:13-14](https://www.biblegateway.com/passage/?search=Acts%2016%3A13-14&version=ESV)** - And on the Sabbath day we went outside the gate to the riverside, where we supposed there was a place of prayer, and we sat down and spoke to the women who had come together. One who heard us was a woman named Lydia, from the city of Thyatira, a seller of purple goods, who was a worshiper of God. The Lord opened her heart to pay attention to what was said by Paul. (ESV)
@@ -43959,6 +44233,18 @@ I affirm that even after regeneration and being healed, corruption has remained 
 -   I need to just focus on Jesus more
 
 So sanctification has continued for me after being regenerated. Being sanctified by the Truth by faith in Jesus Christ is and has been a fight.
+
+I believe that a person can be an "unregenerate" "believer" (**[Jude 1:20-21](https://www.biblegateway.com/passage/?search=Jude%201%3A20-21&version=ESV)**)
+who is coming to Jesus, learning from Father God (**[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)**),
+and then the law kills them at some point because they cant keep the law (**[Romans 7:8-11](https://www.biblegateway.com/passage/?search=Romans%207%3A8-11&version=ESV)**) and then they get born-again, given a new heart of flesh, and are regenerated (given a new spirit) and must go on as a believer after that. But for the regenerated believer with a new heart, they still do go on in faith, receiving correction from God (the circumcision of the heart), and continue in faith onwards. If a person is presently faithing in Jesus Christ then they are not committing sin because what is not done in faith is sin which is lawlessness. A person can't genuinely obey God without a love for God. So from a love for Jesus Christ, we are able to keep His commandments for us, and that is primarily a heart-attitude thing, and does not mean doing the works of the entire Mosaic law. Being a heart attitue thing, it means, for example, from the love of Jesus Christ who God is pleased with, loving one-another as God commands us, abstaining from bearing false witness, and abstaining from lust and covetousness, and from that faith in Jesus Christ doing the deeds of Jesus, good deeds. But we don't contrive the deeds for ourselves. God sets them up for the person who has faith in Jesus. Those who have the love of the truth in their heart are promised deeds, and promised fellowship and promised that the blood of Jesus Christ will cleanse them from sin:
+
+> **[Romans 7:8-11](https://www.biblegateway.com/passage/?search=Romans%207%3A8-11&version=ESV)** - But sin, seizing an opportunity through the commandment, produced in me all kinds of covetousness. Apart from the law, sin lies dead. I was once alive apart from the law, but when the commandment came, sin came alive and I died. The very commandment that promised life proved to be death to me. For sin, seizing an opportunity through the commandment, deceived me and through it killed me. (ESV)
+
+> **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
+
+But getting regenerated with a soft heart now, one goes on keeping the commandments of God that are for us to keep:
+
+> **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)** - For neither circumcision counts for anything nor uncircumcision, but keeping the commandments of God. (ESV)
 
 But for the person born of God, they have died to sin, it no longer has a legal hold over them, they cannot keep on doing it, they absolutely hate the sin and we fight against it. We are being sanctified as we come into alignment with the Truth, walking in the light, believing and obeying the Truth, Word of God.
 
@@ -44973,7 +45259,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org8171b58)
+See: [33.4.1](#org1eef197)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -61021,6 +61307,21 @@ I believe that while John 3:33-34 speaks of Jesus Christ there is also truth to 
 
 > **[John 13:12-16](https://www.biblegateway.com/passage/?search=John%2013%3A12-16&version=ESV)** - When he had washed their feet and put on his outer garments and resumed his place, he said to them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am. If **I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have given you an example, that you also should do just as I have done to you.** Truly, truly, I say to you, **a servant is not greater than his master**, nor is a messenger greater than the one who sent him. (ESV)
 
+-   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-08-09 Sun 09:21&gt;</span></span>:** Jesus Christ is the Son of God who has come into the world in the flesh (God's word become flesh, not merely a spirit) from God.
+    Jesus Christ was conceived by the Holy Spirit and born of the virgin Mary.
+    Jesus died on a tree and God rose Him from the dead and is now seated at the right hand of the God on High, reigning as LORD over all creation.
+    When all things are subjected to Jesus Christ, then the Son Himself will also be subjected to Father God.
+    
+    > **[I Corinthians 15:21-28](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A21-28&version=ESV)** - For as by a man came death, by a man has come also the resurrection of the dead. For as in Adam all die, so also in Christ shall all be made alive. But each in his own order: Christ the firstfruits, then at his coming those who belong to Christ. Then comes the end, when he delivers the kingdom to God the Father after destroying every rule and every authority and power. For he must reign until he has put all his enemies under his feet. The last enemy to be destroyed is death. For God has put all things in subjection under his feet. But when it says, all things are put in subjection, it is plain that he is excepted who put all things in subjection under him. When all things are subjected to him, then the Son himself will also be subjected to him who put all things in subjection under him, that God may be all in all. (ESV)
+    
+    > **[I John 4:2-7](https://www.biblegateway.com/passage/?search=1%20John%204%3A2-7&version=ESV)** - By this you know the Spirit of God: every spirit that confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already. Little children, <ins>you are from God and have overcome them, for **he who is in you is greater than he who is in the world.** They are from the world; therefore they speak from the world, and the world listens to them. We are from God. Whoever knows God listens to us; whoever is not from God does not listen to us.</ins> By this we know the Spirit of truth and the spirit of error. Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
+    
+    > **[Acts 7:55-57](https://www.biblegateway.com/passage/?search=Acts%207%3A55-57&version=ESV)** - But he, full of the Holy Spirit, gazed into heaven and saw the glory of God, and Jesus standing at the right hand of God. And he said, Behold, I see the heavens opened, and the Son of Man standing at the right hand of God. But they cried out with a loud voice and stopped their ears and rushed together at him. (ESV)
+    
+    > **[John 1:1-14](https://www.biblegateway.com/passage/?search=John%201%3A1-14&version=ESV)** - <ins>In the beginning was the Word, and the Word was with God, and the Word was God. He was in the beginning with God. All things were made through him, and without him was not any thing made that was made.</ins> In him was life, and the life was the light of men. The light shines in the darkness, and the darkness has not overcome it. There was a man sent from God, whose name was John. He came as a witness, to bear witness about the light, that all might believe through him. He was not the light, but came to bear witness about the light. The true light, which enlightens everyone, was coming into the world. <ins>He was in the world, and the world was made through him, yet the world did not know him. He came to his own, and his own people did not receive him. But to all who did receive him, who believed in his name, he gave the right to become children of God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God.</ins> And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son from the Father, full of grace and truth. (ESV)
+    
+    > **[Matthew 26:63-65](https://www.biblegateway.com/passage/?search=Matthew%2026%3A63-65&version=ESV)** - But Jesus remained silent. And the high priest said to him, I adjure you by the living God, tell us if you are the Christ, the Son of God. Jesus said to him, You have said so. But I tell you, from now on you will see the Son of Man seated at the right hand of Power and coming on the clouds of heaven. Then the high priest tore his robes and said, He has uttered blasphemy. What further witnesses do we need? You have now heard his blasphemy. (ESV)
+
 
 ## Sheep vs goats: Sheep inherit the kingdom of God, goats do not
 
@@ -66265,7 +66566,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org8171b58)
+See: [33.4.1](#org1eef197)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -68919,7 +69220,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org9bb0fd5) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org93661d0) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -71451,7 +71752,21 @@ Apostle Paul talks about a wreath. We don't give ourselves the wreath. And Paul 
 
 > **[I Corinthians 9:24-27](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A24-27&version=ESV)** - Do you not know that in a race all the runners compete, but only one receives the prize? So run that you may obtain it. Every athlete exercises self-control in all things. They do it to receive a perishable wreath, but we an imperishable. So I do not run aimlessly; I do not box as one beating the air. But I discipline my body and keep it under control, lest after preaching to others I myself should be disqualified. (ESV)
 
-The elect have soft hearts. We ourselves should have soft hearts which love the truth and don't try to resist the truth, and have faith in and receive and love Jesus Christ and has the fear of God and humility before God:
+The elect have soft hearts:
+
+> **[Romans 11:7-10](https://www.biblegateway.com/passage/?search=Romans%2011%3A7-10&version=ESV)** - What then? Israel failed to obtain what it was seeking. The **elect** obtained it, but **the rest were hardened**, as it is written, God gave them a spirit of stupor, eyes that would not see and ears that would not hear, down to this very day.  And David says, Let their table become a snare and a trap, a stumbling block and a retribution for them; let their eyes be darkened so that they cannot see, and bend their backs forever.
+
+A soft heart is needed to perceive and understand:
+
+> **[Mark 8:17](https://www.biblegateway.com/passage/?search=Mark%208%3A17&version=ESV)** - And Jesus, aware of this, said to them, Why are you discussing the fact that you have no bread? Do you not yet perceive or understand? Are your hearts hardened? (ESV)
+
+God can harden or soften hearts, but so can people harden and soften their own heart:
+
+> **[II Chronicles 36:12-13](https://www.biblegateway.com/passage/?search=2%20Chronicles%2036%3A12-13&version=ESV)** - He did what was evil in the sight of the Lord his God. He did not humble himself before Jeremiah the prophet, who spoke from the mouth of the Lord. He also rebelled against King Nebuchadnezzar, who had made him swear by God. He stiffened his neck and hardened his heart against turning to the Lord, the God of Israel. (ESV)
+
+> **[Hebrews 3:8](https://www.biblegateway.com/passage/?search=Hebrews%203%3A8&version=ESV)** - do not harden your hearts as in the rebellion, on the day of testing in the wilderness,
+
+We ourselves should have soft hearts which love the truth and don't try to resist the truth, and have faith in and receive and love Jesus Christ and has the fear of God and humility before God:
 
 > **[Romans 11:17-27](https://www.biblegateway.com/passage/?search=Romans%2011%3A17-27&version=ESV)** - But if some of the branches were broken off, and you, although a wild olive shoot, were grafted in among the others and now share in the nourishing root of the olive tree, do not be arrogant toward the branches. If you are, remember it is not you who support the root, but the root that supports you. Then you will say, Branches were broken off so that I might be grafted in. That is true. They were broken off because of their unbelief, but you stand fast through faith. So do not become proud, but stand in awe. For if God did not spare the natural branches, neither will he spare you. Note then the kindness and the severity of God: severity toward those who have fallen, but God's kindness to you, provided you continue in his kindness. Otherwise you too will be cut off. And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. For if you were cut from what is by nature a wild olive tree, and grafted, contrary to nature, into a cultivated olive tree, how much more will these, the natural branches, be grafted back into their own olive tree. Lest you be wise in your own conceits, I want you to understand this mystery, brothers: a partial hardening has come upon Israel, until the fullness of the Gentiles has come in. And in this way all Israel will be saved, as it is written, The Deliverer will come from Zion, he will banish ungodliness from Jacob; and this will be my covenant with them when I take away their sins. (ESV)
 
@@ -71662,7 +71977,7 @@ I think Jesus wants us to "prove to be a neighbour to others", to show **mercy**
     -   They had hard hearts
         -   unable to believe and obey
 
-One thing is for sure. The elect do not have hard hearts.
+One thing is for sure. The elect do not have hard hearts (**[Romans 11:7-10](https://www.biblegateway.com/passage/?search=Romans%2011%3A7-10&version=ESV)**).
 So I'd say if a person's heart is not totally hard, then soften it.
 
 > **[II Timothy 2:10-13](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A10-13&version=ESV)** - Therefore I endure everything for the sake of the elect, that they also may obtain the salvation that is in Christ Jesus with eternal glory. The saying is trustworthy, for: If we have died with him, we will also live with him; if we endure, we will also reign with him; if we deny him, he also will deny us; if we are faithless, he remains faithful— for he cannot deny himself. (ESV)
@@ -77102,7 +77417,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org9bb0fd5) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org93661d0) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -78438,7 +78753,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgeb9d6b4)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org3b6e782)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -82665,6 +82980,12 @@ There's nothing wrong with testifying to God that someone else you saw appeared 
 But God sees the heart. God knows for sure whether or not someone has faith in Him, and whether or not they continue in faith in Him.
 God sees our faith and our deeds with total clarity. There's no deceiving God at all.
 
+-   **[Polycarp 4:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Our widows must be sober-minded as touching the faith of the Lord,
+    making intercession without ceasing for all men, abstaining from all
+    calumny, evil speaking, false witness, love of money, and every evil
+    thing, knowing that they are God's altar, and that all sacrifices are
+    carefully inspected, and nothing escapeth Him either of their thoughts or intents or any of the secret things of the heart.
+
 A person witnesses to others about what they believe in what others can see about them.
 So if a person sees another person confessing that Jesus is the Christ, the Son of God, for instance, then this is a good indication that they are a believer.
 Do they witness to the truth about God? Does it appear like Jesus Christ is working through them to produce the deeds of Jesus, as in walk like Jesus walked ([John 10:37-38](https://www.biblegateway.com/passage/?search=John%2010%3A37-38&version=ESV), [John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV), [I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV))?
@@ -82881,6 +83202,21 @@ No-one in these years has taken time to critique my writings and respond to me.
 I have not been told how much of the theologising I was doing was correct or incorrect, even at the early stages. I certainly wouldn't throw it all out.
 
 I had written about following God's commandments from the heart. But God is the one who circumcises the heart. The elect have soft hearts.
+
+The elect have soft hearts:
+
+> **[Romans 11:7-10](https://www.biblegateway.com/passage/?search=Romans%2011%3A7-10&version=ESV)** - What then? Israel failed to obtain what it was seeking. The **elect** obtained it, but **the rest were hardened**, as it is written, God gave them a spirit of stupor, eyes that would not see and ears that would not hear, down to this very day.  And David says, Let their table become a snare and a trap, a stumbling block and a retribution for them; let their eyes be darkened so that they cannot see, and bend their backs forever.
+
+A soft heart is needed to perceive and understand:
+
+> **[Mark 8:17](https://www.biblegateway.com/passage/?search=Mark%208%3A17&version=ESV)** - And Jesus, aware of this, said to them, Why are you discussing the fact that you have no bread? Do you not yet perceive or understand? Are your hearts hardened? (ESV)
+
+God can harden or soften hearts, but so can people harden and soften their own heart:
+
+> **[II Chronicles 36:12-13](https://www.biblegateway.com/passage/?search=2%20Chronicles%2036%3A12-13&version=ESV)** - He did what was evil in the sight of the Lord his God. He did not humble himself before Jeremiah the prophet, who spoke from the mouth of the Lord. He also rebelled against King Nebuchadnezzar, who had made him swear by God. He stiffened his neck and hardened his heart against turning to the Lord, the God of Israel. (ESV)
+
+> **[Hebrews 3:8](https://www.biblegateway.com/passage/?search=Hebrews%203%3A8&version=ESV)** - do not harden your hearts as in the rebellion, on the day of testing in the wilderness,
+
 When God gives a person a new heart of flesh, He gives a person a new heart that is soft.
 A heart of stone can't receive correction. God doesn't remove a heart of flesh to put in a heart of stone.
 God removes the heart of stone and puts in a heart of flesh that is responsive to correction and then He writes His laws on it.
