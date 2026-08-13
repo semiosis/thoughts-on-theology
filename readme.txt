@@ -127,8 +127,11 @@ grace is given to someone so that they may be sanctified by the truth (Titus 2:1
 "time to repent" (Revelation of John 2:21, Revelation of John 16:8-11) could mean simply that a person is not yet
 in hell and so grace doesn't mean "saved" necessarily. Truth is convicting (John 16:8-9). Grace without the truth
 that convicts is not true grace because both grace and truth have come through Jesus Christ (John 1:14, John
-14:6). Real love loves the truth and hates evil (Romans 12:9). Real faith loves the truth (Mark 4:14-20). Love for
-evil or the world (Luke 11:43) is not real love at all. But real love loves God (I John 2:15-17, I John 4:7).
+14:6). Real love loves the truth and hates evil (Romans 12:9). Real faith loves the truth (Mark 4:14-20, II
+Timothy 4:8).
+
+Love for evil or the world (Luke 11:43) is not real love at all. But real love loves God (I John 2:15-17, I John
+4:7).
 
 Faith is not at all directly at odds to true obedience, but obedience when understood correctly actually implies
 faith as a person cannot truly obey God without a love for God (Psalms 81:12-15, James 2:5, Luke 6:45), say a love
@@ -482,6 +485,21 @@ glorifies Father God (John 15:8).
 
   John 15:8 - By this my Father is glorified, that you bear much fruit and so prove to be my disciples. (ESV)
 
+When Jesus says that He has made "known", it's implied that the people that Jesus has made known what He heard
+from His Father "do" what He commands. So there is a knowing that comes not just from hearing but from doing:
+
+  John 15:14-15 - You are my friends if you do what I command you. No longer do I call you servants, for the
+  servant does not know what his master is doing; but I have called you friends, for all that I have heard from my
+  Father I have made known to you. (ESV)
+
+  I John 2:3-6 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, but whoever keeps his word,
+  in him truly the love of God is perfected. By this we may be sure that we are in him: whoever says he abides in
+  him ought to walk in the same way in which he walked. (ESV)
+
+  John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
+  (ESV)
+
 A person who has been forgiven much, loves much. So somebody who is forgiven by Jesus will love Jesus, and a
 person who loves Jesus will be "law of faith"-abiding (John 14:15, Romans 3:27, I Corinthians 9:21, Matthew
 13:41):
@@ -638,9 +656,24 @@ So we need to be saved through sanctification and faith in Jesus Christ:
   God chose you as the firstfruits to be saved, through sanctification by the Spirit and belief in the truth.
   (ESV)
 
-But sanctification is through faith (Acts 26:18) and obedience (Hebrews 5:8-9) to Jesus. So if a person after
-appealing to God for mercy, then returns and commits sin again (i.e. for what is not done in faith is sin), then
-they don't have access to the sanctification. Faith needs to continue. What is not done in faith is sin:
+But sanctification is through faith (Acts 26:18) and obedience (Hebrews 5:8-9) to Jesus.
+
+Whatever does not proceed from faith is sin which is lawlessness:
+
+  Isaiah 55:6-7 - Seek the LORD while he may be found; call upon him while he is near; let the wicked forsake his
+  way, and the unrighteous man his thoughts; let him return to the LORD, that he may have compassion on him, and
+  to our God, for he will abundantly pardon. (ESV)
+
+  Hebrews 3:12-13 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. (ESV)
+
+  Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must believe
+  that he exists and that he rewards those who seek him. (ESV)
+
+So if a person after appealing to God for mercy, then returns and commits sin again (i.e. for what is not done in
+faith is sin), then they don't have access to the sanctification. Faith needs to continue. What is not done in
+faith is sin:
 
   II Peter 2:1-22 - But false prophets also arose among the people, just as there will be false teachers among
   you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon
@@ -5335,8 +5368,12 @@ man who builds a house with a strong foundation on the rock.
   the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
   house was great. (ESV)
 
-Additionally, God looks at the intentions of our hearts as we "do" what He says. A person can "do" the tradition
-of Lord's supper, even if external factors such as "bread and wine being unavailable" fail them.
+Additionally, God looks at the intentions of our hearts as we "do" what He says.
+
+  Proverbs 12:5 - The thoughts of the righteous are just; the counsels of the wicked are deceitful. (ESV)
+
+A person can "do" the tradition of Lord's supper, even if external factors such as "bread and wine being
+unavailable" fail them.
 
 Imagine, bombs dropping on a city, and people gathered together remembering the Lord Jesus Christ. The person
 without faith would say the people dropping bombs have prevented them from following Christ because they are
@@ -5348,6 +5385,18 @@ Christ Jesus their Lord.
   anyone swears by the gold of the temple, he is bound by his oath. You blind fools! For which is greater, the
   gold or the temple that has made the gold sacred? And you say, If anyone swears by the altar, it is nothing, but
   if anyone swears by the gift that is on the altar, he is bound by his oath. (ESV)
+
+God considers the intentions of our hearts even for the mistakes that we make:
+
+  Deuteronomy 19:4-7 - This is the provision for the manslayer, who by fleeing there may save his life. If anyone
+  kills his neighbor unintentionally without having hated him in the past— as when someone goes into the forest
+  with his neighbor to cut wood, and his hand swings the axe to cut down a tree, and the head slips from the
+  handle and strikes his neighbor so that he dies—he may flee to one of these cities and live, lest the avenger of
+  blood in hot anger pursue the manslayer and overtake him, because the way is long, and strike him fatally,
+  though the man did not deserve to die, since he had not hated his neighbor in the past. Therefore I command you,
+  You shall set apart three cities. (ESV)
+
+Deeds are given to the person who has faith.
 
 The person who does not "work" but "does" faith in Jesus, that person's faith is counted as righteousness:
 
@@ -6459,6 +6508,8 @@ which we hope He is pleased with, hoping for commendation from Him:
   I John 5:1-2 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
   Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
   and obey his commandments. (ESV)
+
+  Proverbs 12:8 - A man is commended according to his good sense, but one of twisted mind is despised. (ESV)
 
 Analogy
 Let's just say you wanted to do something nice for somebody for their birthday and so you make them a chocolate
@@ -9691,6 +9742,10 @@ Then there is the part of the person that is made right, that is the person born
   Ezekiel 18:31 - Cast away from you all the transgressions that you have committed, and make yourselves a new
   heart and a new spirit! Why will you die, O house of Israel? (ESV)
 
+  Isaiah 1:16-17 - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes;
+  cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the
+  widow's cause. (ESV)
+
 Journal <2026-05-19 Tue>
 I believe that when a person is born-again of the spirit and grafted into Christ, they receive a clean slate.
 Generational sin is totally wiped out, as far as the spirit is concerned. So along as they walk by the spirit
@@ -10551,6 +10606,12 @@ As Christians we endeavour to be justified in Christ as we trust and obey Him:
 
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
+
+  Proverbs 12:8 - A man is commended according to his good sense, but one of twisted mind is despised. (ESV)
+
+  Hebrews 11:4 - By faith Abel offered to God a more acceptable sacrifice than Cain, through which he was
+  commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he
+  still speaks. (ESV)
 
 As we seek God in faith (Hebrews 11:6) we should do so with a heart that loves Jesus Christ:
 
@@ -14785,6 +14846,17 @@ type of faith. Rather, it's a deed done from genuine faith that is a love for th
 person's heart, a person may produce a good deed. So loving people in deed comes from loving first from the heart
 by faith in the Truth.
 
+We don't try to contrive the deeds. Rather we walk by faith and the deeds follow (Revelation of John 14:13).
+Obedience depends on love for the truth (Psalms 81:15).
+
+God sets up the deeds for those who are walking in the light, but we should be obedient and ready to do them as
+they are given to us. So we don't contrive the deeds by forcing our way into "helping" widows and orphans, as if
+to check of some list and self-commend to tell Jesus when we served Him! No, God gives us the deeds. What does not
+proceed from faith is sin. We should be obedient, ready for every good deed:
+
+  Titus 3:1 - Remind them to be submissive to rulers and authorities, to be obedient, to be ready for every good
+  work, (ESV)
+
 Works is to faith as body is to spirit:
 
   James 2:26 - For as the body apart from the spirit is dead, so also faith apart (G5565 chōris) from works is
@@ -14854,6 +14926,10 @@ of evil:
 
   Ezekiel 18:31 - Cast away from you all the transgressions that you have committed, and make yourselves a new
   heart and a new spirit! Why will you die, O house of Israel? (ESV)
+
+  Isaiah 1:16-17 - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes;
+  cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the
+  widow's cause. (ESV)
 
   Hebrews 10:12-17 - But when Christ had offered for all time a single sacrifice for sins, he sat down at the
   right hand of God, waiting from that time until his enemies should be made a footstool for his feet. For by a
@@ -40638,6 +40714,10 @@ We can repent from sin as an act of obedient faith to God:
   transgressions that you have committed, and make yourselves a new heart and a new spirit! Why will you die, O
   house of Israel? For I have no pleasure in the death of anyone, declares the Lord GOD; so turn, and live. (ESV)
 
+  Isaiah 1:16-17 - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes;
+  cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the
+  widow's cause. (ESV)
+
 It's simultaneous:
 
   James 4:8 - Draw near to God, and he will draw near to you. Cleanse your hands, you sinners, and purify your
@@ -42940,8 +43020,8 @@ Someone having faith that Jesus is the Christ is born of God and isn't committin
   I John 5:18 - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself,
   and that wicked one toucheth him not. (KJV)
 
-+BEGIN[QUOTE] Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith.
-For whatever does not proceed from faith is sin. (ESV) #+END[QUOTE]
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
 
   I John 3:2-4 - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that
   when he appears we shall be like him, because we shall see him as he is. And everyone who thus hopes in him
@@ -85130,7 +85210,7 @@ For the Creator and Master of the universe Himself rejoiceth in His works.
   to him as righteousness,” and he was called the friend of God. You see that a man is justified by works and not
   by faith alone.
 
-  John 15:14 - You are my friends if you do what I command you.
+  John 15:14 - You are my friends if you do what I command you. (ESV)
 
   James 4:4 - You adulterous people! Do you not know that friendship with the world is enmity with God? Therefore
   whoever wishes to be a friend of the world makes himself an enemy of God.
@@ -131185,6 +131265,14 @@ has the right faith then the promise to them is that they will do good deeds. We
 Rather we walk by faith and the deeds follow (Revelation of John 14:13). Obedience depends on love for the truth
 (Psalms 81:15).
 
+God sets up the deeds for those who are walking in the light, but we should be obedient and ready to do them as
+they are given to us. So we don't contrive the deeds by forcing our way into "helping" widows and orphans, as if
+to check of some list and self-commend to tell Jesus when we served Him! No, God gives us the deeds. What does not
+proceed from faith is sin. We should be obedient, ready for every good deed:
+
+  Titus 3:1 - Remind them to be submissive to rulers and authorities, to be obedient, to be ready for every good
+  work, (ESV)
+
   John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
   And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
   may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not
@@ -131458,6 +131546,27 @@ burns up, so be it also.
 I think when it comes to confessing one's faith unto salvation, the most important thing is that God sees (and He
 does), and second to that is testifying before other human beings.
 
+  John 14:20 - In that day you will know that I am in my Father, and you in me, and I in you. (ESV)
+
+  John 14:10-15 - Do you not believe that I am in the Father and the Father is in me? The words that I say to you
+  I do not speak on my own authority, but the Father who dwells in me does his works. Believe me that I am in the
+  Father and the Father is in me, or else believe on account of the works themselves. Truly, truly, I say to you,
+  whoever believes in me will also do the works that I do; and greater works than these will he do, because I am
+  going to the Father. Whatever you ask in my name, this I will do, that the Father may be glorified in the Son.
+  If you ask me anything in my name, I will do it. If you love me, you will keep my commandments. (ESV)
+
+  John 10:30 - I and the Father are one. (ESV)
+
+  John 17:14-23 - I have given them your word, and the world has hated them because they are not of the world,
+  just as I am not of the world. I do not ask that you take them out of the world, but that you keep them from the
+  evil one. They are not of the world, just as I am not of the world. Sanctify them in the truth; your word is
+  truth. As you sent me into the world, so I have sent them into the world. And for their sake I consecrate
+  myself, that they also may be sanctified in truth. I do not ask for these only, but also for those who will
+  believe in me through their word, that they may all be one, just as you, Father, are in me, and I in you, that
+  they also may be in us, so that the world may believe that you have sent me. The glory that you have given me I
+  have given to them, that they may be one even as we are one, I in them and you in me, that they may become
+  perfectly one, so that the world may know that you sent me and loved them even as you loved me. (ESV)
+
 78.5. Prayer of thanks
 
   I Chronicles 29:11 - Yours, O LORD, is the greatness and the power and the glory and the victory and the
@@ -131520,11 +131629,11 @@ does), and second to that is testifying before other human beings.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-11 Tue 18:23
+Date: 2026-08-13 Thu 15:25
 
 Author: Shane Mulligan
 
-Created: 2026-08-11 Tue 18:53
+Created: 2026-08-13 Thu 15:39
 
 Validate
 
