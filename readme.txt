@@ -1317,7 +1317,8 @@ away from sin and has faith in Jesus will get born-again (Ezekiel 18:31, John 11
 The person who is born of God has stopped "committing sin" (I John 3:4,8,9) in the sense that this new beginning
 of repentance and faith (Hebrews 6:1) has been obedience to God (Romans 10:14-21) rather than sin and going on
 they must continue on in faith, in the love of the truth, obeying righteousness (I John 3:4,8,9). The person born
-of God doesn't commit sin (I John 5:18). The person born of God is also not their flesh (Romans 7:17-23).
+of God doesn't commit sin (I John 5:18). The person born of God is also not the sin in their flesh (Romans
+7:17-23).
 
 For the person with a genuine faith in Jesus Christ, sin no longer has dominion over them because Jesus has
 defeated death:
@@ -131828,7 +131829,7 @@ Date: 2026-08-15 Sat 13:45
 
 Author: Shane Mulligan
 
-Created: 2026-08-15 Sat 13:56
+Created: 2026-08-15 Sat 15:22
 
 Validate
 
