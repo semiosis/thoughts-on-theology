@@ -573,15 +573,94 @@ The person who has been born-again has stopped "committing sin" (**[I John 3:4](
 
 > **[I Peter 2:24](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A24&version=ESV)** - **He himself bore our sins in his body on the tree**, <ins>that we might die to sin and live to righteousness. **By his wounds you have been healed**</ins>. (ESV)
 
+Believing that Jesus is the Son of God entails believing that Jesus' works were good, that Jesus practiced righteousness. A son of God practices righteousness. A child of the devil practices wickedness:
+
+> **[Luke 23:40-43](https://www.biblegateway.com/passage/?search=Luke%2023%3A40-43&version=ESV)** - But the other answered, and rebuking him said, “Do you not even fear God, since you are under the same sentence of condemnation? And we indeed are suffering justly, for we are receiving what we deserve for our deeds; but this man has done nothing wrong.” And he was saying, “Jesus, remember me when You come in Your kingdom!” And He said to him, “Truly I say to you, today you shall be with Me in Paradise.”
+
+> **[John 14:10-15](https://www.biblegateway.com/passage/?search=John%2014%3A10-15&version=ESV)** - Do you not believe that I am in the Father and the Father is in me? The words that I say to you I do not speak on my own authority, but <ins>the Father who dwells in me does his works.</ins> Believe me that I am in the Father and the Father is in me, or else believe on account of the works themselves. Truly, truly, I say to you, **whoever believes in me will also do the works that I do;** and greater works than these will he do, because I am going to the Father. Whatever you ask in my name, this I will do, that the Father may be glorified in the Son. If you ask me anything in my name, I will do it. <ins>If you love me, you will keep my commandments.</ins> (ESV)
+
+> **[Mark 10:17-21](https://www.biblegateway.com/passage/?search=Mark%2010%3A17-21&version=ESV)** - And as he was setting out on his journey, a man ran up and knelt before him and asked him, Good Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good except God alone. You know the commandments: Do not murder, Do not commit adultery, Do not steal, Do not bear false witness, Do not defraud, Honor your father and mother. And he said to him, Teacher, all these I have kept from my youth. And Jesus, looking at him, loved him, and said to him, **You lack one thing: go, sell all that you have and give to the poor, and you will have treasure in heaven; and come, follow me.**
+
+> **[I John 3:6-18](https://www.biblegateway.com/passage/?search=1%20John%203%3A6-18&version=ESV)** - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. **We should not be like Cain, who was of the evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's righteous.** Do not be surprised, brothers, that the world hates you. We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little children, let us not love in word or talk but in deed and in truth. (ESV)
+
+> **[Matthew 13:37-42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-42&version=ESV)** - He answered, The one who sows the good seed is the Son of Man. The field is the world, and the good seed is the children of the kingdom. The weeds are the sons of the evil one, and the enemy who sowed them is the devil. The harvest is the close of the age, and the reapers are angels. Just as the weeds are gathered and burned with fire, so will it be at the close of the age. The Son of Man will send his angels, and they will gather out of his kingdom all causes of sin and all law-breakers, and throw them into the fiery furnace. In that place there will be weeping and gnashing of teeth. (ESV)
+
+We must heed God's word even given through Jesus Christ, receiving God's testimony, even of His Son, Jesus Christ, rather than be led astray by earthly/worldly words, and in trusting God, we set our seal that God is true. This saves. Just keep holding faith in Jesus Christ: 
+
+> [Matthew 17:5](https://www.biblegateway.com/passage/?search=Matthew%2017%3A5&version=ESV) - He was still speaking when, behold, a  bright cloud overshadowed them, and a voice from the cloud said, This is my beloved Son, with whom I am well pleased; listen to him. (ESV)
+
+> **[I John 5:10-11](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-11&version=ESV)** - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. (ESV)
+
+> **[I John 4:5](https://www.biblegateway.com/passage/?search=1%20John%204%3A5&version=ESV)** - They are from the world; therefore they speak from the world, and the world listens to them. (ESV)
+
+> **[John 3:31-36](https://www.biblegateway.com/passage/?search=John%203%3A31-36&version=ESV)** - He who comes from above is above all. He who is of the earth belongs to the earth and speaks in an earthly way. He who comes from heaven is above all. He bears witness to what he has seen and heard, yet no one receives his testimony. Whoever receives his testimony sets his seal to this, that God is true. For he whom God has sent utters the words of God, for he gives the Spirit without measure. The Father loves the Son and has given all things into his hand. Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
+
+> **[Ephesians 1:13-14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13-14&version=ESV)** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory. (ESV)
+
+> **[II Corinthians 1:21-22](https://www.biblegateway.com/passage/?search=2%20Corinthians%201%3A21-22&version=ESV)** - And it is God who establishes us with you in Christ, and has anointed us, and who has also put his seal on us and given us his Spirit in our hearts as a guarantee. (ESV)
+
+> **[John 4:41-42](https://www.biblegateway.com/passage/?search=John%204%3A41-42&version=ESV)** - And many more believed because of his word. They said to the woman, It is no longer because of what you said that we believe, for we have heard for ourselves, and we know that this is indeed the Savior of the world. (ESV)
+
+> **[Ephesians 4:30](https://www.biblegateway.com/passage/?search=Ephesians%204%3A30&version=ESV)** - And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption. (ESV)
+
+We believe the gospel into loving one-another as commanded, and into producing good deeds:
+
+> **[I John 5:1-5](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-5&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are not burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has overcome the world—our faith. Who is it that overcomes the world except the one who believes that Jesus is the Son of God? (ESV)
+
+> **[John 16:27](https://www.biblegateway.com/passage/?search=John%2016%3A27&version=ESV)** - for the Father himself loves you, because you have loved me and have believed that I came from God. (ESV)
+
+> **[John 14:15-17](https://www.biblegateway.com/passage/?search=John%2014%3A15-17&version=ESV)** - If you love me, you will keep my commandments. And I will ask the Father, and he will give you another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it neither sees him nor knows him. You know him, for he dwells with you and will be in you. (ESV)
+
+A person who is "from God", who has received Jesus Christ, having received God's testimony about His Son, overcomes the world:
+
+> **[I John 4:1-3](https://www.biblegateway.com/passage/?search=1%20John%204%3A1-3&version=ESV)** - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already. (ESV)
+
+> **[I John 4:4](https://www.biblegateway.com/passage/?search=1%20John%204%3A4&version=ESV)** - Little children, **you are from God and have overcome them**, for he who is in you is greater than he who is in the world. (ESV)
+
+> **[John 16:30](https://www.biblegateway.com/passage/?search=John%2016%3A30&version=ESV)** - Now we know that you know all things and do not need anyone to question you; this is why we believe that you came from God. (ESV)
+
+> **[John 20:21](https://www.biblegateway.com/passage/?search=John%2020%3A21&version=ESV)** - Jesus said to them again, Peace be with you. As the Father has sent me, even so I am sending you. (ESV)
+
+> **[John 3:34](https://www.biblegateway.com/passage/?search=John%203%3A34&version=ESV)** - For he whom God has sent utters the words of God, for he gives the Spirit without measure. (ESV)
+
+> **[I John 4:6](https://www.biblegateway.com/passage/?search=1%20John%204%3A6&version=ESV)** - We are from God. Whoever knows God listens to us; whoever is not from God does not listen to us. By this we know the Spirit of truth and the spirit of error. (ESV)
+
 A person who is being taught by God, comes to Jesus (**[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)**).
+
+> **[Isaiah 53:6](https://www.biblegateway.com/passage/?search=Isaiah%2053%3A6&version=ESV)** - All we like sheep have gone astray; we have turned every one to his own way; and the LORD has laid on him the iniquity of us all. (ESV)
+
+> **[Psalms 110:1](https://www.biblegateway.com/passage/?search=Psalms%20110%3A1&version=ESV),4** - The LORD says to my Lord: Sit at my right hand, until I make your enemies your footstool. A Psalm of David. The LORD has sworn and will not change his mind, You are a priest forever after the order of Melchizedek. (ESV)
+
+> **[John 3:34](https://www.biblegateway.com/passage/?search=John%203%3A34&version=ESV)** - For he whom God has sent utters the words of God, for he gives the Spirit without measure. (ESV)
+
+> **[John 8:47](https://www.biblegateway.com/passage/?search=John%208%3A47&version=ESV)** - Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of God. (ESV)
+
+We need to love God's word to come to Jesus Christ the Son of God. We have faith in Jesus, learning from His, to come to Him:
+
+> **[John 3:20-21](https://www.biblegateway.com/passage/?search=John%203%3A20-21&version=ESV)** - For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+> **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth will set you free. (ESV)
+
+> **[Luke 24:25](https://www.biblegateway.com/passage/?search=Luke%2024%3A25&version=ESV),27,30-31,35** - And he said to them, O foolish ones, and slow of heart to believe all that the prophets have spoken! And beginning with Moses and all the Prophets, he interpreted to them in all the Scriptures the things concerning himself. When he was at table with them, he took the bread and blessed and broke it and gave it to them. And their eyes were opened, and they recognized him. And he vanished from their sight. Then they told what had happened on the road, and how he was known to them in the breaking of the bread. (ESV)
+
 They receive the seed of the word of God in them (**[Mark 4:14-20](https://www.biblegateway.com/passage/?search=Mark%204%3A14-20&version=ESV)**) which actually is the new person (**[I Peter 1:22-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22-25&version=ESV)**).
 That seed grows up (**[Matthew 13:37-42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-42&version=ESV)**) and the person gets **born** <ins>again</ins>, born of the spirit.
+
+A person is born-again of the seed of the word of God, but the word is a seed until the person is born-again by that seed. So I guess that a person can be an "unborn" child of God until they get born:
+
+> **[Matthew 13:38](https://www.biblegateway.com/passage/?search=Matthew%2013%3A38&version=ESV)** - The field is the world, and the good seed is the children of the kingdom. The weeds are the sons of the evil one, (ESV)
+
+> **[I Peter 1:23](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A23&version=ESV)** - since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; (ESV)
+
 Jesus taught words from His Father, and so a person receiving Jesus and His words, or the words of God that have been spoken about Him, come to Jesus.
-God at some point in His Sovereign and wise plan, makes a person born again. This new birth I believe is being baptised into Jesus' death, and this purifies the heart, regenerating the spirit, killing the sin that was there, and empowers the person to practice righteousness:
+
+God at some point in His Sovereign and wise plan, makes a person born again. This new birth I believe is being baptised into Jesus' death, and this purifies the heart, regenerating the spirit, killing the sin that was there, and empowers the person to practice righteousness from a position of being dead to sin:
 
 > **[Jude 1:20-21](https://www.biblegateway.com/passage/?search=Jude%201%3A20-21&version=ESV)** - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
 
 > **[I Peter 1:22-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22-25&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; for All flesh is like grass and all its glory like the flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this word is the good news that was preached to you. (ESV)
+
+> **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, and everyone who lives and believes in me shall never [(G3756 οὐ)](G3756) [(G3361 μή)](G3361) die. Do you believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
 
 This person is freed from compulsively committing evil deeds by the power that comes from having faith in Jesus Christ who is victorious over evil, Jesus Christ having condemned sin in the flesh.
 When someone is born-again / baptised into Christ's death it is especially necessary to consider oneself dead to sin.
@@ -6416,7 +6495,7 @@ Outcome comes from faith. Outcome comes from deed (external action done from fai
     
     > **[John 12:41-46](https://www.biblegateway.com/passage/?search=John%2012%3A41-46&version=ESV)** - Isaiah said these things because he saw his glory and spoke of him. <ins>Nevertheless, many even of the authorities believed in him, but for fear of the Pharisees they did not confess it, so that they would not be put out of the synagogue;</ins> for **they loved the glory that comes from man more than the glory that comes from God**. And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. (ESV)
     
-    The Bible makes it abundantly clear that faith in God's word involves trusting God's word with what He has revealed (\*[Romans 1:18-19](https://www.biblegateway.com/passage/?search=Romans%201%3A18-19&version=ESV)), and that might just be a promise without details on who you will encounter or what that will look like or what specific things will take place to make the result come about:
+    The Bible makes it abundantly clear that faith in God's word involves trusting God's word with what He has revealed (**[Romans 1:18-19](https://www.biblegateway.com/passage/?search=Romans%201%3A18-19&version=ESV)**, **[I John 5:14-15](https://www.biblegateway.com/passage/?search=1%20John%205%3A14-15&version=ESV)**), and that might just be a promise without details on who you will encounter or what that will look like or what specific things will take place to make the result come about:
     
     > **[Hebrews 11:8](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A8&version=ESV)** - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an inheritance. And he went out, not knowing where he was going. (ESV)
     
@@ -15607,7 +15686,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgcfc7033) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org07b75ed) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -19457,7 +19536,11 @@ Agape love is essentially a treasuring, preserving love. We have a real Biblical
 
 > **[Hebrews 11:7](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A7&version=ESV)** - By faith Noah, being warned by God concerning events as yet unseen, in reverent fear constructed an ark for the saving of his household. By this he condemned the world and became an heir of the righteousness that comes by faith. (ESV)
 
+We must heed Jesus' word rather than earthly/worldly words:
+
 > **[I John 4:5](https://www.biblegateway.com/passage/?search=1%20John%204%3A5&version=ESV)** - They are from the world; therefore they speak from the world, and the world listens to them. (ESV)
+
+> **[John 3:31-36](https://www.biblegateway.com/passage/?search=John%203%3A31-36&version=ESV)** - He who comes from above is above all. He who is of the earth belongs to the earth and speaks in an earthly way. He who comes from heaven is above all. He bears witness to what he has seen and heard, yet no one receives his testimony. Whoever receives his testimony sets his seal to this, that God is true. For he whom God has sent utters the words of God, for he gives the Spirit without measure. The Father loves the Son and has given all things into his hand. Whoever believes in the Son has eternal life; whoever does not obey the Son shall not see life, but the wrath of God remains on him. (ESV)
 
 We are instructed to not agape love the world "possessions", nor take pride in our "possessions":
 
@@ -21142,7 +21225,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgf084370).
+I didn't know but it turned out to be the last day of my [sentence](#orgacc5def).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -45374,7 +45457,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org49f140f)
+See: [33.4.1](#orga72e825)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -66687,7 +66770,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org49f140f)
+See: [33.4.1](#orga72e825)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -69341,7 +69424,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org0f0f236) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org4f47a0c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -77538,7 +77621,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org0f0f236) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org4f47a0c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -78874,7 +78957,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6c50fce)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org810fe84)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
