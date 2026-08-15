@@ -1297,11 +1297,33 @@ defeated the last enemy, death, from His perspective:
 
   Hebrews 10:13 - waiting from that time onward until His enemies be made a footstool for His feet.
 
-The person who has been born-again has stopped "committing sin" (I John 3:4,8,9) in the sense that this new
-beginning of repentance and faith (Hebrews 6:1) has been obedience to God (Romans 10:14-21) rather than sin and
-going on they must continue on in faith, in the love of the truth, obeying righteousness (I John 3:4,8,9). For the
-person with a genuine faith in Jesus Christ, sin no longer has dominion over them because Jesus has defeated
-death.
+A believer at some point dies (John 11:25-27), and it happens when they are baptised into Christ's death (Romans
+6:3-8, Galatians 2:19-21, Romans 7:1-6) and is born of the spirit in order to be able to keep God's commandments
+(Ezekiel 11:19-20). We don't have to be a slave of sin (John 8:34-35,36,42,51). But when does a person get
+born-again of the spirit? It's mysterious (John 3:6-8) but it's partly not a mystery because a person who turns
+away from sin and has faith in Jesus will get born-again (Ezekiel 18:31, John 11:25-27):
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+The person who is born of God has stopped "committing sin" (I John 3:4,8,9) in the sense that this new beginning
+of repentance and faith (Hebrews 6:1) has been obedience to God (Romans 10:14-21) rather than sin and going on
+they must continue on in faith, in the love of the truth, obeying righteousness (I John 3:4,8,9). The person born
+of God doesn't commit sin (I John 5:18). The person born of God is also not their flesh (Romans 7:17-23).
+
+For the person with a genuine faith in Jesus Christ, sin no longer has dominion over them because Jesus has
+defeated death:
+
+  Philippians 1:6 - And I am sure of this, that he who began a good work in you will bring it to completion at the
+  day of Jesus Christ. (ESV)
 
   Hebrews 10:14 - For by a single offering he has perfected for all time those who are being sanctified.
 
@@ -131802,11 +131824,11 @@ does), and second to that is testifying before other human beings.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-15 Sat 12:34
+Date: 2026-08-15 Sat 13:45
 
 Author: Shane Mulligan
 
-Created: 2026-08-15 Sat 12:48
+Created: 2026-08-15 Sat 13:56
 
 Validate
 
