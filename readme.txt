@@ -2881,17 +2881,95 @@ genaeology that includes both Christ and Abraham:
   earth, a man of dust; the second man is from heaven. As was the man of dust, so also are those who are of the
   dust, and as is the man of heaven, so also are those who are of heaven.
 
-Can we call Jesus father? On a technical level, Jesus Christ is the penultimate spiritual father to the children
-of God, in my understanding, but Jesus Christ Himself has instructed His disciples to call His own father
-'father', rather than Himself.
+Can we call Jesus father? Out of faith in what Jesus has instructed, I would use the title of 'father' for God the
+father of Jesus Christ:
+
+  Matthew 23:1 - Then Jesus said to the crowds and to his disciples, (ESV)
+
+  Matthew 23:9 - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
+
+  Jn 20:17: Jesus said to her, Do not cling to me, for I have not yet ascended to the Father; but go to my
+  brothers and say to them, I am ascending to my Father and your Father, to my God and your God.
+
+Technically, though, Jesus Christ the Son of God is, still I believe, a spiritual father to the children of God,
+because God creates through Christ the Son. In my current understanding, Father God fathers more children through
+His monogenēs Son who is Jesus Christ:
+
+  John 1:1-3 - In the beginning was the Word, and the Word was with God, and the Word was God. He was in the
+  beginning with God. All things were made through him, and without him was not any thing made that was made.
+  (ESV)
+
+  Hebrews 12:9 - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not
+  much more be subject to the Father of spirits and live? (ESV)
+
+  John 3:5-7 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
+  enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of the Spirit is
+  spirit. Do not marvel that I said to you, You must be born again. (ESV)
+
+So I believe that Jesus Christ who is the Son of God and God's Word made flesh, is the "penultimate" spiritual
+father to the children of God, and still a spiritual father to God's redeemed children who are born-again,
+baptised into His death:
+
+  I Corinthians 15:42-48 - So is it with the resurrection of the dead. What is sown is perishable; what is raised
+  is imperishable. It is sown in dishonor; it is raised in glory. It is sown in weakness; it is raised in power.
+  It is sown a natural body; it is raised a spiritual body. If there is a natural body, there is also a spiritual
+  body. Thus it is written, The first man Adam became a living being; the last Adam became a life-giving spirit.
+  But it is not the spiritual that is first but the natural, and then the spiritual. The first man was from the
+  earth, a man of dust; the second man is from heaven. As was the man of dust, so also are those who are of the
+  dust, and as is the man of heaven, so also are those who are of heaven.
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+  Romans 6:3-8 - Do you not know that all of us who have been baptized into Christ Jesus were baptized into his
+  death? We were buried therefore with him by baptism into death, in order that, just as Christ was raised from
+  the dead by the glory of the Father, we too might walk in newness of life. For if we have been united with him
+  in a death like his, we shall certainly be united with him in a resurrection like his. We know that our old self
+  was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be
+  enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe
+  that we will also live with him. (ESV)
+
+  I Peter 3:18-22 - For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring
+  us to God, being put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the
+  spirits in prison, because they formerly did not obey, when God's patience waited in the days of Noah, while the
+  ark was being prepared, in which a few, that is, eight persons, were brought safely through water. Baptism,
+  which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a
+  good conscience, through the resurrection of Jesus Christ, who has gone into heaven and is at the right hand of
+  God, with angels, authorities, and powers having been subjected to him. (ESV)
+
+If someone receives Jesus Christ Son of God, then they receive Father God. And if someone receives someone who
+Jesus has sent then they receive Jesus:
+
+  John 13:20 - Truly, truly, I say to you, whoever receives the one I send receives me, and whoever receives me
+  receives the one who sent me. (ESV)
+
+  Mark 9:37 - Whoever receives one such child in my name receives me, and whoever receives me, receives not me but
+  him who sent me. (ESV)
+
+  John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become children of
+  God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+
+Also, Jesus Christ Himself has instructed His disciples to call His own father 'father', rather than Himself. And
+we should by faith obey Jesus to do this:
 
   Isaiah 9:6 - For to us a child is born, to us a son is given; and the government shall be upon his shoulder, and
   his name shall be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace. (ESV)
 
   Matthew 13:37 - He answered, The one who sows the good seed is the Son of Man. (ESV)
 
+  John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become children of
+  God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+
   John 14:6 - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except
   through me. (ESV)
+
+  John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
+  (ESV)
+
+  John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
+  loved by my Father, and I will love him and manifest myself to him. (ESV)
 
 But since Jesus Christ would call the adopted sons of God His "brothers", and that Jesus instructed His disciples
 to refer to His own father as their father, then we should do that:
@@ -2972,13 +3050,6 @@ Paul only claimed the title. Paul's teaching should never contradict or override
   name, and I do not say to you that I will ask the Father on your behalf; for the Father himself loves you,
   because you have loved me and have believed that I came from God. I came from the Father and have come into the
   world, and now I am leaving the world and going to the Father.
-
-  Matthew 23:1 - Then Jesus said to the crowds and to his disciples, (ESV)
-
-  Matthew 23:9 - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
-
-  Jn 20:17: Jesus said to her, Do not cling to me, for I have not yet ascended to the Father; but go to my
-  brothers and say to them, I am ascending to my Father and your Father, to my God and your God.
 
   Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
   to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
@@ -50295,6 +50366,10 @@ freedom, for example, to go on strike if the only paid employment was immoral.
   the forehead, so that no one can buy or sell unless he has the mark, that is, the name of the beast or the
   number of its name. This calls for wisdom: let the one who has understanding calculate the number of the beast,
   for it is the number of a man, and his number is 666. (ESV)
+
+  Isaiah 59:14-15 - Justice is turned back, And righteousness stands far away; For truth has stumbled in the
+  street, And uprightness cannot enter. Yes, truth is lacking; And he who turns aside from evil makes himself a
+  prey. Now the LORD saw, And it was displeasing in His sight that there was no justice. (NASB)
 
 I want to know what the Scripture truly says as accurately as I can, so I look up the Greek and Hebrew words in
 the strong's concordance, and see in what other verse the words are also used, and look at the context of the
@@ -132139,11 +132214,11 @@ does), and second to that is testifying before other human beings.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-17 Mon 14:47
+Date: 2026-08-17 Mon 19:36
 
 Author: Shane Mulligan
 
-Created: 2026-08-17 Mon 16:24
+Created: 2026-08-17 Mon 19:47
 
 Validate
 
