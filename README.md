@@ -663,7 +663,7 @@ A person is born-again of the seed of the word of God, but the word is a seed un
 
 > **[I Peter 1:23](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A23&version=ESV)** - since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; (ESV)
 
-We need to be fruitful. The word of God planted in good soil grows us bears good fruit. The root matters. A person can't have genuine faith in Jesus and be committing sin at the same time (**[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**, **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)**, **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)**, **[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**, **[I Peter 4:1-5](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A1-5&version=ESV)**):
+We need to be fruitful. The word of God planted in good soil grows up bears good fruit. The root matters. A person can't have genuine faith in Jesus and be committing sin at the same time (**[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**, **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)**, **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)**, **[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**, **[I Peter 4:1-5](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A1-5&version=ESV)**):
 
 > **[Mark 4:14-20](https://www.biblegateway.com/passage/?search=Mark%204%3A14-20&version=ESV)** - The sower sows the word. And these are the ones along the path, where the word is sown: when they hear, Satan immediately comes and takes away the word that is sown in them. And these are the ones sown on rocky ground: the ones who, when they hear the word, immediately receive it with joy. **And they have no root in themselves, but endure for a while; then, when tribulation or persecution arises on account of the word, immediately they fall away.** And others are the ones sown among thorns. They are those who hear the word, but the cares of the world and the deceitfulness of riches and the desires for other things enter in and choke the word, and it proves unfruitful. But those that were sown on the good soil are the ones who hear the word and accept it and bear fruit, thirtyfold and sixtyfold and a hundredfold. (ESV)
 
@@ -676,6 +676,8 @@ We need to be fruitful. The word of God planted in good soil grows us bears good
 > **[John 15:1-6](https://www.biblegateway.com/passage/?search=John%2015%3A1-6&version=ESV)** - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned. (ESV)
 
 > **[Mark 7:18-23](https://www.biblegateway.com/passage/?search=Mark%207%3A18-23&version=ESV)** - And he saith unto them, Are ye so without understanding also? Do ye not perceive, that whatsoever thing from without entereth into the man, it cannot defile him; Because it entereth not into his heart, but into the belly, and goeth out into the draught, purging all meats? And he said, That which cometh out of the man, that defileth the man. For from within, out of the heart of men, proceed evil thoughts, adulteries, fornications, murders, Thefts, covetousness, wickedness, deceit, lasciviousness, an evil eye, blasphemy, pride, foolishness: All these evil things come from within, and defile the man. (KJV)
+
+> **[Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah%2055%3A11&version=ESV)** - so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall accomplish that which I purpose, and shall succeed in the thing for which I sent it. (ESV)
 
 Jesus taught words from His Father, and so a person receiving Jesus and His words, or the words of God that have been spoken about Him, come to Jesus.
 
@@ -15827,7 +15829,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org2b8e2b9) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb2b71eb) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -21366,7 +21368,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org8fa56ff).
+I didn't know but it turned out to be the last day of my [sentence](#org4b1a3d3).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -45598,7 +45600,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org0fcc76f)
+See: [33.4.1](#org3a44fb2)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -66911,7 +66913,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org0fcc76f)
+See: [33.4.1](#org3a44fb2)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -69565,7 +69567,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgdcde7e5) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org3086054) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -73695,6 +73697,25 @@ The world (the remaining people, who have not repented) may know that Father God
 > **[Hebrews 10:19-20](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A19-20&version=ESV)** - Therefore, brothers, since we have confidence to enter the holy places by the blood of Jesus, by the new and living way that he opened for us through the curtain, that is, through his flesh, (ESV)
 
 
+## Jesus didn't break faith with Father God, and Father God's word didn't fail
+
+> **[Mark 14:32-36](https://www.biblegateway.com/passage/?search=Mark%2014%3A32-36&version=ESV)** - And they went to a place called Gethsemane. And he said to his disciples, Sit here while I pray. And he took with him Peter and James and John, and began to be greatly distressed and troubled. And he said to them, My soul is very sorrowful, even to death. Remain here and watch. And going a little farther, he fell on the ground and prayed that, if it were possible, the hour might pass from him. And he said, Abba, Father, all things are possible for you. Remove this cup from me. Yet not what I will, but what you will. (ESV)
+
+> **[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)** - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son from the Father, full of grace and truth. (ESV)
+
+> **[Matthew 27:46](https://www.biblegateway.com/passage/?search=Matthew%2027%3A46&version=ESV)** - And about the ninth hour Jesus cried out with a loud voice, saying, Eli, Eli, lema sabachthani? that is, My God, my God, why have you forsaken me? (ESV)
+
+> **[Psalms 22:1](https://www.biblegateway.com/passage/?search=Psalms%2022%3A1&version=ESV)** - My God, my God, why have you forsaken me? Why are you so far from saving me, from the words of my groaning? (ESV)
+
+God's word does not fail:
+
+> **[Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah%2055%3A11&version=ESV)** - so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall accomplish that which I purpose, and shall succeed in the thing for which I sent it. (ESV)
+
+> **[Romans 9:6-8](https://www.biblegateway.com/passage/?search=Romans%209%3A6-8&version=ESV)** - But it is not as though the word of God has failed. For not all who are descended from Israel belong to Israel, and **not all are children of Abraham because they are his offspring**, but Through Isaac shall your offspring be named. This means that it is not the children of the flesh who are the children of God, but the children of the promise are counted as offspring. (ESV)
+
+> **[Luke 24:38-49](https://www.biblegateway.com/passage/?search=Luke%2024%3A38-49&version=ESV)** - And he said to them, Why are you troubled, and why do doubts arise in your hearts? See my hands and my feet, that it is I myself. Touch me, and see. For a spirit does not have flesh and bones as you see that I have. And when he had said this, he showed them his hands and his feet. And while they still disbelieved for joy and were marveling, he said to them, Have you anything here to eat? They gave him a piece of broiled fish, and he took it and ate before them. Then he said to them, These are my words that I spoke to you while I was still with you, that everything written about me in the Law of Moses and the Prophets and the Psalms must be fulfilled. Then he opened their minds to understand the Scriptures, and said to them, Thus it is written, that the Christ should suffer and on the third day rise from the dead, and that repentance and forgiveness of sins should be proclaimed in his name to all nations, beginning from Jerusalem. You are witnesses of these things. And behold, I am sending the promise of my Father upon you. But stay in the city until you are clothed with power from on high. (ESV)
+
+
 # Jesus rose from the dead and ascended by His own authority given to Him by Father God. Amen
 
 > **[Luke 24:1-7](https://www.biblegateway.com/passage/?search=Luke%2024%3A1-7&version=ESV)** - But on the first day of the week, at early dawn, they came to the tomb bringing the spices which they had prepared. And they found the stone rolled away from the tomb, but when they entered, they did not find the body of the Lord Jesus. While they were perplexed about this, behold, two men suddenly stood near them in dazzling clothing; and as the women were terrified and bowed their faces to the ground, the men said to them, “Why do you seek the living One among the dead? He is not here, but He has risen. Remember how He spoke to you while He was still in Galilee, saying that the Son of Man must be delivered into the hands of sinful men, and be crucified, and the third day rise again.” (ESV)
@@ -77762,7 +77783,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgdcde7e5) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org3086054) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -79098,7 +79119,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org51fc6fc)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org817acb5)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

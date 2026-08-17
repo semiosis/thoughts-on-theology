@@ -1496,7 +1496,7 @@ that seed. So I guess that a person can be an "unborn" child of God until they g
   I Peter 1:23 - since you have been born again, not of perishable seed but of imperishable, through the living
   and abiding word of God; (ESV)
 
-We need to be fruitful. The word of God planted in good soil grows us bears good fruit. The root matters. A person
+We need to be fruitful. The word of God planted in good soil grows up bears good fruit. The root matters. A person
 can't have genuine faith in Jesus and be committing sin at the same time (Romans 14:23, Jeremiah 7:8-11, John
 10:1, I John 3:4, I Peter 4:1-5):
 
@@ -1541,6 +1541,9 @@ can't have genuine faith in Jesus and be committing sin at the same time (Romans
   that defileth the man. For from within, out of the heart of men, proceed evil thoughts, adulteries,
   fornications, murders, Thefts, covetousness, wickedness, deceit, lasciviousness, an evil eye, blasphemy, pride,
   foolishness: All these evil things come from within, and defile the man. (KJV)
+
+  Isaiah 55:11 - so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall
+  accomplish that which I purpose, and shall succeed in the thing for which I sent it. (ESV)
 
 Jesus taught words from His Father, and so a person receiving Jesus and His words, or the words of God that have
 been spoken about Him, come to Jesus.
@@ -116086,6 +116089,45 @@ flesh. Jesus is the Word
   Hebrews 10:19-20 - Therefore, brothers, since we have confidence to enter the holy places by the blood of Jesus,
   by the new and living way that he opened for us through the curtain, that is, through his flesh, (ESV)
 
+67.1. Jesus didn't break faith with Father God, and Father God's word didn't fail
+
+  Mark 14:32-36 - And they went to a place called Gethsemane. And he said to his disciples, Sit here while I pray.
+  And he took with him Peter and James and John, and began to be greatly distressed and troubled. And he said to
+  them, My soul is very sorrowful, even to death. Remain here and watch. And going a little farther, he fell on
+  the ground and prayed that, if it were possible, the hour might pass from him. And he said, Abba, Father, all
+  things are possible for you. Remove this cup from me. Yet not what I will, but what you will. (ESV)
+
+  John 1:14 - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son
+  from the Father, full of grace and truth. (ESV)
+
+  Matthew 27:46 - And about the ninth hour Jesus cried out with a loud voice, saying, Eli, Eli, lema sabachthani?
+  that is, My God, my God, why have you forsaken me? (ESV)
+
+  Psalms 22:1 - My God, my God, why have you forsaken me? Why are you so far from saving me, from the words of my
+  groaning? (ESV)
+
+God's word does not fail:
+
+  Isaiah 55:11 - so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall
+  accomplish that which I purpose, and shall succeed in the thing for which I sent it. (ESV)
+
+  Romans 9:6-8 - But it is not as though the word of God has failed. For not all who are descended from Israel
+  belong to Israel, and not all are children of Abraham because they are his offspring, but Through Isaac shall
+  your offspring be named. This means that it is not the children of the flesh who are the children of God, but
+  the children of the promise are counted as offspring. (ESV)
+
+  Luke 24:38-49 - And he said to them, Why are you troubled, and why do doubts arise in your hearts? See my hands
+  and my feet, that it is I myself. Touch me, and see. For a spirit does not have flesh and bones as you see that
+  I have. And when he had said this, he showed them his hands and his feet. And while they still disbelieved for
+  joy and were marveling, he said to them, Have you anything here to eat? They gave him a piece of broiled fish,
+  and he took it and ate before them. Then he said to them, These are my words that I spoke to you while I was
+  still with you, that everything written about me in the Law of Moses and the Prophets and the Psalms must be
+  fulfilled. Then he opened their minds to understand the Scriptures, and said to them, Thus it is written, that
+  the Christ should suffer and on the third day rise from the dead, and that repentance and forgiveness of sins
+  should be proclaimed in his name to all nations, beginning from Jerusalem. You are witnesses of these things.
+  And behold, I am sending the promise of my Father upon you. But stay in the city until you are clothed with
+  power from on high. (ESV)
+
 68. Jesus rose from the dead and ascended by His own authority given to Him by Father God. Amen
 
   Luke 24:1-7 - But on the first day of the week, at early dawn, they came to the tomb bringing the spices which
@@ -132101,7 +132143,7 @@ Date: 2026-08-17 Mon 14:47
 
 Author: Shane Mulligan
 
-Created: 2026-08-17 Mon 15:31
+Created: 2026-08-17 Mon 16:24
 
 Validate
 
