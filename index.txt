@@ -2893,7 +2893,17 @@ father of Jesus Christ:
 
 Technically, though, Jesus Christ the Son of God is, still I believe, a spiritual father to the children of God,
 because God creates through Christ the Son. In my current understanding, Father God fathers more children through
-His monogenēs Son who is Jesus Christ:
+His monogenēs Son who is Jesus Christ, His Word:
+
+  Matthew 13:38-43 - The field is the world, and the good seed is the children of the kingdom. The weeds are the
+  sons of the evil one, and the enemy who sowed them is the devil. The harvest is the close of the age, and the
+  reapers are angels. Just as the weeds are gathered and burned with fire, so will it be at the close of the age.
+  The Son of Man will send his angels, and they will gather out of his kingdom all causes of sin and all
+  law-breakers (G458 anomian; wicked i.e. those who hate righteousness, those who prefer evil to Jesus Christ),
+  and throw them into the fiery furnace. In that place there will be weeping and gnashing of teeth. Then the
+  righteous will shine like the sun in the kingdom of their Father. He who has ears, let him hear. (ESV)
+
+  Matthew 13:37 - He answered, The one who sows the good seed is the Son of Man. (ESV)
 
   John 1:1-3 - In the beginning was the Word, and the Word was with God, and the Word was God. He was in the
   beginning with God. All things were made through him, and without him was not any thing made that was made.
@@ -2905,6 +2915,17 @@ His monogenēs Son who is Jesus Christ:
   John 3:5-7 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
   enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of the Spirit is
   spirit. Do not marvel that I said to you, You must be born again. (ESV)
+
+  Colossians 3:4 - When Christ who is your life appears, then you also will appear with him in glory. (ESV)
+
+  John 5:26 - For as the Father has life in himself, so he has granted the Son also to have life in himself. (ESV)
+
+  John 1:4-5 - In him was life, and the life was the light of men. The light shines in the darkness, and the
+  darkness has not overcome it. (ESV)
+
+  John 1:9-11 - The true light, which enlightens everyone, was coming into the world. He was in the world, and the
+  world was made through him, yet the world did not know him. He came to his own, and his own people did not
+  receive him. (ESV)
 
 So I believe that Jesus Christ who is the Son of God and God's Word made flesh, is the "penultimate" spiritual
 father to the children of God, and still a spiritual father to God's redeemed children who are born-again,
@@ -132218,7 +132239,7 @@ Date: 2026-08-17 Mon 19:36
 
 Author: Shane Mulligan
 
-Created: 2026-08-17 Mon 19:47
+Created: 2026-08-17 Mon 20:45
 
 Validate
 
