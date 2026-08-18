@@ -2931,6 +2931,11 @@ So I believe that Jesus Christ who is the Son of God and God's Word made flesh, 
 father to the children of God, and still a spiritual father to God's redeemed children who are born-again,
 baptised into His death:
 
+  Isaiah 9:6 - For to us a child is born, to us a son is given; and the government shall be upon his shoulder, and
+  his name shall be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace. (ESV)
+
+  Matthew 13:37 - He answered, The one who sows the good seed is the Son of Man. (ESV)
+
   I Corinthians 15:42-48 - So is it with the resurrection of the dead. What is sown is perishable; what is raised
   is imperishable. It is sown in dishonor; it is raised in glory. It is sown in weakness; it is raised in power.
   It is sown a natural body; it is raised a spiritual body. If there is a natural body, there is also a spiritual
@@ -2975,10 +2980,11 @@ Jesus has sent then they receive Jesus:
 Also, Jesus Christ Himself has instructed His disciples to call His own father 'father', rather than Himself. And
 we should by faith obey Jesus to do this:
 
-  Isaiah 9:6 - For to us a child is born, to us a son is given; and the government shall be upon his shoulder, and
-  his name shall be called Wonderful Counselor, Mighty God, Everlasting Father, Prince of Peace. (ESV)
-
-  Matthew 13:37 - He answered, The one who sows the good seed is the Son of Man. (ESV)
+  Matthew 6:3-4,6,17-18 - But when you give to the needy, do not let your left hand know what your right hand is
+  doing, so that your giving may be in secret. And your Father who sees in secret will reward you. But when you
+  pray, go into your room and shut the door and pray to your Father who is in secret. And your Father who sees in
+  secret will reward you. But when you fast, anoint your head and wash your face, that your fasting may not be
+  seen by others but by your Father who is in secret. And your Father who sees in secret will reward you. (ESV)
 
   John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become children of
   God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
@@ -3060,7 +3066,7 @@ should imitate him in imitating Christ:
   gave himself up for us, a fragrant offering and sacrifice to God. (ESV)
 
 So while someone can be "fathered" through the gospel, they end up having a relationship with Father God the
-father of Jesus Christ directly. However the Apostle Paul as not instructed anyone to refer to him as 'father'.
+father of Jesus Christ directly. However the Apostle Paul has not instructed anyone to refer to him as 'father'.
 Paul only claimed the title. Paul's teaching should never contradict or override Jesus Christ's teaching:
 
   I Corinthians 4:15 - For though you have countless guides in Christ, you do not have many fathers. For I became
@@ -132235,11 +132241,11 @@ does), and second to that is testifying before other human beings.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-17 Mon 19:36
+Date: 2026-08-18 Tue 11:47
 
 Author: Shane Mulligan
 
-Created: 2026-08-17 Mon 20:45
+Created: 2026-08-18 Tue 12:26
 
 Validate
 
