@@ -14,10 +14,16 @@ Jesus Christ, please forgive me if I have spoken anything incorrectly and have m
 
 In trusting Jesus and His words, we are led by Him. And it's very important that we are not led astray by a
 different voice, so we should be corrected and goaded and guided by Jesus. With soft hearts we should trust and
-obey Jesus' voice. He can see our hearts and knows who actually does follow Him:
+obey Jesus' voice. He can see our hearts and knows who actually does follow Him. The knowing doesn't come first.
+Abiding comes first, knowing the truth and having freedom from committing sin comes next, while abiding:
 
   I John 5:20 - And we know that the Son of God has come and has given us understanding, so that we may know him
   who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal life. (ESV)
+
+  John 8:31-32 - So Jesus said to the Jews who had believed (G4100 pepisteukotas; having believed) in him, If you
+  abide (G3306 meinēte; remain, abide, stay, continue, dwell, endure) in my word, you are truly my disciples, and
+  you will know the truth (G225 alētheia; truth, reality; i.e. walking in reality), and the truth will set you
+  free. (ESV)
 
   John 10:4-5 - When he has brought out all his own, he goes before them, and the sheep follow him, for they know
   his voice. A stranger they will not follow, but they will flee from him, for they do not know the voice of
@@ -518,9 +524,19 @@ person who loves Jesus will be "law of faith"-abiding (John 14:15, Romans 3:27, 
 
   John 14:15 - If you love me, you will keep my commandments. (ESV)
 
+  John 14:23-24 - Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and
+  we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word
+  that you hear is not mine but the Father's who sent me. (ESV)
+
   I John 4:19-21 - We love because he first loved us. If anyone says, I love God, and hates his brother, he is a
   liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this
   commandment we have from him: whoever loves God must also love his brother. (ESV)
+
+  I John 4:8 - Anyone who does not love does not know God, because God is love. (ESV)
+
+  I John 5:1-2 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. (ESV)
 
 When a person is forgiven, they are now someone who loves the truth, even the truth that we have first been loved
 by God:
@@ -705,6 +721,12 @@ faith is sin:
   For it would have been better for them never to have known the way of righteousness than after knowing it to
   turn back from the holy commandment delivered to them. What the true proverb says has happened to them: The dog
   returns to its own vomit, and the sow, after washing herself, returns to wallow in the mire. (ESV)
+
+Consider that the "wrath of man" is not done in faith:
+
+  James 1:19-21 - So then, my brethren beloved, let every man be swift to hear, slow to speak, slow to anger, for
+  the wrath of a man the righteousness of God doth not work; wherefore having put aside all filthiness and
+  superabundance of evil, in meekness be receiving the engrafted word, that is able to save your souls; (YLT)
 
 But as long as a person is able to be saved and brought back to faith in God, God goes after that person. And in
 coming back to faith though faith in Jesus, their former sins are blotted out and as they continue in faith, they
@@ -1166,6 +1188,31 @@ The salvation Jesus has bought is salvation from committing sin. Sanctification 
   John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
   way, that man is a thief and a robber. (ESV)
 
+  Psalms 101:7 - He who practices deceit shall not dwell within my house; He who speaks falsehood shall not
+  maintain his position before me. (NASB)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  I John 3:6-18 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or
+  known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. We should not be like Cain, who was of the
+  evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's
+  righteous. Do not be surprised, brothers, that the world hates you. We know that we have passed out of death
+  into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother
+  is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid
+  down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods
+  and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little
+  children, let us not love in word or talk but in deed and in truth. (ESV)
+
 youtube.com: Lovers of Darkness bring Corruption {@ TheOnceLostAndNowFoundSheep267 }
 
 Real faith loves God rather than evil. Real faith in Jesus prefers Him to evil. Real faith in Jesus prefers Him to
@@ -1450,7 +1497,8 @@ saves. Just keep holding faith in Jesus Christ:
   Ephesians 4:30 - And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption.
   (ESV)
 
-We believe the gospel into loving one-another as commanded, and into producing good deeds:
+We believe the gospel into loving one-another as commanded, and into producing good deeds that God works through
+us:
 
   I John 5:1-5 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
   Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
@@ -1465,6 +1513,40 @@ We believe the gospel into loving one-another as commanded, and into producing g
   John 14:15-17 - If you love me, you will keep my commandments. And I will ask the Father, and he will give you
   another Helper, to be with you forever, even the Spirit of truth, whom the world cannot receive, because it
   neither sees him nor knows him. You know him, for he dwells with you and will be in you. (ESV)
+
+  John 14:23-24 - Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and
+  we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word
+  that you hear is not mine but the Father's who sent me. (ESV)
+
+  I John 4:19-21 - We love because he first loved us. If anyone says, I love God, and hates his brother, he is a
+  liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this
+  commandment we have from him: whoever loves God must also love his brother. (ESV)
+
+  I John 4:8 - Anyone who does not love does not know God, because God is love. (ESV)
+
+  I John 5:1-2 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. (ESV)
+
+  Philippians 2:13 - For it is God which worketh in you both to will and to do of his good pleasure (G2107
+  eudokias; good desire). (KJV)
+
+The good deeds done in faith are not contrived as God provides (sets up) the deeds to do and works through the
+person who has faith in Jesus Christ. God would supply such deeds as in Matthew 25:31-40, but we should be
+obedient (with love for God; Psalms 81:15), giving thought to do what pleases God (Romans 12:17-21) ready to do
+those deeds (Titus 1:16, II Timothy 2:21). So we would recall, observe (Matthew 28:18-20), delight in (Romans
+7:17-23) Jesus' commandments and apply them by faith in Jesus when the opportunity to do so presents itself (James
+4:17), which could be right now as for many of Jesus' commandments, they can be applied from the heart
+immediately. Given Jesus' instructions in Matthew 5:38-48, we should apply them generally to bear with others in
+love and to not return evil for evil, turning the other cheek, loving those who hate us. God works through those
+who are having faith in Jesus:
+
+  Galatians 3:5-7 - Does he who supplies the Spirit to you and works miracles among you do so by works of the law,
+  or by hearing with faith— just as Abraham believed God, and it was counted to him as righteousness? Know then
+  that it is those of faith who are the sons of Abraham. (ESV)
+
+  I Corinthians 16:10 - When Timothy comes, see that you put him at ease among you, for he is doing the work of
+  the Lord, as I am. (ESV)
 
 A person who is "from God", who has received Jesus Christ, having received God's testimony about His Son,
 overcomes the world:
@@ -5142,6 +5224,9 @@ faith in Jesus, and by obedience to Jesus. Can a "repentant" person "enter" the 
 "have" sin? I think so. But I think they need to be repentant, able to be corrected by God. I think that they need
 to be having faith, and in having faith are not committing sin, but rather being sanctified (cleaned up),
 committing faith (so to speak) rather than committing sin.
+
+  Psalms 101:7 - He who practices deceit shall not dwell within my house; He who speaks falsehood shall not
+  maintain his position before me. (NASB)
 
 I think inheriting the Kingdom of God requires having been cleaned up. So in my understanding there is a
 distinction between entering and inheriting the Kingdom. To inherit the Kingdom of God, a person needs to have put
@@ -23765,6 +23850,8 @@ I truly believe that God is fair:
   people. (ESV)
 
   Proverbs 11:1 - A false balance is an abomination to the LORD, but a just weight is his delight. (ESV)
+
+  Proverbs 11:18 - The wicked is getting a lying wage, And whoso is sowing righteousness–a true reward. (YLT)
 
 I truly believe that God tests all people to see if they are law-abiding:
 
@@ -103360,6 +103447,8 @@ Those that obey Jesus' voice He will give eternal life:
 
   Proverbs 11:1 - A false balance is an abomination to the LORD, but a just weight is his delight. (ESV)
 
+  Proverbs 11:18 - The wicked is getting a lying wage, And whoso is sowing righteousness–a true reward. (YLT)
+
 54.6.2. Human beings were totally at the mercy of God. We needed Jesus to come. We still need Jesus
 
   Romans 3:10-13 - as it is written: None is righteous, no, not one; no one understands; no one seeks for God. All
@@ -132293,11 +132382,11 @@ does), and second to that is testifying before other human beings.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-18 Tue 17:54
+Date: 2026-08-19 Wed 09:38
 
 Author: Shane Mulligan
 
-Created: 2026-08-18 Tue 18:47
+Created: 2026-08-19 Wed 10:26
 
 Validate
 
