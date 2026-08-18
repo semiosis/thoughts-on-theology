@@ -1013,6 +1013,41 @@ Peter 3:7, Romans 6:16-18,7:25,8:1-4):
   I John 3:14 - We know that we have passed out of death into life, because we love the brothers. Whoever does not
   love abides in death. (ESV)
 
+We have faith in Jesus Christ into loving as God requires from us, and that means loving God and the children of
+God and our neighbour as God has commanded (Romans 13:9-10, I John 5:1-5). Keep in mind that if Jesus has said
+that "even sinners" do the same, as in love those who love them, and how Paul has said that what does not proceed
+from faith is sin, then what proceeds from a genuine faith in Jesus Christ will be that the requirement to love
+God and our neighbour, even those who hate us the way God requires, will be met:
+
+  Luke 6:32-36 - If you love those who love you, what benefit is that to you? For even sinners love those who love
+  them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same.
+  And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to
+  sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return,
+  and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the
+  evil. Be merciful, even as your Father is merciful. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  Romans 3:28 - For we hold that one is justified by faith apart from works of the law. (ESV)
+
+  Romans 5:1 - Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus
+  Christ. (ESV)
+
+  Galatians 2:15-16 - We ourselves are Jews by birth and not Gentile sinners; yet we know that a person is not
+  justified by works of the law but through faith in Jesus Christ, so we also have believed in Christ Jesus, in
+  order to be justified by faith in Christ and not by works of the law, because by works of the law no one will be
+  justified. (ESV)
+
+  Galatians 3:24 - So then, the law was our guardian until Christ came, in order that we might be justified by
+  faith. (ESV)
+
+  John 14:15 - If you love me, you will keep my commandments. (ESV)
+
+  Romans 8:3-4 - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the
+  likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of
+  the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
+
 "Sinless perfection" means "without even 'having' sin". The Apostle Paul describes having "indwelling sin" (Romans
 7:22-23). John says that if we say we have no sin we deceive ourselves. Having "indwelling sin" does not mean
 "committing sin", which is making more sin by transgression. Now Jesus Christ is sinless. Jesus has no sin at all.
@@ -1598,12 +1633,14 @@ This person is freed from compulsively committing evil deeds by the power that c
 Christ who is victorious over evil, Jesus Christ having condemned sin in the flesh. When someone is born-again /
 baptised into Christ's death it is especially necessary to consider oneself dead to sin.
 
-If a person is from the love of the truth obeying God's commandment to have faith in Jesus Christ, obedient now to
-Christ, then by the grace of God they no longer compulsively sin:
+If a person is from the love of the truth (I John 5:2) obeying God's commandment to have faith in Jesus Christ (I
+John 3:23-24), obedient now to Christ, then by the grace of God they no longer compulsively sin:
 
   Romans 6:6-8 - We know that our old self was crucified with him in order that the body of sin might be brought
   to nothing, so that we would no longer be enslaved to sin. For one who has died has been set free from sin. Now
   if we have died with Christ, we believe that we will also live with him. (ESV)
+
+  I John 5:2 - By this we know that we love the children of God, when we love God and obey his commandments. (ESV)
 
 Getting born-again does result in sin's power to enslave a person into doing evil deeds being taken away.
 Born-again people have the power to put to death the deeds of the flesh, and the power to abstain from sin, but
@@ -4056,6 +4093,8 @@ more sin. If it were impossible then Jesus' blood would be impure. But thank God
 clean so that we practice righteousness from the love of the truth. Whoever commits sin is a slave to sin, and the
 slave to sin does not remain in the house (God's house) forever. But the son remains forever. Thank God for His
 salvation. The one born of God doesn't commit sin.
+
+  I John 5:2 - By this we know that we love the children of God, when we love God and obey his commandments. (ESV)
 
 @9d7fish replied
 
@@ -10726,6 +10765,19 @@ light.
 
 The True God is the Father and the Son. However as a Trinitarian I also believe that Holy Spirit is also God,
 indivisible from God, and I would say that the True God is the Father and the Son and the Holy Spirit.
+
+  Matthew 28:18-20 - And Jesus came and said to them, All authority in heaven and on earth has been given to me.
+  Go therefore and make disciples of all nations, baptizing them in the name of the Father and of the Son and of
+  the Holy Spirit, teaching them to observe all that I have commanded you. And behold, I am with you always, to
+  the end of the age. (ESV)
+
+Matthew 28:19 (Interlinear)
+having gone (G4198 poreuthentes) therefore (G3767 oun) disciple (G3100 mathēteusate) all (G3956 panta) the (G3588
+ta) nations (G1484 ethnē) baptizing (G907 baptizontes) them (G846 autous) in (G1519 eis) the (G3588 to) name
+(G3686 onoma) of the (G3588 tou) Father (G3962 Patros) and (G2532 kai) of the (G3588 tou) Son (G5207 Huiou) and
+(G2532 kai) of the (G3588 tou) Holy (G40 Hagiou) Spirit (G4151 Pneumatos)
+
+See: youtube.com: The Trinity Explained Like You've Never Heard It! {@ joel . cauley }
 
 youtube.com: Jesus Christ - How Can we Know Him Better ? {@ newlife157 } @time: 18 min 33 sec
 
@@ -25526,7 +25578,7 @@ that serving the Lord Jesus Christ (Ephesians 6:5-8). If obeying an earthly mast
 "doing the will of God", if serving them involves doing evil rather than doing good, or if what they want you to
 do is not something that you can do in faith and love for the Truth, then we should not obey. Otherwise, we should
 obey them (Ephesians 6:5-8). Any type of obedience to God that is not originate from a love for the Truth is not
-genuine obedience (Psalms 81:12-15).
+genuine obedience (Psalms 81:12-15, I John 5:2).
 
   Ephesians 6:5-8 - Slaves, obey your earthly masters with fear and trembling, with a sincere heart, as you would
   Christ, not by the way of eye-service, as people-pleasers, but as servants of Christ, doing the will of God from
@@ -132241,11 +132293,11 @@ does), and second to that is testifying before other human beings.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-18 Tue 11:47
+Date: 2026-08-18 Tue 17:54
 
 Author: Shane Mulligan
 
-Created: 2026-08-18 Tue 12:26
+Created: 2026-08-18 Tue 18:47
 
 Validate
 

@@ -448,6 +448,24 @@ I think that to have the love of God completed in us (the righteous requirement 
 
 > **[I John 3:14](https://www.biblegateway.com/passage/?search=1%20John%203%3A14&version=ESV)** - We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. (ESV)
 
+We have faith in Jesus Christ into loving as God **requires** from us, and that means loving God and the children of God and our neighbour as God has commanded (**[Romans 13:9-10](https://www.biblegateway.com/passage/?search=Romans%2013%3A9-10&version=ESV)**, **[I John 5:1-5](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-5&version=ESV)**). Keep in mind that if Jesus has said that "even sinners" do the same, as in love those who love them, and how Paul has said that what does not proceed from faith is sin, then what proceeds from a *genuine* faith in Jesus Christ will be that the requirement to love God and our neighbour, even those who hate us the way God requires, will be met:
+
+> **[Luke 6:32-36](https://www.biblegateway.com/passage/?search=Luke%206%3A32-36&version=ESV)** - If you love those who love you, what benefit is that to you? For even sinners love those who love them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same. And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be merciful, even as your Father is merciful. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+> **[Romans 3:28](https://www.biblegateway.com/passage/?search=Romans%203%3A28&version=ESV)** - For we hold that one is justified by faith apart from works of the law. (ESV)
+
+> **[Romans 5:1](https://www.biblegateway.com/passage/?search=Romans%205%3A1&version=ESV)** - Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus Christ. (ESV)
+
+> **[Galatians 2:15-16](https://www.biblegateway.com/passage/?search=Galatians%202%3A15-16&version=ESV)** - We ourselves are Jews by birth and not Gentile sinners; yet we know that a person is not justified by works of the law but through faith in Jesus Christ, so we also have believed in Christ Jesus, in order to be justified by faith in Christ and not by works of the law, because by works of the law no one will be justified. (ESV)
+
+> **[Galatians 3:24](https://www.biblegateway.com/passage/?search=Galatians%203%3A24&version=ESV)** - So then, the law was our guardian until Christ came, in order that we might be justified by faith. (ESV)
+
+> **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
+
+> **[Romans 8:3-4](https://www.biblegateway.com/passage/?search=Romans%208%3A3-4&version=ESV)** - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
+
 "Sinless perfection" means "without even 'having' sin". The Apostle Paul describes having "indwelling sin" (**[Romans 7:22-23](https://www.biblegateway.com/passage/?search=Romans%207%3A22-23&version=ESV)**). John says that if we say we *have* no sin we deceive ourselves. Having "indwelling sin" does not mean "committing sin", which is making more sin by transgression. Now Jesus Christ is sinless. Jesus has no sin at all. Neither does Jesus commit sin. When a person uses a dirty towel on a clean plate, they dirty the plate. When a person uses a clean towel on a dirty plate, they clean the plate. Jesus is clean and cleans us. Jesus sanctifies us. 'Having sin' (**[I John 1:6-10](https://www.biblegateway.com/passage/?search=1%20John%201%3A6-10&version=ESV)**) is actually different from "committing sin". We can confess sin that we have (**[1 John 1:9](https://www.biblegateway.com/passage/?search=1%20John%201%3A9&version=ESV)**) and should to be cleaned from it.
 
 Someone who is born-again has had their old self crucified, and has been set free from sin (**[Romans 6:6-8](https://www.biblegateway.com/passage/?search=Romans%206%3A6-8&version=ESV)**) in the sense that they now have the power to rule over sin and to put sinful desires to death.
@@ -706,9 +724,11 @@ God at some point in His Sovereign and wise plan, makes a person born again. Thi
 This person is freed from compulsively committing evil deeds by the power that comes from having faith in Jesus Christ who is victorious over evil, Jesus Christ having condemned sin in the flesh.
 When someone is born-again / baptised into Christ's death it is especially necessary to consider oneself dead to sin.
 
-If a person is from the love of the truth obeying God's commandment to have faith in Jesus Christ, obedient now to Christ, then by the grace of God they no longer compulsively sin:
+If a person is from the love of the truth (**[I John 5:2](https://www.biblegateway.com/passage/?search=1%20John%205%3A2&version=ESV)**) obeying God's commandment to have faith in Jesus Christ (**[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)**), obedient now to Christ, then by the grace of God they no longer compulsively sin:
 
 > **[Romans 6:6-8](https://www.biblegateway.com/passage/?search=Romans%206%3A6-8&version=ESV)** - We know that our old self was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe that we will also live with him. (ESV)
+
+> **[I John 5:2](https://www.biblegateway.com/passage/?search=1%20John%205%3A2&version=ESV)** - By this we know that we love the children of God, <ins>when we **love God** and obey his commandments.</ins> (ESV)
 
 Getting born-again does result in sin's power to enslave a person into doing evil deeds being taken away.
 Born-again people have the power to put to death the deeds of the flesh, and the power to abstain from sin, but they need to maintain their faith in Jesus as they do so, because they must walk by the spirit and not by the flesh.
@@ -1904,6 +1924,8 @@ Because whoever abstains from sin subsequently suffers in the flesh (e.g. the Ad
 > **[I Peter 4:1-3](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A1-3&version=ESV)** - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
 
 -   **[youtube.com:  Post from Answering the Hard Questions](https://www.youtube.com/post/UgkxjrpFfntdX-2izOUPfNTc4A_6tWjm28L7):** So leading up to when I got born again, I had started trying to resist porn. I was so enslaved into doing sinful things though. Then by the grace of God, He made me born-again (regenerated spirit), new heart of flesh that feared Him. So after that I was empowered to resist committing sin. As a born-again Christian it's really important going forward to not obey the sinful flesh and its cravings for sin, but rather we must by faith in Jesus Christ, from a love of the truth (as opposed to a love of darkness) abide in Jesus Christ's commandments, and be overcome by practicing righteousness instead. Whatever overcomes a person, to that they are enslaved. God wants us to love Him with our whole heart, and that involves loving His children also. That's the circumcision of the new heart of flesh, where we are trained to walk in love the way we have been commanded to. So we want to go on bearing fruit for sanctification and eternal life, fruit that comes from a love for God, God having forgiven our former sin by sending Jesus Christ His Son to suffer and die for our sin and rise from the dead for our justification. We are justified by having a loving faith in Jesus Christ who Father God is pleased with, God's righteousness revealed. We want to be those who are enslaved to practice righteousness from the love of God, the love of God's righteousness, the love of Jesus Christ, seeking commendation from God. If we walk in the light (the love of the truth, the love of Jesus, agreeing with Jesus and His teachings) then the blood of Jesus washes us from all sin, and we have fellowship with one-another. But by the grace of God it is possible to stop committing more sin. If it were impossible then Jesus' blood would be impure. But thank God, Jesus' blood can wash our hearts clean so that we practice righteousness from the love of the truth. Whoever commits sin is a slave to sin, and the slave to sin does not remain in the house (God's house) forever. But the son remains forever. Thank God for His salvation. The one born of God doesn't commit sin.
+
+> **[I John 5:2](https://www.biblegateway.com/passage/?search=1%20John%205%3A2&version=ESV)** - By this we know that we love the children of God, <ins>when we **love God** and obey his commandments.</ins> (ESV)
 
 -   **@9d7fish replied:** So to clarify this is in the ball park of the opening of the first sentence and where the idea came from.
     
@@ -5498,6 +5520,12 @@ The way these Scriptures talk about "two in one bed, one will be taken and the o
         and the rays of light from the sun and the Sun itself I would consider to be "the Sun". In a way the stars can touch us with their light.
         
         The True God **is** the Father and the Son. However as a Trinitarian I also believe that Holy Spirit is also God, indivisible from God, and I would say that the True God **is** the Father and the Son and the Holy Spirit.
+    
+    > **[Matthew 28:18-20](https://www.biblegateway.com/passage/?search=Matthew%2028%3A18-20&version=ESV)** - And Jesus came and said to them, All authority in heaven and on earth has been given to me. Go therefore and make disciples of all nations, baptizing them in **the name of the Father and of the Son and of the Holy Spirit,** teaching them to observe all that I have commanded you. And behold, I am with you always, to the end of the age. (ESV)
+    
+    -   ****[Matthew 28:19](https://biblehub.com/interlinear/matthew/28-19.htm)** (Interlinear):** having gone [(G4198 poreuthentes)](G4198) therefore [(G3767 oun)](G3767) disciple [(G3100 mathēteusate)](G3100) all [(G3956 panta)](G3956) the [(G3588 ta)](G3588) nations [(G1484 ethnē)](G1484) baptizing [(G907 baptizontes)](G907) them [(G846 autous)](G846) in [(G1519 eis)](G1519) the [(G3588 to)](G3588) name [(G3686 onoma)](G3686) of the [(G3588 tou)](G3588) Father [(G3962 Patros)](G3962) and [(G2532 kai)](G2532) of the [(G3588 tou)](G3588) Son [(G5207 Huiou)](G5207) and [(G2532 kai)](G2532) of the [(G3588 tou)](G3588) Holy [(G40 Hagiou)](G40) Spirit [(G4151 Pneumatos)](G4151)
+    
+    See: [youtube.com:  The Trinity Explained Like You've Never Heard It! {@ joel . cauley }](https://www.youtube.com/shorts/_Wt-XJiJjMU)
     
     -   **[youtube.com:  Jesus Christ - How Can we Know Him Better ? {@ newlife157 } @time: 18 min 33 sec](https://youtube.com/watch?v=bXocAX__08A&t=1113):** You accept Jesus Christ, you accept the Father.
         You accept the Father and the Son, you accept the Holy Ghost.
@@ -13438,7 +13466,7 @@ We live in the Lord Jesus Christ while we stand fast in Him. How do we stand fas
 
 > **[Ephesians 6:1-3](https://www.biblegateway.com/passage/?search=Ephesians%206%3A1-3&version=ESV)** - Children, obey your parents in the Lord, for this is right. Honor your father and mother (this is the first **commandment with a promise**), that it may go well with you and that you may live long in the land. (ESV)
 
-We are to obey our earthly masters and parents "in the Lord" (**[Ephesians 6:1](https://www.biblegateway.com/passage/?search=Ephesians%206%3A1&version=ESV)**, **[Ephesians 6:5-6](https://www.biblegateway.com/passage/?search=Ephesians%206%3A5-6&version=ESV)**) and as we would Christ, abiding in His teachings, seeking to please Christ. Our first allegiance for obedience is to God, not to men. There may be times we we have to disobey our earthly master in order to obey God (like how Shadrach, Meshach, and Abednego had to disobey Nebuchadnezzar: **[Daniel 3:10-12](https://www.biblegateway.com/passage/?search=Daniel%203%3A10-12&version=ESV)**). God instructs us to obey our earthly masters in a way that serving the Lord Jesus Christ (**[Ephesians 6:5-8](https://www.biblegateway.com/passage/?search=Ephesians%206%3A5-8&version=ESV)**). If obeying an earthly master is done in a way that is not "doing the will of God", if serving them involves doing evil rather than doing good, or if what they want you to do is not something that you can do in faith and love for the Truth, then we should not obey. Otherwise, we should obey them (**[Ephesians 6:5-8](https://www.biblegateway.com/passage/?search=Ephesians%206%3A5-8&version=ESV)**). Any type of obedience to God that is not originate from a love for the Truth is not genuine obedience (**[Psalms 81:12-15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A12-15&version=ESV)**).
+We are to obey our earthly masters and parents "in the Lord" (**[Ephesians 6:1](https://www.biblegateway.com/passage/?search=Ephesians%206%3A1&version=ESV)**, **[Ephesians 6:5-6](https://www.biblegateway.com/passage/?search=Ephesians%206%3A5-6&version=ESV)**) and as we would Christ, abiding in His teachings, seeking to please Christ. Our first allegiance for obedience is to God, not to men. There may be times we we have to disobey our earthly master in order to obey God (like how Shadrach, Meshach, and Abednego had to disobey Nebuchadnezzar: **[Daniel 3:10-12](https://www.biblegateway.com/passage/?search=Daniel%203%3A10-12&version=ESV)**). God instructs us to obey our earthly masters in a way that serving the Lord Jesus Christ (**[Ephesians 6:5-8](https://www.biblegateway.com/passage/?search=Ephesians%206%3A5-8&version=ESV)**). If obeying an earthly master is done in a way that is not "doing the will of God", if serving them involves doing evil rather than doing good, or if what they want you to do is not something that you can do in faith and love for the Truth, then we should not obey. Otherwise, we should obey them (**[Ephesians 6:5-8](https://www.biblegateway.com/passage/?search=Ephesians%206%3A5-8&version=ESV)**). Any type of obedience to God that is not originate from a love for the Truth is not genuine obedience (**[Psalms 81:12-15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A12-15&version=ESV)**, **[I John 5:2](https://www.biblegateway.com/passage/?search=1%20John%205%3A2&version=ESV)**).
 
 > **[Ephesians 6:5-8](https://www.biblegateway.com/passage/?search=Ephesians%206%3A5-8&version=ESV)** - Slaves, obey your earthly masters with fear and trembling, with a sincere heart, as you would Christ, not by the way of eye-service, as people-pleasers, but **as servants of Christ, doing the will of God from the heart, rendering service with a good will as to the Lord and not to man**, knowing that whatever good anyone does, this he will receive back from the Lord, whether he is a slave or free. (ESV)
 
@@ -15877,7 +15905,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org14a24b2) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgda24f2f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -21416,7 +21444,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org964e6ed).
+I didn't know but it turned out to be the last day of my [sentence](#org2dea3d0).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -45650,7 +45678,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgc5cb679)
+See: [33.4.1](#org8ecec81)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -66963,7 +66991,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgc5cb679)
+See: [33.4.1](#org8ecec81)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -69617,7 +69645,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org0711634) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orga18509f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -77833,7 +77861,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org0711634) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orga18509f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -79169,7 +79197,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgb99f818)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org878eae1)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
