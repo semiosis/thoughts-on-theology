@@ -2924,6 +2924,72 @@ title belongs to God:
   if I am a master, where is my fear? says the LORD of hosts to you, O priests, who despise my name. But you say,
   How have we despised your name? (ESV)
 
+Keep that in mind, because there is a new way of serving God (Romans 14:17-18, Romans 7:4-6) in the spirit, and
+empowered by God.
+
+Ezekiel describes that God gives a person a new heart and spirit and causes them to walk in His statutes and be
+careful to obey His rules (Ezekiel 11:19-20), but this is in the new life of the spirit (Romans 7:4-6), rather
+than in the old written code.
+
+  Romans 2:29 - But a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the
+  letter. His praise is not from man but from God. (ESV)
+
+New Spirit, new creation, new genaeology, new father and new family. Jesus Christ's dad is God, not Joseph. The
+spirit is the truth (I John 5:6).
+
+If someone were to have told Jesus Christ that "he dishonors Joseph for not calling him father, and that he should
+go back and do some carpentry instead of preaching sermons" then they would be wrong. Jesus practiced the truth in
+calling God His father.
+
+In Jesus' words in Mark 7:12, he is saying that by no longer permitting someone to do anything for their father or
+mother, they make void the word of God by their tradition.
+
+  Mark 7:6-13 - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, This people
+  honors me with their lips, but their heart is far from me; in vain do they worship me, teaching as doctrines the
+  commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You
+  have a fine way of rejecting the commandment of God in order to establish your tradition! For Moses said, Honor
+  your father and your mother; and, Whoever reviles father or mother must surely die. But you say, If a man tells
+  his father or his mother, Whatever you would have gained from me is Corban (that is, given to God)— then you no
+  longer permit him to do anything for his father or mother, thus making void the word of God by your tradition
+  that you have handed down. And many such things you do. (ESV)
+
+chaimbentorah.com: Hebrew Word Study - Corban - ???? - Chaim Bentorah
+The traditional interpretation is that Jesus was speaking to the priest and Pharisees about the fifth commandment
+which is to honor your father and mother. Jesus was saying that you neglect your duty to help your parents
+financially by saying that all your resources are a corban or a gift to God but you use that as an excuse not to
+help your parents as your parents would rather starve to death than steal from God. Then you keep those resources
+for your own benefit.
+
+The title of 'father' belongs to God for the person to keeps Jesus' commandment to call no man on earth father for
+they have one father who is in heaven.
+
+  Matthew 22:21 - They said, Caesar's. Then he said to them, Therefore render to Caesar the things that are
+  Caesar's, and to God the things that are God's. (ESV)
+
+And it is certainly not unloving to keep Jesus Christ's commandments:
+
+  John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
+  loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+  I John 5:1-2 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. (ESV)
+
+But we must do so from the love of God (Psalms 81:15) and of Jesus Christ (John 8:42) and through faith in Jesus
+Christ's name (John 1:12) and God will discipline every son He receives into loving Him and one-another in the way
+He has commanded (Hebrews 12:9, Hebrews 12:4-8).
+
+The title of 'father' belongs to God, as Jesus has commanded, and as Jesus has instructed we should give God what
+belongs to God. And so, to pressure someone into not keeping Jesus' commandment to call no man on earth 'father'
+is actually to pressure them into dishonoring God. It's not dishonoring to one's previous parents to give the
+title of 'father' to God and no longer to one's previous father. So by saying it's dishonoring to not abide by
+this commandment from Jesus Christ is actually to make void the commandment of Jesus Christ who is God the Son, in
+order to establish a tradition that is against the teachings of Christ.
+
+Now a Christian is instructed by the Apostle Peter to honor all people 1 Peter 2:17, and so to keep Christ's
+commandment to call no man on earth father, is not against honoring one's previous parents because both Christ's
+commandment and the Apostle Peter's instruction are able to be kept at the same time.
+
 When Jesus Christ is one's Master, then they follow Jesus. So, for example, out of a love for Jesus, they would
 "call no man on Earth their father" in obedience to Christ's commandments. If a person is walking by the spirit,
 keeping Jesus Christ's commandments, then they are not under the law and will not gratify the desires of the
@@ -132463,11 +132529,11 @@ does), and second to that is testifying before other human beings.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-19 Wed 12:38
+Date: 2026-08-19 Wed 19:37
 
 Author: Shane Mulligan
 
-Created: 2026-08-19 Wed 12:44
+Created: 2026-08-19 Wed 19:42
 
 Validate
 

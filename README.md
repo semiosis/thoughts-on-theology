@@ -1346,6 +1346,40 @@ Disciples of Jesus Christ should not give the title of 'father' to anybody else 
 
 > **[Malachi 1:6](https://www.biblegateway.com/passage/?search=Malachi%201%3A6&version=ESV)** - A son honors his father, and a servant his master. If then I am a father, where is my honor? And if I am a master, where is my fear? says the LORD of hosts to you, O priests, who despise my name. But you say, How have we despised your name? (ESV)
 
+Keep that in mind, because there is a new way of serving God (**[Romans 14:17-18](https://www.biblegateway.com/passage/?search=Romans%2014%3A17-18&version=ESV)**, **[Romans 7:4-6](https://www.biblegateway.com/passage/?search=Romans%207%3A4-6&version=ESV)**) in the spirit, and empowered by God.
+
+Ezekiel describes that God gives a person a new heart and spirit and causes them to walk in His statutes and be careful to obey His rules (**[Ezekiel 11:19-20](https://www.biblegateway.com/passage/?search=Ezekiel%2011%3A19-20&version=ESV)**), but this is in the new life of the spirit (**[Romans 7:4-6](https://www.biblegateway.com/passage/?search=Romans%207%3A4-6&version=ESV)**), rather than in the old written code.
+
+> **[Romans 2:29](https://www.biblegateway.com/passage/?search=Romans%202%3A29&version=ESV)** - But a Jew is one inwardly, and circumcision is a matter of the heart, by the Spirit, not by the letter. His praise is not from man but from God. (ESV)
+
+New Spirit, new creation, new genaeology, new father and new family. Jesus Christ's dad is God, not Joseph.
+The spirit is the truth ([I John 5:6](https://www.biblegateway.com/passage/?search=1%20John%205%3A6&version=ESV)).
+
+If someone were to have told Jesus Christ that "he dishonors Joseph for not calling him father, and that he should go back and do some carpentry instead of preaching sermons" then they would be wrong. Jesus practiced the truth in calling God His father.
+
+In Jesus' words in Mark 7:12, he is saying that by no longer permitting someone to do anything for their father or mother, they make void the word of God by their tradition.
+
+> **[Mark 7:6-13](https://www.biblegateway.com/passage/?search=Mark%207%3A6-13&version=ESV)** - And he said to them, Well did Isaiah prophesy of you hypocrites, as it is written, This people honors me with their lips, but their heart is far from me; in vain do they worship me, teaching as doctrines the commandments of men. You leave the commandment of God and hold to the tradition of men. And he said to them, You have a fine way of rejecting the commandment of God in order to establish your tradition! For Moses said, Honor your father and your mother; and, Whoever reviles father or mother must surely die. But you say, If a man tells his father or his mother, Whatever you would have gained from me is Corban (that is, given to God)— then you no longer permit him to do anything for his father or mother, thus making void the word of God by your tradition that you have handed down. And many such things you do. (ESV)
+
+-   **[chaimbentorah.com:  Hebrew Word Study - Corban - ???? - Chaim Bentorah](https://www.chaimbentorah.com/2022/08/hebrew-word-study-corban-%D7%A7%D7%A8%D7%91%D7%9F-3/):** The traditional interpretation is that Jesus was speaking to the priest and Pharisees about the fifth commandment which is to honor your father and mother. Jesus was saying that you neglect your duty to help your parents financially by saying that all your resources are a corban or a gift to God but you use that as an excuse not to help your parents as your parents would rather starve to death than steal from God. Then you keep those resources for your own benefit.
+
+The title of 'father' belongs to God for the person to keeps Jesus' commandment to call no man on earth father for they have one father who is in heaven.
+
+> **[Matthew 22:21](https://www.biblegateway.com/passage/?search=Matthew%2022%3A21&version=ESV)** - They said, Caesar's. Then he said to them, Therefore render to Caesar the things that are Caesar's, and to God the things that are God's. (ESV)
+
+And it is certainly not unloving to keep Jesus Christ's commandments:
+
+> **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+> **[I John 5:1-2](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-2&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and **everyone who loves the Father loves whoever has been born of him.** By this we know that we love the children of God, when <ins>we love God **and** obey his commandments.</ins> (ESV)
+
+But we must do so from the love of God ([Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)) and of Jesus Christ (**[John 8:42](https://www.biblegateway.com/passage/?search=John%208%3A42&version=ESV)**) and through faith in Jesus Christ's name (**[John 1:12](https://www.biblegateway.com/passage/?search=John%201%3A12&version=ESV)**) and God will discipline every son He receives into loving Him and one-another in the way He has commanded (**[Hebrews 12:9](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A9&version=ESV)**, **[Hebrews 12:4-8](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A4-8&version=ESV)**).
+
+The title of 'father' belongs to God, as Jesus has commanded, and as Jesus has instructed we should give God what belongs to God. And so, to pressure someone into not keeping Jesus' commandment to call no man on earth 'father' is actually to pressure them into dishonoring God.
+It's not dishonoring to one's previous parents to give the title of 'father' to God and no longer to one's previous father. So by saying it's dishonoring to not abide by this commandment from Jesus Christ is actually to make void the commandment of Jesus Christ who is God the Son, in order to establish a tradition that is against the teachings of Christ.
+
+Now a Christian is instructed by the Apostle Peter to honor all people [1 Peter 2:17](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A17&version=ESV), and so to keep Christ's commandment to call no man on earth father, is not against honoring one's previous parents because both Christ's commandment and the Apostle Peter's instruction are able to be kept at the same time.
+
 When Jesus Christ is one's Master, then they follow Jesus. So, for example, out of a love for Jesus, they would "call no man on Earth their father" in obedience to Christ's commandments. If a person is walking by the spirit, keeping Jesus Christ's commandments, then they are not under the law and will not gratify the desires of the flesh:
 
 > **[Galatians 5:17-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A17-18&version=ESV)** - For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not under the law. (ESV)
@@ -15943,7 +15977,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgebc996c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga3a9812) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -21482,7 +21516,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgca2c2da).
+I didn't know but it turned out to be the last day of my [sentence](#orgda0c282).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -45750,7 +45784,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orge98c922)
+See: [33.4.1](#orga5470e3)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -67065,7 +67099,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orge98c922)
+See: [33.4.1](#orga5470e3)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -69719,7 +69753,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org859bb95) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgec4651d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -72947,7 +72981,7 @@ There are other instances of this - it's faith in Jesus which makes a person wel
 
     1  6213              3598         3685          2015
     2  ‘ō·śêh            ḵî·māh       ū·ḵə·sîl,     wə·hō·p̄êḵ
-    3  עֹשֵׂ֨ה	              כִימָ֜ה         וּכְסִ֗יל         וְהֹפֵ֤ךְ
+    3  עֹשֵׂ֨ה                כִימָ֜ה         וּכְסִ֗יל         וְהֹפֵ֤ךְ
     4  He made           the Pleiades and Orion     and He turns
     5  V‑Qal‑Prtcpl‑msc  N‑fs         Conj‑w | N‑ms Conj‑w | V‑Qal‑Prtcpl‑ms
 
@@ -73246,7 +73280,7 @@ Nevertheless, that doesn't mean that being male and female is not characteristic
 
 > **[Matthew 19:4-9](https://www.biblegateway.com/passage/?search=Matthew%2019%3A4-9&version=ESV)** - He answered, Have you not read that he who created them from the beginning made them male and female, and said, Therefore a man shall leave his father and his mother and hold fast to his wife, and they shall become one flesh? So they are no longer two but one flesh. What therefore God has joined together, let not man separate. They said to him, Why then did Moses command one to give a certificate of divorce and to send her away? He said to them, Because of your hardness of heart Moses allowed you to divorce your wives, but from the beginning it was not so. And I say to you: whoever divorces his wife, except for sexual immorality, and marries another, commits adultery. (ESV)
 
--   **[answersingenesis.org:  What Is the Image of God ?	 | Answers in Genesis](https://answersingenesis.org/genesis/what-is-image-of-god/):** The Hebrew word for “man” in this text is adam (אדם). Depending on context, the word can mean “man,” “mankind,” or the name “Adam.”3 The sub-categories of humanity are used with different words and the distinction is visible in both Hebrew and English. These sub-categories of mankind are “male” (zakar זכר) and “female” (neqebah נקבה). The language usage is profound and makes a significant point that the image of God distinction is made between mankind and all other creatures, not between the sub-categories of male and female.
+-   **[answersingenesis.org:  What Is the Image of God ?     | Answers in Genesis](https://answersingenesis.org/genesis/what-is-image-of-god/):** The Hebrew word for “man” in this text is adam (אדם). Depending on context, the word can mean “man,” “mankind,” or the name “Adam.”3 The sub-categories of humanity are used with different words and the distinction is visible in both Hebrew and English. These sub-categories of mankind are “male” (zakar זכר) and “female” (neqebah נקבה). The language usage is profound and makes a significant point that the image of God distinction is made between mankind and all other creatures, not between the sub-categories of male and female.
     
     It is only regarding the creation of mankind that God says, “Let us make man in our own image,” and God only directly breathed into man’s nostrils the breath of life (Genesis 1:26, 2:7). Everything in the text of Genesis 1 and 2 denotes the intimate actions of God in creating mankind (both the first man and the first woman) compared to the general nature of creating everything else.
 
@@ -73343,7 +73377,7 @@ Nevertheless, that doesn't mean that being male and female is not characteristic
 
 > **[Genesis 1:27](https://www.biblegateway.com/passage/?search=Genesis%201%3A27&version=ESV)** - So God created man in his own image, in the image of God he created him; male and female he created them. (ESV)
 
--   **[answersingenesis.org:  What Is the Image of God ?	 | Answers in Genesis](https://answersingenesis.org/genesis/what-is-image-of-god/):** The Hebrew word for “man” in this text is adam (אדם). Depending on context, the word can mean “man,” “mankind,” or the name “Adam.”3 The sub-categories of humanity are used with different words and the distinction is visible in both Hebrew and English. These sub-categories of mankind are “male” (zakar זכר) and “female” (neqebah נקבה). The language usage is profound and makes a significant point that the image of God distinction is made between mankind and all other creatures, not between the sub-categories of male and female.
+-   **[answersingenesis.org:  What Is the Image of God ?     | Answers in Genesis](https://answersingenesis.org/genesis/what-is-image-of-god/):** The Hebrew word for “man” in this text is adam (אדם). Depending on context, the word can mean “man,” “mankind,” or the name “Adam.”3 The sub-categories of humanity are used with different words and the distinction is visible in both Hebrew and English. These sub-categories of mankind are “male” (zakar זכר) and “female” (neqebah נקבה). The language usage is profound and makes a significant point that the image of God distinction is made between mankind and all other creatures, not between the sub-categories of male and female.
     
     It is only regarding the creation of mankind that God says, “Let us make man in our own image,” and God only directly breathed into man’s nostrils the breath of life (Genesis 1:26, 2:7). Everything in the text of Genesis 1 and 2 denotes the intimate actions of God in creating mankind (both the first man and the first woman) compared to the general nature of creating everything else.
 
@@ -77935,7 +77969,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org859bb95) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgec4651d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -79271,7 +79305,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgcaa2f67)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgb96f94c)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -82230,7 +82264,7 @@ Indulging on stolen property to write software is not OK, so I don't join them i
 Today I listened to a sermon which I appreciated very much.
 
     1  Monday March 30, 2026
-    2  18:02:31	The Foundations Pulpit: Sunday Evening Service - Dr. H. T. Spence	81:41
+    2  18:02:31 The Foundations Pulpit: Sunday Evening Service - Dr. H. T. Spence   81:41
 
 Without love for God and His word, a person would feign their obedience, and a person might become bitter and despise God's instruction and then God's instruction would feel legalistic.
 Even in the New Covenant, we need to love God in order to keep covenant.
