@@ -15943,7 +15943,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org356870d) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgebc996c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -21482,7 +21482,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgafccad0).
+I didn't know but it turned out to be the last day of my [sentence](#orgca2c2da).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -29302,6 +29302,40 @@ Everyone will give an account of themself to God:
 > **[Romans 14:14-15](https://www.biblegateway.com/passage/?search=Romans%2014%3A14-15&version=ESV)** - I know and am persuaded in the Lord Jesus that nothing is unclean in itself, but it is unclean for anyone who thinks it unclean. For if your brother is grieved by what you eat, you are no longer walking in love. By what you eat, do not destroy the one for whom Christ died. (ESV)
 
 > **[Mark 7:18-19](https://www.biblegateway.com/passage/?search=Mark%207%3A18-19&version=ESV)** - And he said to them, Then are you also without understanding? Do you not see that whatever goes into a person from outside cannot defile him, since it enters not his **heart** but his stomach, and is expelled? *(Thus he declared all foods clean.)* (ESV)
+
+-   **[youtube.com:  He Used 1 Timothy 4 To Refute Me &#x2026; It Backfired {@ OutsideTheCamp<sub>Heb1313</sub> }](https://www.youtube.com/watch?v=Rr4E3XDZNX0):** I commented:
+    
+    Jesus didn't say "whatever you put". He said "whatever goes into". Big difference. One comes from a person's own will which comes from the heart, the other just happened to the person. Big difference. Whatever does not proceed from faith is sin. That being said, I'm not under old covenant law, but if somebody was observing the command to not eat pig and they could not eat pig in faith, and it was known to me then I would avoid eating pig when around them because I wouldn't want them to stumble in their faith.
+    
+    [Romans 14:18-23](https://www.biblegateway.com/passage/?search=Romans%2014%3A18-23&version=ESV) - Whoever thus serves Christ is acceptable to God and approved by men. So then let us pursue what makes for peace and for mutual upbuilding. Do not, for the sake of food, destroy the work of God. Everything is indeed clean, but it is wrong for anyone to make another stumble by what he eats. It is good not to eat meat or drink wine or do anything that causes your brother to stumble. The faith that you have, keep between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+    
+    [Titus 1:9-15](https://www.biblegateway.com/passage/?search=Titus%201%3A9-15&version=ESV) - He must hold firm to the trustworthy word as taught, so that he may be able to give instruction in sound doctrine and also to rebuke those who contradict it. For there are many who are insubordinate, empty talkers and deceivers, especially those of the circumcision party. They must be silenced, since they are upsetting whole families by teaching for shameful gain what they ought not to teach. One of the Cretans, a prophet of their own, said, Cretans are always liars, evil beasts, lazy gluttons. This testimony is true. Therefore rebuke them sharply, that they may be sound in the faith, not devoting themselves to Jewish myths and the commands of people who turn away from the truth. To the pure, all things are pure, but to the defiled and unbelieving, nothing is pure; but both their minds and their consciences are defiled. (ESV)
+    
+    [Matthew 15:10-14](https://www.biblegateway.com/passage/?search=Matthew%2015%3A10-14&version=ESV) - And he called the people to him and said to them, Hear and understand: it is not what goes into the mouth that defiles a person, but what comes out of the mouth; this defiles a person. Then the disciples came and said to him, Do you know that the Pharisees were offended when they heard this saying? He answered, Every plant that my heavenly Father has not planted will be rooted up. Let them alone; they are blind guides. And if the blind lead the blind, both will fall into a pit. (ESV)
+    
+    5:46 There's nothing wrong with observing the commandment to not drink blood, or the commandment to not eat pig. But the error of Outside The Camp's position is that he is saying the commandment is kept by adhering to the external action. Jesus says what goes into a person does not defile them. Something external happening to the person doesn't defile them. So, for example, if someone was assaulted forcefully having pork put down their throat against their will while they want to be keeping the commandment, the person is not defiled by it because they did not will it to happen to them. In fact, perhaps they are even being persecuted for righteousness sake in that hypothetical situation, but undefiled.
+    
+    And a person who is born of God who "sinneth not" who has an inwards desire to do God's will for them, may be "assaulted" in such a way by indwelling sin which is in their sinful flesh.
+    
+    The person born of God agrees with the person and work of Jesus Christ Son of God, and loves as God has commanded and does not sin.
+    When Jesus was painted as a criminal, and crucified, that doesn't mean that Jesus was a criminal.
+    When something happens to a person from the outside merely to their flesh, if it does not enter the heart, can't defile a person.
+    
+    [Mark 7:18-20](https://www.biblegateway.com/passage/?search=Mark%207%3A18-20&version=YLT) - and he saith to them, \`So also ye are without understanding! Do ye not perceive that nothing from without entering into the man is able to defile him? because it doth not enter into his heart, but into the belly, and into the drain it doth go out, purifying all the meats.' And he said&#x2013;\`That which is coming out from the man, that doth defile the man; (YLT)
+    
+    The person born of God is not the indwelling sin of the sinful flesh.
+    
+    A person gets born again of the spirit, baptized into Christ's death, and is resurrected spiritually while still carrying around the 'Adamic' flesh which has indwelling sin, until they receive their resurrection body. Water baptism, is an appeal for a good conscience through the resurrection of Jesus Christ. So water baptism, is basically an appeal to God to be baptised into Christ's death, all things new, keeping the commandments of God for them from a pure heart, clean conscience, sincere faith, that is to love God and one-another as we have been commanded to. Being born-again of the spirit is necessary to see and to enter into the Kingdom of God.
+    
+    [Romans 7:19-23](https://www.biblegateway.com/passage/?search=Romans%207%3A19-23&version=ESV) - For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. (ESV)
+    
+    We don't want to be the cause of sin to ourselves or to others. But we should keep God's commandments that are for us to keep, and we should keep them from faith:
+    
+    [I Corinthians 3:17](https://www.biblegateway.com/passage/?search=1%20Corinthians%203%3A17&version=ESV) - If anyone destroys God's temple, God will destroy him. For God's temple is holy, and you are that temple. (ESV)
+    
+    [Mark 9:42](https://www.biblegateway.com/passage/?search=Mark%209%3A42&version=ESV) - Whoever causes one of these little ones who believe in me to sin, it would be better for him if a great millstone were hung around his neck and he were thrown into the sea. (ESV)
+    
+    [Matthew 13:41](https://www.biblegateway.com/passage/?search=Matthew%2013%3A41&version=ESV) - The Son of Man will send his angels, and they will gather out of his kingdom all causes of sin and all law-breakers, (ESV)
 
 In some cases, I might even admire those that go beyond what a law strictly requires, inclusive of what the law requires. If a person wanted to go beyond **[Exodus 20:13](https://www.biblegateway.com/passage/?search=Exodus%2020%3A13&version=ESV)** to avoid eating meat to spare the lives of animals and make themself accountable to God over that in the hope it pleases God then I admire that commitment actually, but I wouldn't let anyone pass judgement on me over eating meat myself:
 
@@ -45716,7 +45750,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org03315f0)
+See: [33.4.1](#orge98c922)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -67031,7 +67065,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org03315f0)
+See: [33.4.1](#orge98c922)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -69685,7 +69719,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org76588ee) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org859bb95) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -77901,7 +77935,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org76588ee) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org859bb95) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -79237,7 +79271,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org7065e92)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgcaa2f67)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
