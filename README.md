@@ -1380,6 +1380,12 @@ It's not dishonoring to one's previous parents to give the title of 'father' to 
 
 Now a Christian is instructed by the Apostle Peter to honor all people [1 Peter 2:17](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A17&version=ESV), and so to keep Christ's commandment to call no man on earth father, is not against honoring one's previous parents because both Christ's commandment and the Apostle Peter's instruction are able to be kept at the same time.
 
+If someone claims that Jesus Christ is their brother, then surely they then consider God to be their Father, as Jesus Christ's father is God the father of Jesus Christ. But that God is their father is especially true if Jesus Christ considers them to be a brother because if Jesus calls a person brother then that person's father is Jesus' father:
+
+> **[Romans 8:29](https://www.biblegateway.com/passage/?search=Romans%208%3A29&version=ESV)** - For those whom he foreknew he also **predestined to be conformed to the image of his Son**, in order that he might be the firstborn among many brothers. (ESV)
+
+> **[Psalms 22:22](https://www.biblegateway.com/passage/?search=Psalms%2022%3A22&version=ESV)** - I will tell of your name to my brothers; in the midst of the congregation I will praise you: (ESV)
+
 When Jesus Christ is one's Master, then they follow Jesus. So, for example, out of a love for Jesus, they would "call no man on Earth their father" in obedience to Christ's commandments. If a person is walking by the spirit, keeping Jesus Christ's commandments, then they are not under the law and will not gratify the desires of the flesh:
 
 > **[Galatians 5:17-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A17-18&version=ESV)** - For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not under the law. (ESV)
@@ -3600,6 +3606,59 @@ People injure their own selves by rejecting Jesus. If you were to tell someone w
 
 We endeavour to have the love of God perfected in us and it is attainable (**[I Peter 1:22-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22-25&version=ESV)**, **[Matthew 5:38-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A38-48&version=ESV)**, **[Romans 12:9-21](https://www.biblegateway.com/passage/?search=Romans%2012%3A9-21&version=ESV)**, **[I John 4:16-20](https://www.biblegateway.com/passage/?search=1%20John%204%3A16-20&version=ESV)**, **[Matthew 19:21](https://www.biblegateway.com/passage/?search=Matthew%2019%3A21&version=ESV)**, **[Hebrews 7:11](https://www.biblegateway.com/passage/?search=Hebrews%207%3A11&version=ESV)**).
 We remain faithful to Jesus (**[Matthew 10:32-38](https://www.biblegateway.com/passage/?search=Matthew%2010%3A32-38&version=ESV)**, **[II Timothy 3:7-8](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A7-8&version=ESV)**) and don't deny Him before other people.
+
+The Christian's duty is to love God and their neighbour as they are commanded to:
+
+> **[I John 5:1](https://www.biblegateway.com/passage/?search=1%20John%205%3A1&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. (ESV)
+
+> **[John 16:27](https://www.biblegateway.com/passage/?search=John%2016%3A27&version=ESV)** - for the Father himself loves you, because you have loved me and have believed that I came from God. (ESV)
+
+> **[I John 4:12-15](https://www.biblegateway.com/passage/?search=1%20John%204%3A12-15&version=ESV)** - No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. By this we know that we abide in him and he in us, because he has given us of his Spirit. And we have seen and testify that the Father has sent his Son to be the Savior of the world. Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. (ESV)
+
+> **[Romans 13:8-10](https://www.biblegateway.com/passage/?search=Romans%2013%3A8-10&version=ESV)** - **Owe no one anything, except to love each other, for the one who loves another has fulfilled the law.** The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as yourself. Love does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
+> **[Galatians 5:13-14](https://www.biblegateway.com/passage/?search=Galatians%205%3A13-14&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your neighbor as yourself. (ESV)
+
+> **[James 2:8-16](https://www.biblegateway.com/passage/?search=James%202%3A8-16&version=ESV)** - If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. But if you show partiality, you are committing sin and are convicted by the law as transgressors. For whoever keeps the whole law but fails in one point has become accountable for all of it. For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you have become a transgressor of the law. So speak and so act as those who are to be judged under the law of liberty. For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment. What good is it, my brothers, if someone says he has faith but does not have works? Can that faith save him? If a brother or sister is poorly clothed and lacking in daily food, and one of you says to them, Go in peace, be warmed and filled, without giving them the things needed for the body, what good is that? (ESV)
+
+> **[I John 5:2](https://www.biblegateway.com/passage/?search=1%20John%205%3A2&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. (ESV)
+
+Even sinners love those who love them. But if a neighbour hates you, or does evil to you, we should still love them as they are still a neighbour, and we should love them the way God wants us to love them. The Christian is called to do good to all:
+
+> **[Luke 6:32-36](https://www.biblegateway.com/passage/?search=Luke%206%3A32-36&version=ESV)** - If you love those who love you, what benefit is that to you? For even sinners love those who love them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same. And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be merciful, even as your Father is merciful. (ESV)
+
+> **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
+
+> **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him, You have answered correctly; do this, and you will live. But he, desiring to justify himself, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, he had compassion. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, Take care of him, and whatever more you spend, I will repay you when I come back. Which of these three, do you think, proved to be a neighbor to the man who fell among the robbers? He said, The one who showed him mercy. And Jesus said to him, You go, and do likewise. (ESV)
+
+To have the love of God completed in us we need to be those who love others as we have been loved by God. To love God in a complete way involves not simply loving His word but loving His children:
+
+> **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
+
+> **[I John 4:16-17](https://www.biblegateway.com/passage/?search=1%20John%204%3A16-17&version=ESV)** - So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
+
+> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect [(G5046 teleioi; complete, mature)](G5046), as your heavenly Father is perfect. (ESV)
+
+> **[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)** - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. **Whoever keeps his commandments abides in him, and he in them**. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+> **[I John 5:1-2](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-2&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. <ins>By this we know that we love the children of God, when we love God **and** obey his commandments.</ins> (ESV)
+
+-   [Polycarp 3:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html) [3:2 the faith given to you] which is the mother of us all, while hope followeth after and
+    **love goeth before** &#x2013; <ins>love toward God and Christ and toward our neighbor.</ins> For
+    if any man be occupied with these, he hath fulfilled the commandment
+    of righteousness; for he that hath love is far from all sin.
+
+> **[II Thessalonians 1:3](https://www.biblegateway.com/passage/?search=2%20Thessalonians%201%3A3&version=ESV)** - We ought always to give thanks to God for you, brothers, as is right, because your faith is growing abundantly, and the love of every one of you for one another is increasing. (ESV)
+
+> **[I John 3:14](https://www.biblegateway.com/passage/?search=1%20John%203%3A14&version=ESV)** - We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. (ESV)
+
+> **[Colossians 1:21-23](https://www.biblegateway.com/passage/?search=Colossians%201%3A21-23&version=ESV),1:28,2:1-3** - And you, who once were alienated and hostile in mind, doing evil deeds, he has now reconciled in his body of flesh by his death, in order <ins>to present you holy and blameless and above reproach before him, if indeed you continue in the faith, stable and steadfast, not shifting from the **hope of the gospel** that you heard</ins>, which has been proclaimed in all creation under heaven, and of which I, Paul, became a minister. Him we proclaim, warning everyone and teaching everyone with all wisdom, that we may present everyone **mature in Christ**. For I want you to know how great a struggle I have for you and for those at Laodicea and for all who have not seen me face to face, that their hearts may be encouraged, being **knit together in love**, to reach all the riches of full assurance of understanding and the knowledge of God's mystery, which is Christ, in whom are hidden all the treasures of wisdom and knowledge. (ESV)
+
+> **[I John 3:2-4](https://www.biblegateway.com/passage/?search=1%20John%203%3A2-4&version=ESV)** - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that <ins>when he appears we shall be like him, because we shall see him as he is.</ins> And **everyone who thus hopes in him purifies himself as he is pure**. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. (ESV)
+
+> **[John 14:20-24](https://www.biblegateway.com/passage/?search=John%2014%3A20-24&version=ESV)** - In that day you will know that I am in my Father, and you in me, and I in you. Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not to the world? Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
+
+> **[John 8:51](https://www.biblegateway.com/passage/?search=John%208%3A51&version=ESV)** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
 
 If our love for God is real then we must forgive and love one-another in Christ:
 
@@ -15977,7 +16036,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga3a9812) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbefaaf6) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -21516,7 +21575,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgda0c282).
+I didn't know but it turned out to be the last day of my [sentence](#org859b219).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -45784,7 +45843,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga5470e3)
+See: [33.4.1](#orgd6b901c)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -58754,7 +58813,8 @@ We must be like children of God to enter the Kingdom. Children of God are like t
 God in love for all people, did good to all in sending Christ into the world to die on a cross and rise from the dead in order that we may be be reconciled to God through faith in Jesus Christ. And because Jesus wants us to be the light of the world, we should demonstate to others what the love of Jesus Christ looks like, through action.
 God also notices (**[Proverbs 24:17-18](https://www.biblegateway.com/passage/?search=Proverbs%2024%3A17-18&version=ESV)**) these things.
 
-But loving our fellow countryman (**[Leviticus 19:17-18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A17-18&version=ESV)**) or fellow man in deed should not come at the expense of maintaining our obligations to our family in Christ and of those in our household and relatives to love them in deed. We don't commit evil to our family in order to "do a good deed". When it comes to our family in Christ, we should be prepared to lay down our lives down for one-another, making heavy sacrifices in order to support one-another as we hold faith in Jesus Christ. Remember the world loves those who are of the world (**[John 15:18-19](https://www.biblegateway.com/passage/?search=John%2015%3A18-19&version=ESV)**). But because Jesus chose us out of the world, then the world hates us:
+But loving our fellow countryman (**[Leviticus 19:17-18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A17-18&version=ESV)**) or fellow man in deed should not come at the expense of maintaining our obligations to our family in Christ and of those in our household and relatives to love them in deed.
+We don't commit evil to our family in order to "do a good deed". When it comes to our family in Christ, we should be prepared to lay down our lives down for one-another, making heavy sacrifices in order to support one-another as we hold faith in Jesus Christ. Remember the world loves those who are of the world (**[John 15:18-19](https://www.biblegateway.com/passage/?search=John%2015%3A18-19&version=ESV)**). But because Jesus chose us out of the world, then the world hates us:
 
 > **[I Timothy 5:8](https://www.biblegateway.com/passage/?search=1%20Timothy%205%3A8&version=ESV)** - But if anyone does not provide for his relatives, and especially for members of his household, he has denied the faith and is worse than an unbeliever. (ESV)
 
@@ -67099,7 +67159,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga5470e3)
+See: [33.4.1](#orgd6b901c)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -69753,7 +69813,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgec4651d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org84af847) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -72981,7 +73041,7 @@ There are other instances of this - it's faith in Jesus which makes a person wel
 
     1  6213              3598         3685          2015
     2  ‘ō·śêh            ḵî·māh       ū·ḵə·sîl,     wə·hō·p̄êḵ
-    3  עֹשֵׂ֨ה                כִימָ֜ה         וּכְסִ֗יל         וְהֹפֵ֤ךְ
+    3  עֹשֵׂ֨ה	              כִימָ֜ה         וּכְסִ֗יל         וְהֹפֵ֤ךְ
     4  He made           the Pleiades and Orion     and He turns
     5  V‑Qal‑Prtcpl‑msc  N‑fs         Conj‑w | N‑ms Conj‑w | V‑Qal‑Prtcpl‑ms
 
@@ -73280,7 +73340,7 @@ Nevertheless, that doesn't mean that being male and female is not characteristic
 
 > **[Matthew 19:4-9](https://www.biblegateway.com/passage/?search=Matthew%2019%3A4-9&version=ESV)** - He answered, Have you not read that he who created them from the beginning made them male and female, and said, Therefore a man shall leave his father and his mother and hold fast to his wife, and they shall become one flesh? So they are no longer two but one flesh. What therefore God has joined together, let not man separate. They said to him, Why then did Moses command one to give a certificate of divorce and to send her away? He said to them, Because of your hardness of heart Moses allowed you to divorce your wives, but from the beginning it was not so. And I say to you: whoever divorces his wife, except for sexual immorality, and marries another, commits adultery. (ESV)
 
--   **[answersingenesis.org:  What Is the Image of God ?     | Answers in Genesis](https://answersingenesis.org/genesis/what-is-image-of-god/):** The Hebrew word for “man” in this text is adam (אדם). Depending on context, the word can mean “man,” “mankind,” or the name “Adam.”3 The sub-categories of humanity are used with different words and the distinction is visible in both Hebrew and English. These sub-categories of mankind are “male” (zakar זכר) and “female” (neqebah נקבה). The language usage is profound and makes a significant point that the image of God distinction is made between mankind and all other creatures, not between the sub-categories of male and female.
+-   **[answersingenesis.org:  What Is the Image of God ?	 | Answers in Genesis](https://answersingenesis.org/genesis/what-is-image-of-god/):** The Hebrew word for “man” in this text is adam (אדם). Depending on context, the word can mean “man,” “mankind,” or the name “Adam.”3 The sub-categories of humanity are used with different words and the distinction is visible in both Hebrew and English. These sub-categories of mankind are “male” (zakar זכר) and “female” (neqebah נקבה). The language usage is profound and makes a significant point that the image of God distinction is made between mankind and all other creatures, not between the sub-categories of male and female.
     
     It is only regarding the creation of mankind that God says, “Let us make man in our own image,” and God only directly breathed into man’s nostrils the breath of life (Genesis 1:26, 2:7). Everything in the text of Genesis 1 and 2 denotes the intimate actions of God in creating mankind (both the first man and the first woman) compared to the general nature of creating everything else.
 
@@ -73377,7 +73437,7 @@ Nevertheless, that doesn't mean that being male and female is not characteristic
 
 > **[Genesis 1:27](https://www.biblegateway.com/passage/?search=Genesis%201%3A27&version=ESV)** - So God created man in his own image, in the image of God he created him; male and female he created them. (ESV)
 
--   **[answersingenesis.org:  What Is the Image of God ?     | Answers in Genesis](https://answersingenesis.org/genesis/what-is-image-of-god/):** The Hebrew word for “man” in this text is adam (אדם). Depending on context, the word can mean “man,” “mankind,” or the name “Adam.”3 The sub-categories of humanity are used with different words and the distinction is visible in both Hebrew and English. These sub-categories of mankind are “male” (zakar זכר) and “female” (neqebah נקבה). The language usage is profound and makes a significant point that the image of God distinction is made between mankind and all other creatures, not between the sub-categories of male and female.
+-   **[answersingenesis.org:  What Is the Image of God ?	 | Answers in Genesis](https://answersingenesis.org/genesis/what-is-image-of-god/):** The Hebrew word for “man” in this text is adam (אדם). Depending on context, the word can mean “man,” “mankind,” or the name “Adam.”3 The sub-categories of humanity are used with different words and the distinction is visible in both Hebrew and English. These sub-categories of mankind are “male” (zakar זכר) and “female” (neqebah נקבה). The language usage is profound and makes a significant point that the image of God distinction is made between mankind and all other creatures, not between the sub-categories of male and female.
     
     It is only regarding the creation of mankind that God says, “Let us make man in our own image,” and God only directly breathed into man’s nostrils the breath of life (Genesis 1:26, 2:7). Everything in the text of Genesis 1 and 2 denotes the intimate actions of God in creating mankind (both the first man and the first woman) compared to the general nature of creating everything else.
 
@@ -77969,7 +78029,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgec4651d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org84af847) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -79305,7 +79365,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgb96f94c)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org3572420)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -82264,7 +82324,7 @@ Indulging on stolen property to write software is not OK, so I don't join them i
 Today I listened to a sermon which I appreciated very much.
 
     1  Monday March 30, 2026
-    2  18:02:31 The Foundations Pulpit: Sunday Evening Service - Dr. H. T. Spence   81:41
+    2  18:02:31	The Foundations Pulpit: Sunday Evening Service - Dr. H. T. Spence	81:41
 
 Without love for God and His word, a person would feign their obedience, and a person might become bitter and despise God's instruction and then God's instruction would feel legalistic.
 Even in the New Covenant, we need to love God in order to keep covenant.
@@ -83927,6 +83987,8 @@ I hope and pray that God cleans me up, delivers me from the evil, silences the d
 > **[John 10:30](https://www.biblegateway.com/passage/?search=John%2010%3A30&version=ESV)** - I and the Father are one. (ESV)
 
 > **[John 17:14-23](https://www.biblegateway.com/passage/?search=John%2017%3A14-23&version=ESV)** - I have given them your word, and the world has hated them because they are not of the world, just as I am not of the world. I do not ask that you take them out of the world, but that you keep them from the evil one. They are not of the world, just as I am not of the world. Sanctify them in the truth; your word is truth. As you sent me into the world, so I have sent them into the world. And for their sake I consecrate myself, that they also may be sanctified in truth. I do not ask for these only, but also for those who will believe in me through their word, that they may all be one, just as you, Father, are in me, and I in you, that they also may be in us, so that the world may believe that you have sent me. The glory that you have given me I have given to them, that they may be one even as we are one, I in them and you in me, that they may become perfectly one, so that the world may know that you sent me and loved them even as you loved me. (ESV)
+
+[ichthys.com 20one.htm:  The Hebrew word for ' one ' { echadh } and the uniqueness of God .](https://ichthys.com/mail-Hebrew%21word%20for%20one.htm)
 
 
 ## Prayer of thanks
