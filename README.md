@@ -902,6 +902,7 @@ We must have changed to walk in the love of the truth rather than in the love of
 Being a sinner isn't in itself what justifies a person.
 In fact, quite the opposite. To be a sinner is to be someone who acts without faith.
 What is not done in faith is sin.
+
 And God justifies those who have faith, even ungodly people who have faith (i.e. people who have not yet brought holiness to completion in the fear of God).
 
 > **[II Corinthians 6:14-18](https://www.biblegateway.com/passage/?search=2%20Corinthians%206%3A14-18&version=ESV),7:1** - Do not be unequally yoked with unbelievers. For what partnership has righteousness with lawlessness? Or what fellowship has light with darkness? What accord has Christ with Belial? Or what portion does a believer share with an unbeliever? What agreement has the temple of God with idols? For we are the temple of the living God; as God said, I will make my dwelling among them and walk among them, and I will be their God, and they shall be my people. Therefore go out from their midst, and be separate from them, says the Lord, and touch no unclean thing; then I will welcome you, and I will be a father to you, and you shall be sons and daughters to me, says the Lord Almighty. Since we have these promises, beloved, **let us cleanse ourselves from every defilement of body and spirit, bringing holiness to completion in the fear of God**. (ESV)
@@ -950,6 +951,8 @@ Where the Bible says "people loved the darkness rather than the light because th
 > **[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)** - **For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him.** Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light **because their deeds were evil.** For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does [(G4160 poiōn; doing)](G4160) what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
 
 > **[I John 3:6-18](https://www.biblegateway.com/passage/?search=1%20John%203%3A6-18&version=ESV)** - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. **We should not be like Cain, who was of the evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's righteous.** Do not be surprised, brothers, that the world hates you. We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little children, let us not love in word or talk but in deed and in truth. (ESV)
+
+> **[III John 1:11](https://www.biblegateway.com/passage/?search=3%20John%201%3A11&version=ESV)** - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
 
 There was a point where our default behaviour was to sin because at that time we did not prefer Jesus Christ to evil:
 
@@ -12475,7 +12478,13 @@ The law of Moses certainly does not condemn the fruit of the Spirit. And neither
     Yes, in our hearts we must love Jesus and prefer Him to anything else, and as we hold our faith, God will discipline us (**[Hebrews 12:4-8](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A4-8&version=ESV)**) into loving one-another as He commands.
     God's grace trains us to renounce ungodliness (**[Titus 2:11-15](https://www.biblegateway.com/passage/?search=Titus%202%3A11-15&version=ESV)**). So being under grace and getting cleaned up there is discipline, but not condemnation.
     
-    However, if someone was rejecting Jesus by denying that He is the Christ, for example, or by denying that He is the Son of God, or by thinking that Jesus' works are evil, then they would not truly be desiring to be gentle.
+    However, if someone was rejecting Jesus by denying that He is the Christ, for example, or by denying that He is the Son of God, or by thinking that Jesus' works are evil, then they would not truly be desiring to be gentle. But if we receive Jesus, with love for Him believing that He has come from God, then Father God loves us.
+    
+    > **[John 8:42](https://www.biblegateway.com/passage/?search=John%208%3A42&version=ESV),16:27** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. for the Father himself loves you, because you have loved me and have believed that I came from God. (ESV)
+    
+    > **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
+    
+    > **[III John 1:11](https://www.biblegateway.com/passage/?search=3%20John%201%3A11&version=ESV)** - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
     
     If someone rejects Jesus then they are under condemnation, withers and will eventually perish in the fire.
     
@@ -12483,9 +12492,15 @@ The law of Moses certainly does not condemn the fruit of the Spirit. And neither
     
     > **[John 8:23-24](https://www.biblegateway.com/passage/?search=John%208%3A23-24&version=ESV)** - He said to them, You are from below; I am from above. You are of this world; I am not of this world. I told you that you would die in your sins, for **unless you believe that I am he you will die in your sins**. (ESV)
     
+    > **[John 15:22-24](https://www.biblegateway.com/passage/?search=John%2015%3A22-24&version=ESV)** - If I had not come and spoken to them, they would not have been guilty of sin, but **now they have no excuse for their sin. Whoever hates me hates my Father also**. If I had not done among them the works that no one else did, they would not be guilty of sin, but now <ins>they have seen and hated both me and my Father.</ins> (ESV)
+    
     Having a love of Jesus Christ, prefering Jesus to evil, a person would desire holiness, and would be on the path to being conformed to the image of Jesus Christ (**[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**):
     
     > **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
+    
+    > **[III John 1:11](https://www.biblegateway.com/passage/?search=3%20John%201%3A11&version=ESV)** - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
+    
+    > **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
     
     God is a very fair judge:
     
@@ -12494,6 +12509,12 @@ The law of Moses certainly does not condemn the fruit of the Spirit. And neither
     > **[I Corinthians 5:1-13](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A1-13&version=ESV)** - It is actually reported that there is sexual immorality among you, and of a kind that is not tolerated even among pagans, for a man has his father's wife. And you are arrogant! Ought you not rather to mourn? Let him who has done this be removed from among you. For though absent in body, I am present in spirit; and as if present, I have already pronounced judgment on the one who did such a thing. When you are assembled in the name of the Lord Jesus and my spirit is present, with the power of our Lord Jesus, you are to deliver this man to Satan for the destruction of the flesh, so that his spirit may be saved in the day of the Lord. Your boasting is not good. Do you not know that a little leaven leavens the whole lump? Cleanse out the old leaven that you may be a new lump, as you really are unleavened. For Christ, our Passover lamb, has been sacrificed. Let us therefore celebrate the festival, not with the old leaven, the leaven of malice and evil, but with the unleavened bread of sincerity and truth. I wrote to you in my letter not to associate with sexually immoral people— not at all meaning the sexually immoral of this world, or the greedy and swindlers, or idolaters, since then you would need to go out of the world. But now I am writing to you not to associate with anyone who bears the name of brother if he is guilty of sexual immorality or greed, or is an idolater, reviler, drunkard, or swindler—not even to eat with such a one. For what have I to do with judging outsiders? Is it not those inside the church whom you are to judge? God judges those outside. Purge the evil person from among you. (ESV)
     
     > **[II Timothy 2:19](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A19&version=ESV)** - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and, Let everyone who names the name of the Lord depart from iniquity. (ESV)
+    
+    I also believe that being given eternal life involves them being led into the knowledge of Father God and of Jesus Christ Son of God, because that is what eternal life is:
+    
+    > **[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)** - **For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him.** Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light **because their deeds were evil.** For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does [(G4160 poiōn; doing)](G4160) what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+    
+    > **[John 17:3](https://www.biblegateway.com/passage/?search=John%2017%3A3&version=ESV)** - And this is eternal life, that they know <ins>you the only true God, and Jesus Christ whom you have sent.</ins> (ESV)
 
 I still believe that faith alone in the heart justifies ([Romans 10:8-13](https://www.biblegateway.com/passage/?search=Romans%2010%3A8-13&version=ESV)), however faith in Jesus, I believe, continues trusting Him even with respect to His words, and continues abiding in His teachings ([II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)) and this faith agape loves, treasures Jesus and His words.
 
@@ -16085,7 +16106,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org99e2af7) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org00f78ca) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -16880,7 +16901,7 @@ So being led by the Spirit involves having faith in Jesus Christ, and not reject
 
 > **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. (ESV)
 
-And being led by the Spirit also involves maintaining a good conscience with God over what God approves of us doing, since to willfully do what Christ does not want you to do:
+And being led by the Spirit also involves maintaining a good conscience with God over what God approves of us doing, since to willfully do what Christ does not want you to do would be not in faith:
 
 > **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
 
@@ -21749,7 +21770,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org4042ee3).
+I didn't know but it turned out to be the last day of my [sentence](#org9d7de07).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -46021,7 +46042,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org8468dd0)
+See: [33.4.1](#org7cbce9a)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -67339,7 +67360,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org8468dd0)
+See: [33.4.1](#org7cbce9a)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -69993,7 +70014,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org12bbb05) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org7bc8d54) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -78209,7 +78230,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org12bbb05) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org7bc8d54) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -79545,7 +79566,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org7c927ee)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org853edff)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -83164,6 +83185,8 @@ People still have to put their trust in Jesus when the testimony of Jesus comes 
 
 > **[John 8:47](https://www.biblegateway.com/passage/?search=John%208%3A47&version=ESV)** - Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of God. (ESV)
 
+> **[John 8:42](https://www.biblegateway.com/passage/?search=John%208%3A42&version=ESV),16:27** - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. for the Father himself loves you, because you have loved me and have believed that I came from God. (ESV)
+
 But I have confidence that those who are 'of God' will naturally hear Jesus' words and they still have to come to believe/trust in Him:
 
 > **[I John 3:10](https://www.biblegateway.com/passage/?search=1%20John%203%3A10&version=ESV)** - By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
@@ -84186,6 +84209,51 @@ Now just out of my present understanding, just being honest, I would say that Je
 > **[Colossians 3:3](https://www.biblegateway.com/passage/?search=Colossians%203%3A3&version=ESV)** - For you have died, and your life is hidden with Christ in God. (ESV)
 
 -   **[John 1:18 (Interlinear)](https://biblehub.com/interlinear/john/1-18.htm):** God no one has seen ever yet [the] only begotten God the [One] being in the bosom of the Father He has made [Him] known
+
+
+### Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-08-21 Fri 22:42&gt;</span></span>
+
+As I was lying down earlier taking a nap, I had a couple of pictures come into my mind:
+
+-   a picture of the statue of liberty
+-   a couple of dogs/puppies licking the ground
+
+And being unsure where these visions came from,
+but thinking one of two things, that either:
+
+-   the visions were to trick me into affirming that sexual immorality can be done under the guise of Christian freedom, or
+-   perhaps that the visions are just a test to see what I choose to write.
+
+Of course while that might seem odd connections to make to an outsider,
+I have good reason for thinking they visions symbolised such.
+Consider Joseph's dream interpretations (Genesis 41:17-37) may also seem disconnected from the dream but they're not.
+
+I decided to write on this from the Bible's teaching as faithfully as I could without peddling the word or giving false assurance:
+
+-   I wrote about the **freedom** which Jesus gives, which is freedom from sin (both from committing sin and from having it as God cleans us too).
+-   I also considered the **grace** that Jesus gives.
+
+In **[Matthew 15:22-28](https://www.biblegateway.com/passage/?search=Matthew%2015%3A22-28&version=ESV)** Jesus gave grace to the woman so that the demon would leave the her daughter. Jesus' grace was for freedom from being enslaved to evil.
+
+And so, having mentioned this story in my theology document when mentioning LGBT while being confronted with the reality that those who practice sexual immorality will not inherit the Kingdom of God, connecting **[Matthew 15:22-28](https://www.biblegateway.com/passage/?search=Matthew%2015%3A22-28&version=ESV)** to **[Revelation of John 22:15](https://www.biblegateway.com/passage/?search=Revelation%2022%3A15&version=ESV)**, I wanted to write to explain that, being given **time to repent** is grace, and that since I hoped God would grant grace in a similar way to **[Matt 15:22-28](https://www.biblegateway.com/passage/?search=Matthew%2015%3A22-28&version=ESV)**, I feel hopeful that it is possible, but that the grace would be **time to repent** rather than free license to practice sexual immorality and idolatry.
+
+> **[Revelation of John 22:15](https://www.biblegateway.com/passage/?search=Revelation%2022%3A15&version=ESV)** - Outside are the dogs and sorcerers and the sexually immoral and murderers and idolaters, and everyone who loves and practices falsehood. (ESV)
+
+Time to repent is time to turn away from the love of evil, and into having a loving faith in Jesus Christ instead.
+
+> **[Revelation of John 2:20-23](https://www.biblegateway.com/passage/?search=Revelation%202%3A20-23&version=ESV)** - But I have this against you, that you tolerate that woman Jezebel, who calls herself a prophetess and is teaching and seducing my servants to practice sexual immorality and to eat food sacrificed to idols. I gave her **time to repent**, but she refuses to repent of her sexual immorality. Behold, I will throw her onto a sickbed, and those who commit adultery with her I will throw into great tribulation, unless they repent of her works, and I will strike her children dead. And all the churches will know that I am he who searches mind and heart, and I will give to each of you as your works deserve. (ESV)
+
+Earlier today in the morning I received a picture of an old Nokia 5110 (I think this model) banana phone someone had charitably given to me while I was at university.
+And I remember the girl who gave it to me who in modern language would be practicing LGBT at the time.
+Of course I care about such people from my past and wish for them to be saved.
+
+Of all the humans, only Jesus Christ did not have a sinful past.
+But knowing that Jesus has paid a very heavy price for me to be born-again and be here today, it's important for me to be efficient with my words,
+and to not misrepresent the Gospel of Jesus, because time is precious:
+
+> **[Ephesians 5:15-16](https://www.biblegateway.com/passage/?search=Ephesians%205%3A15-16&version=ESV)** - Look carefully then how you walk, not as unwise but as wise, making the best use of the time, because the days are evil. (ESV)
+
+So this is what has prompted me to write on what I have written today, and also some other interactions I have had today.
 
 
 ## Prayer of thanks

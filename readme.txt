@@ -2030,8 +2030,10 @@ We must have changed to walk in the love of the truth rather than in the love of
   Proverbs 11:19 - Whoever is steadfast in righteousness will live, but he who pursues evil will die. (ESV)
 
 Being a sinner isn't in itself what justifies a person. In fact, quite the opposite. To be a sinner is to be
-someone who acts without faith. What is not done in faith is sin. And God justifies those who have faith, even
-ungodly people who have faith (i.e. people who have not yet brought holiness to completion in the fear of God).
+someone who acts without faith. What is not done in faith is sin.
+
+And God justifies those who have faith, even ungodly people who have faith (i.e. people who have not yet brought
+holiness to completion in the fear of God).
 
   II Corinthians 6:14-18,7:1 - Do not be unequally yoked with unbelievers. For what partnership has righteousness
   with lawlessness? Or what fellowship has light with darkness? What accord has Christ with Belial? Or what
@@ -2193,6 +2195,9 @@ than from the love of evil:
   down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods
   and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little
   children, let us not love in word or talk but in deed and in truth. (ESV)
+
+  III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
+  has not seen God. (ESV)
 
 There was a point where our default behaviour was to sin because at that time we did not prefer Jesus Christ to
 evil:
@@ -23757,7 +23762,18 @@ ungodliness (Titus 2:11-15). So being under grace and getting cleaned up there i
 condemnation.
 
 However, if someone was rejecting Jesus by denying that He is the Christ, for example, or by denying that He is
-the Son of God, or by thinking that Jesus' works are evil, then they would not truly be desiring to be gentle.
+the Son of God, or by thinking that Jesus' works are evil, then they would not truly be desiring to be gentle. But
+if we receive Jesus, with love for Him believing that He has come from God, then Father God loves us.
+
+  John 8:42,16:27 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am
+  here. I came not of my own accord, but he sent me. for the Father himself loves you, because you have loved me
+  and have believed that I came from God. (ESV)
+
+  I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
+  knows God. (ESV)
+
+  III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
+  has not seen God. (ESV)
 
 If someone rejects Jesus then they are under condemnation, withers and will eventually perish in the fire.
 
@@ -23771,10 +23787,20 @@ If someone rejects Jesus then they are under condemnation, withers and will even
   world. I told you that you would die in your sins, for unless you believe that I am he you will die in your
   sins. (ESV)
 
+  John 15:22-24 - If I had not come and spoken to them, they would not have been guilty of sin, but now they have
+  no excuse for their sin. Whoever hates me hates my Father also. If I had not done among them the works that no
+  one else did, they would not be guilty of sin, but now they have seen and hated both me and my Father. (ESV)
+
 Having a love of Jesus Christ, prefering Jesus to evil, a person would desire holiness, and would be on the path
 to being conformed to the image of Jesus Christ (John 14:15):
 
   John 14:15 - If you love me, you will keep my commandments. (ESV)
+
+  III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
+  has not seen God. (ESV)
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 God is a very fair judge:
 
@@ -23811,6 +23837,20 @@ God is a very fair judge:
 
   II Timothy 2:19 - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and,
   Let everyone who names the name of the Lord depart from iniquity. (ESV)
+
+I also believe that being given eternal life involves them being led into the knowledge of Father God and of Jesus
+Christ Son of God, because that is what eternal life is:
+
+  John 3:17-21 - For God did not send his Son into the world to condemn the world, but in order that the world
+  might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned
+  already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has
+  come into the world, and people loved the darkness rather than the light because their deeds were evil. For
+  everyone who does wicked things hates the light and does not come to the light, lest his deeds should be
+  exposed. But whoever does (G4160 poiōn; doing) what is true comes to the light, so that it may be clearly seen
+  that his deeds have been carried out in God. (ESV)
+
+  John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
+  (ESV)
 
 I still believe that faith alone in the heart justifies (Romans 10:8-13), however faith in Jesus, I believe,
 continues trusting Him even with respect to His words, and continues abiding in His teachings (II John 1:9-10) and
@@ -30793,7 +30833,7 @@ having a love (Luke 6:45) for Jesus Christ too (John 8:39-42):
   he has not believed in the name of the only Son of God. (ESV)
 
 And being led by the Spirit also involves maintaining a good conscience with God over what God approves of us
-doing, since to willfully do what Christ does not want you to do:
+doing, since to willfully do what Christ does not want you to do would be not in faith:
 
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
@@ -131363,6 +131403,10 @@ apparent to them.
   John 8:47 - Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of
   God. (ESV)
 
+  John 8:42,16:27 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am
+  here. I came not of my own accord, but he sent me. for the Father himself loves you, because you have loved me
+  and have believed that I came from God. (ESV)
+
 But I have confidence that those who are 'of God' will naturally hear Jesus' words and they still have to come to
 believe/trust in Him:
 
@@ -133018,6 +133062,66 @@ John 1:18 (Interlinear)
 God no one has seen ever yet [the] only begotten God the [One] being in the bosom of the Father He has made [Him]
 known
 
+78.4.92. Journal <2026-08-21 Fri 22:42>
+
+As I was lying down earlier taking a nap, I had a couple of pictures come into my mind:
+
+• a picture of the statue of liberty
+• a couple of dogs/puppies licking the ground
+
+And being unsure where these visions came from, but thinking one of two things, that either:
+
+• the visions were to trick me into affirming that sexual immorality can be done under the guise of Christian
+freedom, or
+• perhaps that the visions are just a test to see what I choose to write.
+
+Of course while that might seem odd connections to make to an outsider, I have good reason for thinking they
+visions symbolised such. Consider Joseph's dream interpretations (Genesis 41:17-37) may also seem disconnected
+from the dream but they're not.
+
+I decided to write on this from the Bible's teaching as faithfully as I could without peddling the word or giving
+false assurance:
+
+• I wrote about the freedom which Jesus gives, which is freedom from sin (both from committing sin and from
+having it as God cleans us too).
+• I also considered the grace that Jesus gives.
+
+In Matthew 15:22-28 Jesus gave grace to the woman so that the demon would leave the her daughter. Jesus' grace was
+for freedom from being enslaved to evil.
+
+And so, having mentioned this story in my theology document when mentioning LGBT while being confronted with the
+reality that those who practice sexual immorality will not inherit the Kingdom of God, connecting Matthew 15:22-28
+to Revelation of John 22:15, I wanted to write to explain that, being given time to repent is grace, and that
+since I hoped God would grant grace in a similar way to Matt 15:22-28, I feel hopeful that it is possible, but
+that the grace would be time to repent rather than free license to practice sexual immorality and idolatry.
+
+  Revelation of John 22:15 - Outside are the dogs and sorcerers and the sexually immoral and murderers and
+  idolaters, and everyone who loves and practices falsehood. (ESV)
+
+Time to repent is time to turn away from the love of evil, and into having a loving faith in Jesus Christ instead.
+
+  Revelation of John 2:20-23 - But I have this against you, that you tolerate that woman Jezebel, who calls
+  herself a prophetess and is teaching and seducing my servants to practice sexual immorality and to eat food
+  sacrificed to idols. I gave her time to repent, but she refuses to repent of her sexual immorality. Behold, I
+  will throw her onto a sickbed, and those who commit adultery with her I will throw into great tribulation,
+  unless they repent of her works, and I will strike her children dead. And all the churches will know that I am
+  he who searches mind and heart, and I will give to each of you as your works deserve. (ESV)
+
+Earlier today in the morning I received a picture of an old Nokia 5110 (I think this model) banana phone someone
+had charitably given to me while I was at university. And I remember the girl who gave it to me who in modern
+language would be practicing LGBT at the time. Of course I care about such people from my past and wish for them
+to be saved.
+
+Of all the humans, only Jesus Christ did not have a sinful past. But knowing that Jesus has paid a very heavy
+price for me to be born-again and be here today, it's important for me to be efficient with my words, and to not
+misrepresent the Gospel of Jesus, because time is precious:
+
+  Ephesians 5:15-16 - Look carefully then how you walk, not as unwise but as wise, making the best use of the
+  time, because the days are evil. (ESV)
+
+So this is what has prompted me to write on what I have written today, and also some other interactions I have had
+today.
+
 78.5. Prayer of thanks
 
   I Chronicles 29:11 - Yours, O LORD, is the greatness and the power and the glory and the victory and the
@@ -133080,11 +133184,11 @@ known
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-21 Fri 20:49
+Date: 2026-08-22 Sat 12:48
 
 Author: Shane Mulligan
 
-Created: 2026-08-21 Fri 20:59
+Created: 2026-08-22 Sat 13:07
 
 Validate
 
