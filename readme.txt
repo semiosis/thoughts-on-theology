@@ -2029,6 +2029,43 @@ We must have changed to walk in the love of the truth rather than in the love of
 
   Proverbs 11:19 - Whoever is steadfast in righteousness will live, but he who pursues evil will die. (ESV)
 
+  John 1:6-7 - There came a man sent from God, whose name was John. He came as a witness, to testify about the
+  Light, so that all might believe through him.
+
+  III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
+  has not seen God. (ESV)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  John 6:40-65 - For this is the will of my Father, that everyone who looks on the Son and believes in him should
+  have eternal life, and I will raise him up on the last day. So the Jews grumbled about him, because he said, I
+  am the bread that came down from heaven. They said, Is not this Jesus, the son of Joseph, whose father and
+  mother we know? How does he now say, I have come down from heaven? Jesus answered them, Do not grumble among
+  yourselves. No one can come to me unless the Father who sent me draws him. And I will raise him up on the last
+  day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from
+  the Father comes to me— not that anyone has seen the Father except he who is from God; he has seen the Father.
+  Truly, truly, I say to you, whoever believes has eternal life. I am the bread of life. Your fathers ate the
+  manna in the wilderness, and they died. This is the bread that comes down from heaven, so that one may eat of it
+  and not die. I am the living bread that came down from heaven. If anyone eats of this bread, he will live
+  forever. And the bread that I will give for the life of the world is my flesh. The Jews then disputed among
+  themselves, saying, How can this man give us his flesh to eat? So Jesus said to them, Truly, truly, I say to
+  you, unless you eat the flesh of the Son of Man and drink his blood, you have no life in you. Whoever feeds on
+  my flesh and drinks my blood has eternal life, and I will raise him up on the last day. For my flesh is true
+  food, and my blood is true drink. Whoever feeds on my flesh and drinks my blood abides in me, and I in him. As
+  the living Father sent me, and I live because of the Father, so whoever feeds on me, he also will live because
+  of me. This is the bread that came down from heaven, not as the fathers ate and died. Whoever feeds on this
+  bread will live forever. Jesus said these things in the synagogue, as he taught at Capernaum. When many of his
+  disciples heard it, they said, This is a hard saying; who can listen to it? But Jesus, knowing in himself that
+  his disciples were grumbling about this, said to them, Do you take offense at this? Then what if you were to see
+  the Son of Man ascending to where he was before? It is the Spirit who gives life; the flesh is of no avail. The
+  words that I have spoken to you are spirit and life. But there are some of you who do not believe. (For Jesus
+  knew from the beginning who those were who did not believe, and who it was who would betray him.) And he said,
+  This is why I told you that no one can come to me unless it is granted him by the Father. (ESV)
+
 Being a sinner isn't in itself what justifies a person. In fact, quite the opposite. To be a sinner is to be
 someone who acts without faith. What is not done in faith is sin.
 
@@ -4304,6 +4341,179 @@ born-again, tribulations happens to me while trying to do the will of God. The f
 walk in holiness. I get hit sometimes with LGBT dreams for example, and of things where I was practicing
 uncleanness before I was born-again. I have been prevented from working and marrying. I've been isolated and
 pushed out of "churches", after I was born-again, while I was endeavouring to walk as Jesus commanded.
+
+By faith obeying Jesus Christ leads to getting born-again. Obedience doesn't start only when a person gets
+born-again:
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+Being under grace doesn't mean no longer needing to obey God! And sanctification is a very real part of salvation.
+Getting born-again, we are aquitted of sin, and are instructed to continue on in obedience to Jesus Christ.
+
+But without being born-again, we can't enter the kingdom of God:
+
+  Mark 10:23-27 - And Jesus looked around and said to his disciples, How difficult it will be for those who have
+  wealth to enter the kingdom of God! And the disciples were amazed at his words. But Jesus said to them again,
+  Children, how difficult it is to enter the kingdom of God! It is easier for a camel to go through the eye of a
+  needle than for a rich person to enter the kingdom of God. And they were exceedingly astonished, and said to
+  him, Then who can be saved? Jesus looked at them and said, With man it is impossible, but not with God. For all
+  things are possible with God. (ESV)
+
+  John 3:5-7 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
+  enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of the Spirit is
+  spirit. Do not marvel that I said to you, You must be born again. (ESV)
+
+Jesus Christ's words here logically mean that entering the Kingdom of Heaven requires righteousness. When a person
+gets born-again, they die, are aquitted of sin (Romans 6:7), and reborn. Jesus Christ is God's Son with whom He is
+well pleased, and having faith in Jesus Christ leads to a person getting reborn, born of the Spirit. There is
+something righteous about having faith in Jesus Christ. God loves the one who loves Jesus Christ and believes that
+He came from God. We need to be those who are in agreement with God that Jesus Christ is God's Son. As God's Son,
+Jesus Christ practiced righteousness. If someone has faith in Jesus Christ with a love for the truth, then that
+leads to that person dying and getting born-again of the Spirit with the annihilation of a their sin debt. Going
+forward this person should by faith obey Jesus Christ from the love for the truth in order to enter the Kingdom of
+God:
+
+  Matthew 5:17-20 - Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish
+  them but to fulfill them. For truly, I say to you, until heaven and earth pass away, not an iota, not a dot,
+  will pass from the Law until all is accomplished. Therefore whoever relaxes one of the least of these
+  commandments and teaches others to do the same will be called least in the kingdom of heaven, but whoever does
+  them and teaches them will be called great in the kingdom of heaven. For I tell you, unless your righteousness
+  exceeds that of the scribes and Pharisees, you will never enter the kingdom of heaven. (ESV)
+
+  John 16:27 - for the Father himself loves you, because you have loved me and have believed that I came from God.
+  (ESV)
+
+  Romans 6:7 - for he who has died has been justified (G1344 dedikaiōtai; has been freed/aquitted) from sin. (LSB)
+
+Without being born-again, we can't fulfill the righteous requirement of the Law of God. In fact, sin kills the
+person because the Law of God condemns sin. But if that person had faith in Jesus Christ then they are reborn of
+the Spirit. They are reborn in order have the righteous requirement of the Law fulfilled in them. A person doesn't
+go back "under" Law, but we are still obligated to keep the commandments of God which are to do with loving
+one-another:
+
+  Romans 8:3 - For what the Law could not do, weak as it was through the flesh, God did: sending His own Son in
+  the likeness of sinful flesh and as an offering for sin, He condemned sin in the flesh, so that the righteous
+  requirement of the Law might be fulfilled in us, who do not walk according to the flesh but according to the
+  Spirit. (LSB)
+
+  Romans 8:2-8 - For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death.
+  For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of
+  sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law
+  might be fulfilled in us, who walk not according to the flesh but according to the Spirit. For those who live
+  according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit
+  set their minds on the things of the Spirit. To set the mind on the flesh is death, but to set the mind on the
+  Spirit is life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit to
+  God's law; indeed, it cannot. Those who are in the flesh cannot please God. (ESV)
+
+  Romans 7:1-12 - Or do you not know, brothers—for I am speaking to those who know the law—that the law is master
+  over a person as long as he lives? For the married woman has been bound by law to her husband while he is
+  living, but if her husband dies, she is released from the law concerning the husband. So then, if while her
+  husband is living she is joined to another man, she shall be called an adulteress. But if her husband dies, she
+  is free from the law, so that she is not an adulteress though she is joined to another man. So, my brothers, you
+  also were made to die to the Law through the body of Christ, so that you might be joined to another, to Him who
+  was raised from the dead, in order that we might bear fruit for God. For while we were in the flesh, the sinful
+  passions, which were aroused by the Law, were at work in our members to bear fruit for death. But now we have
+  been released from the Law, having died to that by which we were constrained, so that we serve in newness of the
+  Spirit and not in oldness of the letter. What shall we say then? Is the Law sin? May it never be! Rather, I
+  would not have come to know sin except through the Law. For I would not have known about coveting if the Law had
+  not said, “You shall not covet.” But sin, taking opportunity through the commandment, worked out in me coveting
+  of every kind. For apart from the Law sin is dead. Now I was once alive apart from the Law, but when the
+  commandment came, sin revived and I died; and this commandment, which was to lead to life, was found to lead to
+  death for me. For sin, taking an opportunity through the commandment, deceived me and through it killed me. So,
+  the Law is holy, and the commandment is holy and righteous and good. (LSB)
+
+  John 6:63 - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are
+  spirit and life. (ESV)
+
+Jesus Christ must be our Master, and so that means we trust in and obey Jesus Christ including His words and
+commandments that He gave as He walked in the flesh as a man:
+
+  Matthew 25:21 - His master said to him, Well done, good and faithful servant. You have been faithful over a
+  little; I will set you over much. Enter into the joy of your master. (ESV)
+
+  Jude 1:4-5 - For certain people have crept in unnoticed who long ago were designated for this condemnation,
+  ungodly people, who pervert the grace of our God into sensuality and deny our only Master and Lord, Jesus
+  Christ. Now I want to remind you, although you once fully knew it, that Jesus, who saved a people out of the
+  land of Egypt, afterward destroyed those who did not believe. (ESV)
+
+Sanctification continues as we walk obediently by faith in the Lord Jesus Christ, trusting and obeying Him,
+obedient to the teaching that Jesus and His Apostles have committed, practicing righteousness! And practicing
+genuine love as the Bible describes it not only involves compassion and mercy but also involves "not coveting",
+"not committing idolatry or adultery", "not bearing false-witness" etc.:
+
+  Romans 6:15-23 - What then? Shall we sin because we are not under law but under grace? May it never be! Do you
+  not know that when you go on presenting yourselves to someone as slaves for obedience, you are slaves of the one
+  whom you obey, either of sin leading to death, or of obedience leading to righteousness? But thanks be to God
+  that though you were slaves of sin, you obeyed from the heart that pattern of teaching to which you were given
+  over, and having been freed from sin, you became slaves of righteousness. I am speaking in human terms because
+  of the weakness of your flesh. For just as you presented your members as slaves to impurity and to lawlessness,
+  leading to further lawlessness, so now present your members as slaves to righteousness, leading to
+  sanctification. For when you were slaves of sin, you were free in regard to righteousness. Therefore what
+  benefit were you then having from the things of which you are now ashamed? For the end of those things is death.
+  But now having been freed from sin and enslaved to God, you have your benefit, leading to sanctification, and
+  the end, eternal life. For the wages of sin is death, but the gracious gift of God is eternal life in Christ
+  Jesus our Lord. (LSB)
+
+  Romans 13:9 - The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You
+  shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as
+  yourself. (ESV)
+
+Loving our neighbouor involves also those neighbours who hate us:
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect (G5046 teleioi; complete, mature), as your heavenly Father is perfect. (ESV)
+
+The desires of the flesh are opposed to the desires of the Spirit. Those who walk by the flesh are "under the
+law", and the law is laid down for such people, and that is in accordance with the glorious gospel of God. And so
+we need to be those who are law-abiding by the law of the Spirit. With a mind set on the Spirit, we should be
+"obedient, ready for every good work":
+
+  Galatians 5:13-24 - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for
+  the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your
+  neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one
+  another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of
+  the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to
+  each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not
+  under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry,
+  sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies,
+  and things like these. I warn you, as I warned you before, that those who do such things will not inherit the
+  kingdom of God. But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness,
+  gentleness, self-control; against such things there is no law. And those who belong to Christ Jesus have
+  crucified the flesh with its passions and desires. (ESV)
+
+  Romans 8:2-8 - For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death.
+  For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of
+  sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law
+  might be fulfilled in us, who walk not according to the flesh but according to the Spirit. For those who live
+  according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit
+  set their minds on the things of the Spirit. To set the mind on the flesh is death, but to set the mind on the
+  Spirit is life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit to
+  God's law; indeed, it cannot. Those who are in the flesh cannot please God. (ESV)
+
+God's Law is good and is laid down for the "lawless and the disobedient", for the "ungodly, and sinners, for the
+unholy and profane, etc.":
+
+  I Timothy 1:8-11 - Now we know that the law is good, if one uses it lawfully, understanding this, that the law
+  is not laid down for the just but for the lawless and disobedient, for the ungodly and sinners, for the unholy
+  and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who
+  practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in
+  accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)
+
+Walking by the Spirit is how to please God, and so walking by the Spirit involves having faith, and seeking to
+please God:
+
+  Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must believe
+  that he exists and that he rewards those who seek him. (ESV)
+
+  John 5:44 - How can you believe, when you receive glory from one another and do not seek the glory that comes
+  from the only God? (ESV)
 
 God apportions His Spirit to those who have faith in Jesus Christ. God makes a person born-again. We do not know
 the way the spirit comes, nor where the spirit blows from, nor where it goes. But God gifts His Holy Spirit to
@@ -10616,6 +10826,19 @@ his memories of when he was persecuting the church of Jesus Christ. The flesh st
 conscience is fixed and guilt is taken awaya when they are given a new heart and spirit. Having a fixed conscience
 means that it isn't a seared conscience. It's functions properly. Having a healthy conscience helps a person to
 walk in godliness and serve God.
+
+Just because aquitted from sin, doesn't mean "cannot" sin, but at the point of death, their sin they had is
+erased, and going forth they have an advocate with Father God:
+
+  Romans 6:7 - For one who has died has been set free (G1344 dedikaiōtai; has been freed, aquitted) from sin.
+  (ESV)
+
+  I John 2:1-6 - My little children, I am writing these things to you so that you may not sin. But if anyone does
+  sin, we have an advocate with the Father, Jesus Christ the righteous. He is the propitiation for our sins, and
+  not for ours only but also for the sins of the whole world. And by this we know that we have come to know him,
+  if we keep his commandments. Whoever says I know him but does not keep his commandments is a liar, and the truth
+  is not in him, but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure
+  that we are in him: whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
 
 youtube.com: I Was Told That If I Can ' t Point To The Moment Of My Conversion I ' m Not Saved ? Q & A | RC Sproul
 # shorts {@ MarialynClapano }
@@ -21733,6 +21956,10 @@ theology:
  |       avoid quarreling, to be gentle, and to show perfect courtesy toward all
  |       people. (ESV)
  |  
+ |       Romans 7:18 - For I know that nothing good dwells in me, that is, in my
+ |       flesh; for the willing is present in me, but the working out of the good
+ |       is not. (LSB)
+ |  
  |   This is obvious when we see the commandment to not work on the Sabbath. But
  |   obedience neither strictly means working nor does it strictly mean not
  |   working. But rather doing the will of God.
@@ -21772,6 +21999,39 @@ theology:
  |   We're supposed to go from agapeing darkness to agapeing God's light, and into
  |   walking in the light, walking in God's will, and we're supported by God's
  |   Spirit as we are doing this.
+ |  
+ |   For reassurance, we should be practicing love from the heart, sincerely in
+ |   deed, obedient from the love for the truth but not relying on the success of
+ |   external actions, but seeking to please God who can see our intentions:
+ |  
+ |       I John 3:18-19 - Little children, let us not love in word or talk but in
+ |       deed and in truth. By this we shall know that we are of the truth and
+ |       reassure our heart before him; (ESV)
+ |  
+ |       I Thessalonians 3:13 - so that he may establish your hearts blameless in
+ |       holiness before our God and Father, at the coming of our Lord Jesus with
+ |       all his saints. (ESV)
+ |  
+ |   Sanctification continues as we walk obediently by faith in the Lord Jesus
+ |   Christ, trusting and obeying Him, obedient to the teaching that Jesus and His
+ |   Apostles have committed:
+ |       Romans 6:15-23 - What then? Shall we sin because we are not under law but
+ |       under grace? May it never be!  Do you not know that when you go on presenting
+ |       yourselves to someone as slaves for obedience, you are slaves of the one whom
+ |       you obey, either of sin leading to death, or of obedience leading to
+ |       righteousness?  But thanks be to God that though you were slaves of sin, you
+ |       obeyed from the heart that pattern of teaching to which you were given over,
+ |       and having been freed from sin, you became slaves of righteousness.  I am
+ |       speaking in human terms because of the weakness of your flesh. For just as you
+ |       presented your members as slaves to impurity and to lawlessness, leading to
+ |       further lawlessness, so now present your members as slaves to righteousness,
+ |       leading to sanctification.  For when you were slaves of sin, you were free in
+ |       regard to righteousness.  Therefore what benefit were you then having from the
+ |       things of which you are now ashamed? For the end of those things is death.  But
+ |       now having been freed from sin and enslaved to God, you have your benefit,
+ |       leading to sanctification, and the end, eternal life.  For the wages of sin is
+ |       death, but the gracious gift of God is eternal life in Christ Jesus our Lord.
+ |       (LSB)
 
 We serve the Only True God, the Most High God, Jehovah and Jesus Christ who He has sent - the same God, and we are
 found in Christ Jesus:
@@ -21843,7 +22103,8 @@ An established heart is one which has been put on the right track:
   eternal comfort and good hope through grace, comfort your hearts and establish them in every good work and word.
   (ESV)
 
-For reassurance, we should be practicing love:
+For reassurance, we should be practicing love from the heart, sincerely in deed, obedient from the love for the
+truth but not relying on the success of external actions, but seeking to please God who can see our intentions:
 
   I John 3:18-19 - Little children, let us not love in word or talk but in deed and in truth. By this we shall
   know that we are of the truth and reassure our heart before him; (ESV)
@@ -23935,9 +24196,13 @@ trusting/believing (G4100 pisteuo) in Him may not perish, but may have life ever
   Son to be the propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. No one
   has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
 
-Because justification by faith in the blood of Jesus is by grace, it's not on the basis of works. But obedience
-doesn't mean "works" strictly. Obedience means more like "willing to work", or "actually doing" where the doing is
-a heart thing, so that means repentance, too, or a change of heart can be obedience and not "works":
+Because justification by faith in the blood of Jesus is by grace, it's not on the basis of works (successfully
+completed good deeds). But obedience doesn't mean "works" strictly. Obedience means more like "willing to work",
+or "actually doing from the heart" where the doing is a heart thing, which works its way out, and so that means
+repentance, too, or a change of heart can be obedience and not "works":
+
+  Romans 7:18 - For I know that nothing good dwells in me, that is, in my flesh; for the willing is present in me,
+  but the working out of the good is not. (LSB)
 
   Romans 10:8-10 - But what does it say? The word is near you, in your mouth and in your heart (that is, the word
   of faith that we proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart
@@ -125875,7 +126140,8 @@ An established heart is one which has been put on the right track:
   eternal comfort and good hope through grace, comfort your hearts and establish them in every good work and word.
   (ESV)
 
-For reassurance, we should be practicing love:
+For reassurance, we should be practicing love from the heart, sincerely in deed, obedient from the love for the
+truth but not relying on the success of external actions, but seeking to please God who can see our intentions:
 
   I John 3:18-19 - Little children, let us not love in word or talk but in deed and in truth. By this we shall
   know that we are of the truth and reassure our heart before him; (ESV)
@@ -132601,6 +132867,18 @@ through them to produce the deeds of Jesus, as in walk like Jesus walked (John 1
   Luke 3:8 - Bear fruits in keeping with repentance. And do not begin to say to yourselves, We have Abraham as our
   father. For I tell you, God is able from these stones to raise up children for Abraham. (ESV)
 
+True Christians practice righteousness, not wickedness! And true Christians love one another! Thieves and
+murderers and the sexually immoral, those who practice immoral sexual behaviour, for example, need to repent!
+
+  I John 3:10 - By this it is evident who are the children of God, and who are the children of the devil: whoever
+  does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
+
+  III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
+  has not seen God. (ESV)
+
+  Matthew 23:28 - So you also outwardly appear righteous to others, but within you are full of hypocrisy and
+  lawlessness. (ESV)
+
 It's not the Christian's role to judge those who are outside the church.
 
   I Corinthians 5:12 - For what have I to do with judging outsiders? Is it not those inside the church whom you
@@ -133184,11 +133462,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-22 Sat 12:48
+Date: 2026-08-24 Mon 16:01
 
 Author: Shane Mulligan
 
-Created: 2026-08-22 Sat 13:07
+Created: 2026-08-24 Mon 16:31
 
 Validate
 
