@@ -4371,10 +4371,11 @@ gets born-again, they die, are aquitted of sin (Romans 6:7), and reborn. Jesus C
 well pleased, and having faith in Jesus Christ leads to a person getting reborn, born of the Spirit. There is
 something righteous about having faith in Jesus Christ. God loves the one who loves Jesus Christ and believes that
 He came from God. We need to be those who are in agreement with God that Jesus Christ is God's Son. As God's Son,
-Jesus Christ practiced righteousness. If someone has faith in Jesus Christ with a love for the truth, then that
-leads to that person dying and getting born-again of the Spirit with the annihilation of a their sin debt. Going
-forward this person should by faith obey Jesus Christ from the love for the truth in order to enter the Kingdom of
-God:
+Jesus Christ practiced righteousness. If someone has faith in Jesus Christ with a love for the truth, then they
+are firstly forgiven by Jesus Christ (Luke 7:40-50, Acts 10:41-44) through His name, and also this faith leads to
+(John 11:25-27) that person dying and getting born-again of the Spirit with the annihilation of a their sin debt
+(Romans 6:7). Going forward this person should by faith obey Jesus Christ from the love for the truth in order to
+enter the Kingdom of God:
 
   Matthew 5:17-20 - Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish
   them but to fulfill them. For truly, I say to you, until heaven and earth pass away, not an iota, not a dot,
@@ -4387,6 +4388,10 @@ God:
   (ESV)
 
   Romans 6:7 - for he who has died has been justified (G1344 dedikaiōtai; has been freed/aquitted) from sin. (LSB)
+
+  Acts 13:38-39 - Let it be known to you therefore, brothers, that through this man forgiveness of sins is
+  proclaimed to you, and by him everyone who believes is freed from everything from which you could not be freed
+  by the law of Moses. (ESV)
 
 Without being born-again, we can't fulfill the righteous requirement of the Law of God. In fact, sin kills the
 person because the Law of God condemns sin. But if that person had faith in Jesus Christ then they are reborn of
@@ -133466,7 +133471,7 @@ Date: 2026-08-24 Mon 16:01
 
 Author: Shane Mulligan
 
-Created: 2026-08-24 Mon 16:31
+Created: 2026-08-24 Mon 17:43
 
 Validate
 
