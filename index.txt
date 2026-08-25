@@ -1697,6 +1697,9 @@ God at some point in His Sovereign and wise plan, makes a person born again. Thi
 baptised into Jesus' death, and this purifies the heart, regenerating the spirit, killing the sin that was there,
 and empowers the person to practice righteousness from a position of being dead to sin:
 
+  I Peter 1:3 - Blessed be the God and Father of our Lord Jesus Christ! According to his great mercy, he has
+  caused us to be born again to a living hope through the resurrection of Jesus Christ from the dead, (ESV)
+
   Jude 1:20-21 - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep
   yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
 
@@ -1705,6 +1708,12 @@ and empowers the person to practice righteousness from a position of being dead 
   imperishable, through the living and abiding word of God; for All flesh is like grass and all its glory like the
   flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this
   word is the good news that was preached to you. (ESV)
+
+Water baptism is an appeal to God for a good conscience through the death and resurrection of Christ. So water
+baptism is an appeal to God to die and be reborn, born-again of the spirit, made new:
+
+  I Peter 3:21 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as
+  an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
 
   John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
   yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
@@ -105101,6 +105110,216 @@ fire (Hell, I assume)
   just a little while, the wicked will be no more; though you look carefully at his place, he will not be there.
   But the meek shall inherit the land and delight themselves in abundant peace. (ESV)
 
+A person needs to be born-again in order to enter the Kingdom of God. Without being born-again, it's not possible
+to enter the Kingdom of God. But being born-again, it's then possible to enter the Kingdom of God. Father God
+doesn't cease to be the vinedresser. We need to go on abiding in Jesus Christ Son of God with faith in Him,
+keeping His commandments.
+
+  Mark 10:23-27 - And Jesus looked around and said to his disciples, How difficult it will be for those who have
+  wealth to enter the kingdom of God! And the disciples were amazed at his words. But Jesus said to them again,
+  Children, how difficult it is to enter the kingdom of God! It is easier for a camel to go through the eye of a
+  needle than for a rich person to enter the kingdom of God. And they were exceedingly astonished, and said to
+  him, Then who can be saved? Jesus looked at them and said, With man it is impossible, but not with God. For all
+  things are possible with God. (ESV)
+
+People were being born according to the Spirit for quite some time before Jesus was born of the virgin Mary but it
+has been restricted to the children of promise i.e. Abraham's descendants through Isaac. They were born of the
+spirit through promise, but Jesus was not yet glorified, but they would still receive the life-giving glorified
+spirit of Christ as promised. I think it's also true that the spirit of Christ dwelt in Abraham and his
+descendants as in Elijah or Isaiah:
+
+  Galatians 4:28-31 - Now you, brothers, like Isaac, are children of promise. But just as at that time he who was
+  born according to the flesh persecuted him who was born according to the Spirit, so also it is now. But what
+  does the Scripture say? Cast out the slave woman and her son, for the son of the slave woman shall not inherit
+  with the son of the free woman. So, brothers, we are not children of the slave but of the free woman. (ESV)
+
+Even being born-again, we still need to do the will of God to enter the Kingdom of God:
+
+  Matthew 7:21 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does
+  the will of my Father who is in heaven. (ESV)
+
+  Jude 1:3-8 - Beloved, although I was very eager to write to you about our common salvation, I found it necessary
+  to write appealing to you to contend for the faith that was once for all delivered to the saints. For certain
+  people have crept in unnoticed who long ago were designated for this condemnation, ungodly people, who pervert
+  the grace of our God into sensuality and deny our only Master and Lord, Jesus Christ. Now I want to remind you,
+  although you once fully knew it, that Jesus, who saved a people out of the land of Egypt, afterward destroyed
+  those who did not believe. And the angels who did not stay within their own position of authority, but left
+  their proper dwelling, he has kept in eternal chains under gloomy darkness until the judgment of the great day—
+  just as Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality and pursued
+  unnatural desire, serve as an example by undergoing a punishment of eternal fire. Yet in like manner these
+  people also, relying on their dreams, defile the flesh, reject authority, and blaspheme the glorious ones. (ESV)
+
+God can also send to hell. Even a person who has been born-again, I think, God could send there. Father God
+doesn't cease to be the vinedresser:
+
+  Matthew 10:28 - And do not fear those who kill the body but cannot kill the soul. Rather fear him who can
+  destroy both soul and body in hell. (ESV)
+
+  II Peter 2:1-22 - But false prophets also arose among the people, just as there will be false teachers among
+  you, who will secretly bring in destructive heresies, even denying the Master who bought them, bringing upon
+  themselves swift destruction. And many will follow their sensuality, and because of them the way of truth will
+  be blasphemed. And in their greed they will exploit you with false words. Their condemnation from long ago is
+  not idle, and their destruction is not asleep. For if God did not spare angels when they sinned, but cast them
+  into hell and committed them to chains of gloomy darkness to be kept until the judgment; if he did not spare the
+  ancient world, but preserved Noah, a herald of righteousness, with seven others, when he brought a flood upon
+  the world of the ungodly; if by turning the cities of Sodom and Gomorrah to ashes he condemned them to
+  extinction, making them an example of what is going to happen to the ungodly; and if he rescued righteous Lot,
+  greatly distressed by the sensual conduct of the wicked (for as that righteous man lived among them day after
+  day, he was tormenting his righteous soul over their lawless deeds that he saw and heard); then the Lord knows
+  how to rescue the godly from trials, and to keep the unrighteous under punishment until the day of judgment, and
+  especially those who indulge in the lust of defiling passion and despise authority. Bold and willful, they do
+  not tremble as they blaspheme the glorious ones, whereas angels, though greater in might and power, do not
+  pronounce a blasphemous judgment against them before the Lord. But these, like irrational animals, creatures of
+  instinct, born to be caught and destroyed, blaspheming about matters of which they are ignorant, will also be
+  destroyed in their destruction, suffering wrong as the wage for their wrongdoing. They count it pleasure to
+  revel in the daytime. They are blots and blemishes, reveling in their deceptions, while they feast with you.
+  They have eyes full of adultery, insatiable for sin. They entice unsteady souls. They have hearts trained in
+  greed. Accursed children! Forsaking the right way, they have gone astray. They have followed the way of Balaam,
+  the son of Beor, who loved gain from wrongdoing, but was rebuked for his own transgression; a speechless donkey
+  spoke with human voice and restrained the prophet's madness. These are waterless springs and mists driven by a
+  storm. For them the gloom of utter darkness has been reserved. For, speaking loud boasts of folly, they entice
+  by sensual passions of the flesh those who are barely escaping from those who live in error. They promise them
+  freedom, but they themselves are slaves of corruption. For whatever overcomes a person, to that he is enslaved.
+  For if, after they have escaped the defilements of the world through the knowledge of our Lord and Savior Jesus
+  Christ, they are again entangled in them and overcome, the last state has become worse for them than the first.
+  For it would have been better for them never to have known the way of righteousness than after knowing it to
+  turn back from the holy commandment delivered to them. What the true proverb says has happened to them: The dog
+  returns to its own vomit, and the sow, after washing herself, returns to wallow in the mire. (ESV)
+
+Father God can graft in and out of Christ:
+
+  Romans 11:20-25 - That is true. They were broken off because of their unbelief, but you stand fast through
+  faith. So do not become proud, but stand in awe. For if God did not spare the natural branches, neither will he
+  spare you. Note then the kindness and the severity of God: severity toward those who have fallen, but God's
+  kindness to you, provided you continue in his kindness. Otherwise you too will be cut off. And even they, if
+  they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. For if
+  you were cut from what is by nature a wild olive tree, and grafted, contrary to nature, into a cultivated olive
+  tree, how much more will these, the natural branches, be grafted back into their own olive tree. Lest you be
+  wise in your own conceits, I want you to understand this mystery, brothers: a partial hardening has come upon
+  Israel, until the fullness of the Gentiles has come in. (ESV)
+
+  John 15:1-6 - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear
+  fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you
+  are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear
+  fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are
+  the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do
+  nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are
+  gathered, thrown into the fire, and burned. (ESV)
+
+We were children of wrath (those who are on the way to receiving the wrath of God) by nature before getting made
+alive. Someone who is born-again is not a sinner by nature. We don't want to be children of wrath by choice
+(rather than by nature) after getting born-again, so as we live by the spirit we should walk by the spirit:
+
+  II Peter 1:3-11 - His divine power has granted to us all things that pertain to life and godliness, through the
+  knowledge of him who called us to his own glory and excellence, by which he has granted to us his precious and
+  very great promises, so that through them you may become partakers of the divine nature, having escaped from the
+  corruption that is in the world because of sinful desire. For this very reason, make every effort to supplement
+  your faith with virtue, and virtue with knowledge, and knowledge with self-control, and self-control with
+  steadfastness, and steadfastness with godliness, and godliness with brotherly affection, and brotherly affection
+  with love. For if these qualities are yours and are increasing, they keep you from being ineffective or
+  unfruitful in the knowledge of our Lord Jesus Christ. For whoever lacks these qualities is so nearsighted that
+  he is blind, having forgotten that he was cleansed from his former sins. Therefore, brothers, be all the more
+  diligent to make your calling and election sure, for if you practice these qualities you will never fall. For in
+  this way there will be richly provided for you an entrance into the eternal kingdom of our Lord and Savior Jesus
+  Christ. (ESV)
+
+  Jude 1:3-8 - Beloved, although I was very eager to write to you about our common salvation, I found it necessary
+  to write appealing to you to contend for the faith that was once for all delivered to the saints. For certain
+  people have crept in unnoticed who long ago were designated for this condemnation, ungodly people, who pervert
+  the grace of our God into sensuality and deny our only Master and Lord, Jesus Christ. Now I want to remind you,
+  although you once fully knew it, that Jesus, who saved a people out of the land of Egypt, afterward destroyed
+  those who did not believe. And the angels who did not stay within their own position of authority, but left
+  their proper dwelling, he has kept in eternal chains under gloomy darkness until the judgment of the great day—
+  just as Sodom and Gomorrah and the surrounding cities, which likewise indulged in sexual immorality and pursued
+  unnatural desire, serve as an example by undergoing a punishment of eternal fire. Yet in like manner these
+  people also, relying on their dreams, defile the flesh, reject authority, and blaspheme the glorious ones. (ESV)
+
+  Jude 1:14-18 - It was also about these that Enoch, the seventh from Adam, prophesied, saying, Behold, the Lord
+  came with ten thousands of his holy ones, to execute judgment on all and to convict all the ungodly of all their
+  deeds of ungodliness that they have committed in such an ungodly way, and of all the harsh things that ungodly
+  sinners have spoken against him. These are grumblers, malcontents, following their own sinful desires; they are
+  loud-mouthed boasters, showing favoritism to gain advantage. But you must remember, beloved, the predictions of
+  the apostles of our Lord Jesus Christ. They said to you, In the last time there will be scoffers, following
+  their own ungodly passions. (ESV)
+
+No created thing can separate us from the love of God in Christ Jesus. The flesh cannot separate us from the love
+of God in Christ Jesus. If the meeting place (such as a chapel or cathedral or hall) were destroyed by bombs along
+with all the prayer books, bread and wine inside, then would that separate anyone from the love of God in Christ
+Jesus their Lord? No. Not even the destruction of the body of flesh can separate a believer from Jesus Christ
+their Lord:
+
+  Romans 8:38-39 - For I am sure that neither death nor life, nor angels nor rulers, nor things present nor things
+  to come, nor powers, nor height nor depth, nor anything else in all creation, will be able to separate us from
+  the love of God in Christ Jesus our Lord. (ESV)
+
+God is not created though:
+
+  Romans 11:20-23 - That is true. They were broken off because of their unbelief, but you stand fast through
+  faith. So do not become proud, but stand in awe. For if God did not spare the natural branches, neither will he
+  spare you. Note then the kindness and the severity of God: severity toward those who have fallen, but God's
+  kindness to you, provided you continue in his kindness. Otherwise you too will be cut off. And even they, if
+  they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. (ESV)
+
+  John 15:1-6 - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear
+  fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you
+  are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear
+  fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are
+  the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do
+  nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are
+  gathered, thrown into the fire, and burned. (ESV)
+
+Hebrews 13:5 does not make it untrue that His wrath is against all who forsake Him as Ezra 8:22 speaks of exactly
+the same God:
+
+  Deuteronomy 31:8 - It is the LORD who goes before you. He will be with you; he will not leave you or forsake
+  you. Do not fear or be dismayed. (ESV)
+
+  Hebrews 13:5 - Keep your life free from love of money, and be content with what you have, for he has said, I
+  will never leave you nor forsake you. (ESV)
+
+  Ezra 8:22 - For I was ashamed to ask the king for a band of soldiers and horsemen to protect us against the
+  enemy on our way, since we had told the king, The hand of our God is for good on all who seek him, and the power
+  of his wrath is against all who forsake him. (ESV)
+
+With regard to specifically the confession of our hope, we should not waver in our faith:
+
+  Romans 4:20-22 - yet, with respect to the promise of God, he did not waver in unbelief (570. apistia) but grew
+  strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to
+  perform. Therefore it was also credited to him as righteousness. (NASB)
+
+  Hebrews 10:19-23 - Therefore, brothers, since we have confidence to enter the holy places by the blood of Jesus,
+  by the new and living way that he opened for us through the curtain, that is, through his flesh, and since we
+  have a great priest over the house of God, let us draw near with a true heart in full assurance of faith, with
+  our hearts sprinkled clean from an evil conscience and our bodies washed with pure water. Let us hold fast the
+  confession of our hope without wavering, for he who promised is faithful. (ESV)
+
+Before and after getting born-again of the Spirit, we have to go on walking by faith:
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+A person can't have genuine faith in Jesus and be committing sin at the same time (Romans 14:23, Jeremiah 7:8-11,
+John 10:1, I John 3:4, I Peter 4:1-5).
+
+If we stumble in faith we need to get back up and have faith:
+
+  Proverbs 24:15-16 - Lie not in wait as a wicked man against the dwelling of the righteous; do no violence to his
+  home; for the righteous falls seven times and rises again, but the wicked stumble in times of calamity. (ESV)
+
+  Romans 14:18-23 - Whoever thus serves Christ is acceptable to God and approved by men. So then let us pursue
+  what makes for peace and for mutual upbuilding. Do not, for the sake of food, destroy the work of God.
+  Everything is indeed clean, but it is wrong for anyone to make another stumble by what he eats. It is good not
+  to eat meat or drink wine or do anything that causes your brother to stumble. The faith that you have, keep
+  between yourself and God. Blessed is the one who has no reason to pass judgment on himself for what he approves.
+  But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not
+  proceed from faith is sin. (ESV)
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
+
 54.16. His name: Jesus Christ, the Son of God
 
   Luke 1:31-35 - And behold, you will conceive in your womb and bear a son, and you shall call his name Jesus. He
@@ -133467,11 +133686,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-24 Mon 16:01
+Date: 2026-08-25 Tue 19:23
 
 Author: Shane Mulligan
 
-Created: 2026-08-24 Mon 17:43
+Created: 2026-08-25 Tue 20:14
 
 Validate
 
