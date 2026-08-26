@@ -1404,7 +1404,7 @@ Jesus Christ's commandments, in love for God and one's neighbour and practicing 
   enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe
   that we will also live with him. (ESV)
 
-2:2
+Polycarp 2:2
 Now He that raised Him from the dead will raise us also; if we do His will and walk in His commandments and love
 the things which He loved, abstaining from all unrighteousness, covetousness, love of money, evil speaking, false
 witness; not rendering evil for evil or railing for railing or blow for blow or cursing for cursing;
@@ -1420,6 +1420,12 @@ Going forward we need to continue in love and holiness:
   with love. For if these qualities are yours and are increasing, they keep you from being ineffective or
   unfruitful in the knowledge of our Lord Jesus Christ. For whoever lacks these qualities is so nearsighted that
   he is blind, having forgotten that he was cleansed from his former sins. (ESV)
+
+  II Timothy 2:11-12 - The saying is trustworthy, for: If we have died with him, we will also live with him; if we
+  endure, we will also reign with him; if we deny him, he also will deny us; (ESV)
+
+  Titus 1:16 - They profess to know God, but they deny him by their works. They are detestable, disobedient, unfit
+  for any good work. (ESV)
 
 The person who is born of God has stopped "committing sin" (I John 3:4,8,9) in the sense that this new beginning
 of repentance and faith (Hebrews 6:1) has been obedience to God (Romans 10:14-21) rather than sin and going on
@@ -1798,6 +1804,147 @@ and it also does not mean that in having that sin that person's future is death 
   will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
   am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
   will never see death. (ESV)
+
+Journal <2026-08-26 Wed 15:13>
+
+I'd rather be mistreated with the people of God, than endorse false doctrine and lawlessness:
+
+  Hebrews 11:24-25 - By faith Moses, when he was grown up, refused to be called the son of Pharaoh's daughter,
+  choosing rather to be mistreated with the people of God than to enjoy the fleeting pleasures of sin. (ESV)
+
+It's not possible to be simultaneously committing sin and having faith. If sin has been committed it has been from
+a lapse of faith:
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  I John 3:4 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. (ESV)
+
+Having the right to become children of God means having the right to become someone who practices righteousness
+loving even their enemies. Through faith in Jesus Christ, a person is saved into becoming someone who loves and
+practices righteousness:
+
+  Romans 3:12 - All have turned aside; together they have become worthless; no one does good, not even one. (ESV)
+
+  John 1:12-13 - But to all who did receive him, who believed in his name, he gave the right to become children of
+  God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+
+  I John 3:8 - Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. (ESV)
+
+  Luke 6:35 - But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be
+  great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. (ESV)
+
+  III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
+  has not seen God. (ESV)
+
+Entering the Kingdom of God requires having faith in Jesus Christ, having stopped sinning:
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+  John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
+  way, that man is a thief and a robber. (ESV)
+
+  Psalms 101:7 - He who practices deceit shall not dwell within my house; He who speaks falsehood shall not
+  maintain his position before me. (NASB)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  I John 3:6-18 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or
+  known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. We should not be like Cain, who was of the
+  evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's
+  righteous. Do not be surprised, brothers, that the world hates you. We know that we have passed out of death
+  into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother
+  is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid
+  down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods
+  and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little
+  children, let us not love in word or talk but in deed and in truth. (ESV)
+
+A person with faith in Jesus Christ has the right to become a child of God. Entering the Kingdom of God requires
+being born-again, and as well as being born-again, a person is also required to not be sinning in order to enter
+the Kingdom of God.
+
+  John 3:5 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
+  enter the kingdom of God. (ESV)
+
+  Matthew 7:21 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does
+  the will of my Father who is in heaven. (ESV)
+
+Getting born-again sets a person free from former sin (II Peter 1:9, Romans 6:3-8). So if they want to enter into
+the Kingdom of God, they should put off the former self, and continue on doing the will of God.
+
+  Acts 14:22 - strengthening the souls of the disciples, encouraging them to continue in the faith, and saying
+  that through many tribulations we must enter the kingdom of God. (ESV)
+
+  II Timothy 3:12 - Indeed, all who desire to live a godly life in Christ Jesus will be persecuted, (ESV)
+
+  John 16:33 - I have said these things to you, that in me you may have peace. In the world you will have
+  tribulation. But take heart; I have overcome the world. (ESV)
+
+God makes us born-again because without being born-again it's not possible to see or enter the Kingdom of God.
+Being born-again, we still need to be practicing righteousness to enter the Kingdom of God, and are able to
+because former sin is cancelled. God raises people up.
+
+  Luke 3:8 - Bear fruits in keeping with repentance. And do not begin to say to yourselves, We have Abraham as our
+  father. For I tell you, God is able from these stones to raise up children for Abraham. (ESV)
+
+Entering the Kingdom of God requires having faith in Jesus Christ, having stopped sinning:
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+  John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
+  way, that man is a thief and a robber. (ESV)
+
+  Psalms 101:7 - He who practices deceit shall not dwell within my house; He who speaks falsehood shall not
+  maintain his position before me. (NASB)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  I John 3:6-18 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or
+  known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. We should not be like Cain, who was of the
+  evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's
+  righteous. Do not be surprised, brothers, that the world hates you. We know that we have passed out of death
+  into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother
+  is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid
+  down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods
+  and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little
+  children, let us not love in word or talk but in deed and in truth. (ESV)
+
+  II Peter 2:19-22 - They promise them freedom, but they themselves are slaves of corruption. For whatever
+  overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through
+  the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state
+  has become worse for them than the first. For it would have been better for them never to have known the way of
+  righteousness than after knowing it to turn back from the holy commandment delivered to them. What the true
+  proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns
+  to wallow in the mire. (ESV)
 
 Is this Pharisee correct here (Luke 7:39) in saying the woman is a sinner? The woman is at that time worshiping
 Jesus Christ so in that sense I would say she is "not a sinner" because I believe she is "born of God" and from
@@ -133711,11 +133858,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-26 Wed 14:17
+Date: 2026-08-26 Wed 16:06
 
 Author: Shane Mulligan
 
-Created: 2026-08-26 Wed 14:25
+Created: 2026-08-26 Wed 17:01
 
 Validate
 
