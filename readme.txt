@@ -1325,14 +1325,6 @@ infallible. It's by faith in Jesus, not by faith in me.
   conscience, through the resurrection of Jesus Christ, who has gone into heaven and is at the right hand of God,
   with angels, authorities, and powers having been subjected to him. (ESV)
 
-  Romans 6:3-8 - Do you not know that all of us who have been baptized into Christ Jesus were baptized into his
-  death? We were buried therefore with him by baptism into death, in order that, just as Christ was raised from
-  the dead by the glory of the Father, we too might walk in newness of life. For if we have been united with him
-  in a death like his, we shall certainly be united with him in a resurrection like his. We know that our old self
-  was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be
-  enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe
-  that we will also live with him. (ESV)
-
 Paul really makes it clear that Father God is not in subjection to Jesus Christ the Son of God, but that Christ is
 reigning supremely at the right hand of Father God, Father God having given all judgement to Christ the Son, until
 all things are subjected to Christ. And then Christ Himself will be subjected to Father God. Christ has already
@@ -1395,6 +1387,39 @@ away from sin and has faith in Jesus will get born-again (Ezekiel 18:31, John 11
   will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
   am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
   will never see death. (ESV)
+
+When a person is "born-again", they are baptized into Jesus Christ's death, and so have died and been set free
+(aquitted) from sin, cleansed from former sin, and they are reborn, born of the Spirit. So all things have become
+new for them. But being born-again, we need to continue to do the will of God for us. We must continue abiding in
+Jesus Christ's commandments, in love for God and one's neighbour and practicing righteousness, not wickedness:
+
+  Luke 3:16 - John answered them all, saying, I baptize you with water, but he who is mightier than I is coming,
+  the strap of whose sandals I am not worthy to untie. He will baptize you with the Holy Spirit and with fire.
+
+  Romans 6:3-8 - Do you not know that all of us who have been baptized into Christ Jesus were baptized into his
+  death? We were buried therefore with him by baptism into death, in order that, just as Christ was raised from
+  the dead by the glory of the Father, we too might walk in newness of life. For if we have been united with him
+  in a death like his, we shall certainly be united with him in a resurrection like his. We know that our old self
+  was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be
+  enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe
+  that we will also live with him. (ESV)
+
+2:2
+Now He that raised Him from the dead will raise us also; if we do His will and walk in His commandments and love
+the things which He loved, abstaining from all unrighteousness, covetousness, love of money, evil speaking, false
+witness; not rendering evil for evil or railing for railing or blow for blow or cursing for cursing;
+
+Going forward we need to continue in love and holiness:
+
+  II Peter 1:3-9 - His divine power has granted to us all things that pertain to life and godliness, through the
+  knowledge of him who called us to his own glory and excellence, by which he has granted to us his precious and
+  very great promises, so that through them you may become partakers of the divine nature, having escaped from the
+  corruption that is in the world because of sinful desire. For this very reason, make every effort to supplement
+  your faith with virtue, and virtue with knowledge, and knowledge with self-control, and self-control with
+  steadfastness, and steadfastness with godliness, and godliness with brotherly affection, and brotherly affection
+  with love. For if these qualities are yours and are increasing, they keep you from being ineffective or
+  unfruitful in the knowledge of our Lord Jesus Christ. For whoever lacks these qualities is so nearsighted that
+  he is blind, having forgotten that he was cleansed from his former sins. (ESV)
 
 The person who is born of God has stopped "committing sin" (I John 3:4,8,9) in the sense that this new beginning
 of repentance and faith (Hebrews 6:1) has been obedience to God (Romans 10:14-21) rather than sin and going on
@@ -133686,11 +133711,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-25 Tue 19:23
+Date: 2026-08-26 Wed 14:17
 
 Author: Shane Mulligan
 
-Created: 2026-08-25 Tue 20:14
+Created: 2026-08-26 Wed 14:25
 
 Validate
 
