@@ -835,10 +835,46 @@ Transfiguration:
   clothes became white as light. And behold, there appeared to them Moses and Elijah, talking with him. (ESV)
 
 We are justified by faith in Jesus, and what is not done in faith is sin. So if a person really were to commit
-sin, then they have done so without faith. We need faith in Jesus for justification and we need justification for
-sanctification. If someone commits sin then they need to repent from it (confess and forsake and go on walking in
-the light, the love for the truth) and towards faith in God. Walking in the light, the love of the truth, we can
-be cleaned up (sanctified). The person's faith must not fail overall:
+sin, then they have done so without faith:
+
+  II Thessalonians 3:2 - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 16:9 - concerning sin, because they do not believe in me; (ESV)
+
+It's possible to have sin/defilement while having faith:
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  I John 1:8 - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
+
+  Romans 7:17-23 - So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good
+  dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it
+  out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do
+  not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want
+  to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my
+  members another law waging war against the law of my mind and making me captive to the law of sin that dwells in
+  my members. (ESV)
+
+But it's not possible to simultaneously have faith while committing sin:
+
+  II Thessalonians 3:2 - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 16:9 - concerning sin, because they do not believe in me; (ESV)
+
+  I John 3:9 - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on
+  sinning because he has been born of God. (ESV)
+
+We need faith in Jesus for justification and we need justification for sanctification. If someone commits sin then
+they need to repent from it (confess and forsake and go on walking in the light, the love for the truth) and
+towards faith in God. Walking in the light, the love of the truth, we can be cleaned up (sanctified). The person's
+faith must not fail overall:
 
   Revelation of John 2:1-5 - “To the angel of the church in Ephesus write: The One who holds the seven stars in
   His right hand, the One who walks among the seven golden lampstands, says this: ‘I know your deeds and your toil
@@ -2337,9 +2373,9 @@ practicing righteousness:
 
 Where it says in Romans 4:18 that in hope against hope Abraham believed in the promise, the Christian hopes in
 Jesus Christ to partake in the promise of Abraham. And the one who hopes in Jesus Christ purifies Himself and
-doesn't make a practice of sinning. Hoping in Jesus Christ surely then involves loving another. So then, people
-who think they have some kind of right to enter the Kingdom of God (rather than to simply abide in Jesus Christ's
-commandments with the hope of entering) are deluded:
+doesn't make a practice of sinning. Hoping in Jesus Christ surely then involves loving one another. So then,
+people who think they have some kind of right to enter the Kingdom of God (rather than to simply abide in Jesus
+Christ's commandments with the hope of entering) are deluded:
 
   I John 3:3-11 - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice
   of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in
@@ -7737,6 +7773,16 @@ Whatever does not proceed from faith sin (Romans 14:23), and sin is lawlessness 
 that doesn't come from a love for the truth is feigned (Luke 6:45, Psalms 81:15). We must be law of faith abiding
 (John 14:15, Romans 3:27, I Corinthians 9:21, Matthew 13:41).
 
+We are justified by faith in Jesus, and what is not done in faith is sin. So if a person really were to commit
+sin, then they have done so without faith:
+
+  II Thessalonians 3:2 - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 16:9 - concerning sin, because they do not believe in me; (ESV)
+
 As a slave of righteousness, one's actions are done while holding faith in the truth, trusting, believing, loving
 that which is the Truth (i.e. trusting even the teaching). Being "obedient from the heart" implies that one "loves
 the Truth" (Luke 6:45, Psalms 81:15):
@@ -12893,6 +12939,33 @@ faith.
 
 What is not done in faith is sin, and so when a person sins, they are not justified in that moment because they do
 not have faith in that moment. The very nature of committing sin is that it's done without faith.
+
+It's possible to have sin/defilement while having faith:
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  I John 1:8 - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
+
+  Romans 7:17-23 - So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good
+  dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it
+  out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do
+  not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want
+  to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my
+  members another law waging war against the law of my mind and making me captive to the law of sin that dwells in
+  my members. (ESV)
+
+But it's not possible to simultaneously have faith while committing sin:
+
+  II Thessalonians 3:2 - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 16:9 - concerning sin, because they do not believe in me; (ESV)
+
+  I John 3:9 - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on
+  sinning because he has been born of God. (ESV)
 
 Clearly, then, it's possible to have sinful lapses of faith, and if it's possible to have sinful lapses of faith,
 then it's possible, I think, to have lapses of justification (i.e. in the act of committing the sin, anyway). Of
@@ -54392,6 +54465,33 @@ instead live to obey God, obey Jesus, we have faith in Him and love one other as
 
 A person might "have sin" but be repentant and love the truth and hate the sin. They might treasure Jesus and
 treasure God's Law and grieve their indwelling sin.
+
+It's possible to have sin/defilement while having faith:
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  I John 1:8 - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
+
+  Romans 7:17-23 - So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good
+  dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it
+  out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do
+  not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want
+  to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my
+  members another law waging war against the law of my mind and making me captive to the law of sin that dwells in
+  my members. (ESV)
+
+But it's not possible to simultaneously have faith while committing sin:
+
+  II Thessalonians 3:2 - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 16:9 - concerning sin, because they do not believe in me; (ESV)
+
+  I John 3:9 - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on
+  sinning because he has been born of God. (ESV)
 
 See how in Romans 7:22-23 Paul says he delights in God's law but "indwelling sin" is fighting against his mind.
 Paul has the love of the truth in his heart. Paul is in Christ with the love of the truth.
@@ -133948,7 +134048,7 @@ Date: 2026-08-27 Thu 07:58
 
 Author: Shane Mulligan
 
-Created: 2026-08-27 Thu 08:12
+Created: 2026-08-27 Thu 15:31
 
 Validate
 

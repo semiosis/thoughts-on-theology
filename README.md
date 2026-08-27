@@ -394,7 +394,33 @@ Moses in a lapse of faith struck a rock instead of speaking to it, but later was
 
 > **[Matthew 17:1-3](https://www.biblegateway.com/passage/?search=Matthew%2017%3A1-3&version=ESV)** - And after six days Jesus took with him Peter and James, and John his brother, and led them up a high mountain by themselves. And he was transfigured before them, and his face shone like the sun, and his clothes became white as light. And behold, there appeared to them Moses and Elijah, talking with him. (ESV)
 
-We are justified by faith in Jesus, and what is not done in faith is sin. So if a person really were to commit sin, then they have done so without faith. We need faith in Jesus for justification and we need justification for sanctification. If someone commits sin then they need to repent from it (confess and forsake and go on walking in the light, the love for the truth) and towards faith in God. Walking in the light, the love of the truth, we can be cleaned up (sanctified). The person's faith must not fail overall:
+We are justified by faith in Jesus, and what is not done in faith is sin. So if a person really were to commit sin, then they have done so without faith:
+
+> **[II Thessalonians 3:2](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A2&version=ESV)** - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+> **[John 16:9](https://www.biblegateway.com/passage/?search=John%2016%3A9&version=ESV)** - concerning sin, because they do not believe in me; (ESV)
+
+It's possible to have sin/defilement while having faith:
+
+> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Since we have these promises, beloved, let us cleanse ourselves from every defilement of body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+> **[I John 1:8](https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV)** - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
+
+> **[Romans 7:17-23](https://www.biblegateway.com/passage/?search=Romans%207%3A17-23&version=ESV)** - So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. (ESV)
+
+But it's not possible to simultaneously have faith while committing sin:
+
+> **[II Thessalonians 3:2](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A2&version=ESV)** - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+> **[John 16:9](https://www.biblegateway.com/passage/?search=John%2016%3A9&version=ESV)** - concerning sin, because they do not believe in me; (ESV)
+
+> **[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
+
+We need faith in Jesus for justification and we need justification for sanctification. If someone commits sin then they need to repent from it (confess and forsake and go on walking in the light, the love for the truth) and towards faith in God. Walking in the light, the love of the truth, we can be cleaned up (sanctified). The person's faith must not fail overall:
 
 > **[Revelation of John 2:1-5](https://www.biblegateway.com/passage/?search=Revelation%202%3A1-5&version=NASB)** - “To the angel of the church in Ephesus write: The One who holds the seven stars in His right hand, the One who walks among the seven golden lampstands, says this: ‘I know your deeds and your toil and perseverance, and that you cannot tolerate evil men, and you put to the test those who call themselves apostles, and they are not, and you found them to be false; and you have perseverance and have endured for My name’s sake, and have not grown weary. But I have this against you, that you have left your first (G4413 protos) love (G26 **agape**). Therefore remember from where you have fallen, and repent and do the deeds you did at first; or else I am coming to you and will remove your lampstand out of its place&#x2013;unless you repent. (NASB)
 
@@ -1048,7 +1074,7 @@ So we need a faith that is from the love for the truth, the love for Jesus Chris
 
 > **[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)** - And by this we know that we have come to know him, if we keep his commandments. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, but whoever keeps his word, in him truly the love of God is perfected. **By this we may be sure that we are in him:** whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
 
-Where it says in [Romans 4:18](https://www.biblegateway.com/passage/?search=Romans%204%3A18&version=ESV) that in hope against hope Abraham believed in the promise, the Christian hopes in Jesus Christ to partake in the promise of Abraham. And the one who hopes in Jesus Christ purifies Himself and doesn't make a practice of sinning. Hoping in Jesus Christ surely then involves loving another. So then, people who think they have some kind of right to enter the Kingdom of God (rather than to simply abide in Jesus Christ's commandments with the hope of entering) are deluded:
+Where it says in [Romans 4:18](https://www.biblegateway.com/passage/?search=Romans%204%3A18&version=ESV) that in hope against hope Abraham believed in the promise, the Christian hopes in Jesus Christ to partake in the promise of Abraham. And the one who hopes in Jesus Christ purifies Himself and doesn't make a practice of sinning. Hoping in Jesus Christ surely then involves loving one another. So then, people who think they have some kind of right to enter the Kingdom of God (rather than to simply abide in Jesus Christ's commandments with the hope of entering) are deluded:
 
 > **[I John 3:3-11](https://www.biblegateway.com/passage/?search=1%20John%203%3A3-11&version=ESV)** - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. (ESV)
 
@@ -3622,6 +3648,14 @@ By faith in Jesus Christ, and having heard in God's word what pleases Him, we ac
 -   **Analogy:** Let's just say you wanted to do something nice for somebody for their birthday and so you make them a chocolate cake. But when it came to giving the cake, it was rejected. You didn't know but it just so happened that chocolate cakes remind that person of something bad that they experienced. You didn't know, but you thought you had good motivations (at least you thought you were doing a good thing, or perhaps thought what you were doing was more good than bad, let's just say). Someone else might accuse you of bad intentions and say that it was a very bad thing that you did. But Christians aim to receive praise from God who sees even our hearts, rather than from anyone else. This isn't reason enough alone to by default act presumptuously (and ask forgiveness later). If a person is by faith obeying Jesus' instructions (**[I John 5:1-2](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-2&version=ESV)**) they have done nothing wrong in doing that, even if they are criticised by others for having done wrong. But acting out of sincerity and out of good intention could potentially also be done not out of a trust for the truth, but rather out of trusting some other thing that is not the truth. For example, a person's personal truth (i.e. their beliefs) may not be in agreement with the truth of God. It's important that when we do act out of sincerity, that it's also out of faith in God (in agreement with God to our knowledge). What is not done in faith is sin (faith being trust in and love for the truth).
 
 Whatever does not proceed from faith sin (**[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**), and sin is lawlessness (**[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**), and any obedience that doesn't come from a love for the truth is feigned (**[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)**, **[Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)**). We must be law of faith abiding (**[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**, **[Romans 3:27](https://www.biblegateway.com/passage/?search=Romans%203%3A27&version=ESV)**, **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)**, **[Matthew 13:41](https://www.biblegateway.com/passage/?search=Matthew%2013%3A41&version=ESV)**).
+
+We are justified by faith in Jesus, and what is not done in faith is sin. So if a person really were to commit sin, then they have done so without faith:
+
+> **[II Thessalonians 3:2](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A2&version=ESV)** - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+> **[John 16:9](https://www.biblegateway.com/passage/?search=John%2016%3A9&version=ESV)** - concerning sin, because they do not believe in me; (ESV)
 
 As a slave of righteousness, one's actions are done while holding faith in the truth, trusting, believing, loving that which is the Truth (i.e. trusting even the teaching). Being "obedient from the heart" implies that one "loves the Truth" (**[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)**, **[Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)**):
 
@@ -6657,6 +6691,24 @@ I do not think it's possible to commit sin in faith.
 
 What is not done in faith is sin, and so when a person sins, they are not justified in that moment because they do not have faith in that moment.
 The very nature of committing sin is that it's done without faith.
+
+It's possible to have sin/defilement while having faith:
+
+> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Since we have these promises, beloved, let us cleanse ourselves from every defilement of body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+> **[I John 1:8](https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV)** - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
+
+> **[Romans 7:17-23](https://www.biblegateway.com/passage/?search=Romans%207%3A17-23&version=ESV)** - So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. (ESV)
+
+But it's not possible to simultaneously have faith while committing sin:
+
+> **[II Thessalonians 3:2](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A2&version=ESV)** - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+> **[John 16:9](https://www.biblegateway.com/passage/?search=John%2016%3A9&version=ESV)** - concerning sin, because they do not believe in me; (ESV)
+
+> **[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
 
 Clearly, then, it's possible to have sinful lapses of faith, and if it's possible to have sinful lapses of faith, then it's possible, I think, to have lapses of justification (i.e. in the act of committing the sin, anyway).
 Of course, God is the justifier, but we know that God justifies those who have faith in Jesus. So if God were to "not consider someone justified presentnly", even someone who He had previously deemed justified, then it's reasonable to think that the reason God may not presently be justifying the person would be because they are without faith.
@@ -16360,7 +16412,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org82b9fe2) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgce99145) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -22024,7 +22076,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org9509e7c).
+I didn't know but it turned out to be the last day of my [sentence](#org96aec49).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -31962,6 +32014,24 @@ OK, so there is a difference between having "defilement"/sin (if we say we have 
 > **[I John 3:9-10](https://www.biblegateway.com/passage/?search=1%20John%203%3A9-10&version=ESV)** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
 
 A person might "have sin" but be repentant and love the truth and hate the sin. They might treasure Jesus and treasure God's Law and grieve their indwelling sin.
+
+It's possible to have sin/defilement while having faith:
+
+> **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Since we have these promises, beloved, let us cleanse ourselves from every defilement of body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+> **[I John 1:8](https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV)** - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
+
+> **[Romans 7:17-23](https://www.biblegateway.com/passage/?search=Romans%207%3A17-23&version=ESV)** - So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. (ESV)
+
+But it's not possible to simultaneously have faith while committing sin:
+
+> **[II Thessalonians 3:2](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A2&version=ESV)** - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+> **[John 16:9](https://www.biblegateway.com/passage/?search=John%2016%3A9&version=ESV)** - concerning sin, because they do not believe in me; (ESV)
+
+> **[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
 
 See how in Romans 7:22-23 Paul says he delights in God's law but "indwelling sin" is fighting against his mind. Paul has the love of the truth in his heart. Paul is in Christ with the love of the truth.
 
@@ -46296,7 +46366,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org6d3c58f)
+See: [33.4.1](#org82fee92)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -67691,7 +67761,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org6d3c58f)
+See: [33.4.1](#org82fee92)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -70345,7 +70415,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgf385dbc) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgd28590c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -78561,7 +78631,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgf385dbc) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgd28590c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -79897,7 +79967,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6a896c0)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org5ac1894)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
