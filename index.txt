@@ -46234,7 +46234,7 @@ to brilliant mechanical brains and will render homage not to God but to the Supr
 whatever that shall be … [but it is an] elementary truth that when man becomes oblivious to his own uniqueness, he
 loses his ability to weigh properly the meaning of tools created by him. …
 
-This global non-consentual push for AI into every aspect of life after raping the planet and stealing from people
+This global non-consensual push for AI into every aspect of life after raping the planet and stealing from people
 in order to manufacture it is so evil. I hope that God allows me to be able to work without forcing me into
 thinking of AI chatbots as peers. It's just a faithless, atheistic, transhumanist way of thinking and I refuse to
 do it.
@@ -134106,11 +134106,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-27 Thu 21:42
+Date: 2026-08-28 Fri 09:06
 
 Author: Shane Mulligan
 
-Created: 2026-08-27 Thu 21:47
+Created: 2026-08-28 Fri 09:31
 
 Validate
 
