@@ -1075,7 +1075,8 @@ We have faith in Jesus Christ into loving as God requires from us, and that mean
 God and our neighbour as God has commanded (Romans 13:9-10, I John 5:1-5). Keep in mind that if Jesus has said
 that "even sinners" do the same, as in love those who love them, and how Paul has said that what does not proceed
 from faith is sin, then what proceeds from a genuine faith in Jesus Christ will be that the requirement to love
-God and our neighbour, even those who hate us the way God requires, will be met:
+God and our neighbour, loving even those neighbours who hate us, will be met, and in the way that God requires us
+to love our neighbour:
 
   Luke 6:32-36 - If you love those who love you, what benefit is that to you? For even sinners love those who love
   them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same.
@@ -134048,7 +134049,7 @@ Date: 2026-08-27 Thu 07:58
 
 Author: Shane Mulligan
 
-Created: 2026-08-27 Thu 15:31
+Created: 2026-08-27 Thu 20:00
 
 Validate
 
