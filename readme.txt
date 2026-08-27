@@ -15641,6 +15641,10 @@ We must not be insubordinate. We have to let Jesus be the one in charge of us th
   partake with thankfulness, why am I denounced because of that for which I give thanks? So, whether you eat or
   drink, or whatever you do, do all to the glory of God. (ESV)
 
+  James 4:4-5 - You adulterous people! Do you not know that friendship with the world is enmity with God?
+  Therefore whoever wishes to be a friend of the world makes himself an enemy of God. Or do you suppose it is to
+  no purpose that the Scripture says, He yearns jealously over the spirit that he has made to dwell in us? (ESV)
+
 Journal <2026-04-24 Fri 11:20>
 
 I think this is how it works. Father God has put everything under Jesus' feet. Jesus puts the devil under our feet
@@ -18035,6 +18039,10 @@ not condemned along with the world:
   man. God is faithful, and he will not let you be tempted beyond your ability, but with the temptation he will
   also provide the way of escape, that you may be able to endure it. Therefore, my beloved, flee from idolatry.
   (ESV)
+
+  James 4:4-5 - You adulterous people! Do you not know that friendship with the world is enmity with God?
+  Therefore whoever wishes to be a friend of the world makes himself an enemy of God. Or do you suppose it is to
+  no purpose that the Scripture says, He yearns jealously over the spirit that he has made to dwell in us? (ESV)
 
 G3433 mólis (from mogos, "toil/laborious toil")
 properly, something happening with great difficulty , i.e. hardly ("scarcely"). Focuses on the prolonged nature of
@@ -46226,6 +46234,21 @@ to brilliant mechanical brains and will render homage not to God but to the Supr
 whatever that shall be … [but it is an] elementary truth that when man becomes oblivious to his own uniqueness, he
 loses his ability to weigh properly the meaning of tools created by him. …
 
+This global non-consentual push for AI into every aspect of life after raping the planet and stealing from people
+in order to manufacture it is so evil. I hope that God allows me to be able to work without forcing me into
+thinking of AI chatbots as peers. It's just a faithless, atheistic, transhumanist way of thinking and I refuse to
+do it.
+
+I'm a Christian and God has called me to live in newness of life, spiritually minded in love for Him and for my
+neighbour. And the way people have been using this AI stuff is earthly and of the devil.
+
+  James 3:14-17 - But if you have bitter jealousy and selfish ambition in your hearts, do not boast and be false
+  to the truth. This is not the wisdom that comes down from above, but is earthly (G1919 epigeios), unspiritual
+  (G5591 psychikē -> psuchikos -> psuche, what is natural, as it relates to physical, tangible life alone apart
+  from God's inworking of faith), demonic (G1141 daimoniōdēs; of the devil / demon-like). For where jealousy and
+  selfish ambition exist, there will be disorder and every vile practice. But the wisdom from above is first pure,
+  then peaceable, gentle, open to reason, full of mercy and good fruits, impartial and sincere. (ESV)
+
 I believe what Rich Fyke says here. Earth is not where I'm going to be spending eternity.
 
 youtube.com: Can Anything Separate You From The Love of Christ ? { Bible Study - Romans Chapter 8 Part 2 } {@
@@ -62410,6 +62433,44 @@ It was idolatry that was the disobedience which prevented these from entering in
   not common to man. God is faithful, and he will not let you be tempted beyond your ability, but with the
   temptation he will also provide the way of escape, that you may be able to endure it. Therefore, my beloved,
   flee from idolatry. (ESV)
+
+  I Corinthians 10:14-31 - Therefore, my beloved, flee from idolatry. I speak as to sensible people; judge for
+  yourselves what I say. The cup of blessing that we bless, is it not a participation in the blood of Christ? The
+  bread that we break, is it not a participation in the body of Christ? Because there is one bread, we who are
+  many are one body, for we all partake of the one bread. Consider the people of Israel: are not those who eat the
+  sacrifices participants in the altar? What do I imply then? That food offered to idols is anything, or that an
+  idol is anything? No, I imply that what pagans sacrifice they offer to demons and not to God. I do not want you
+  to be participants with demons. You cannot drink the cup of the Lord and the cup of demons. You cannot partake
+  of the table of the Lord and the table of demons. Shall we provoke the Lord to jealousy? Are we stronger than
+  he? All things are lawful, but not all things are helpful. All things are lawful, but not all things build up.
+  Let no one seek his own good, but the good of his neighbor. Eat whatever is sold in the meat market without
+  raising any question on the ground of conscience. For the earth is the Lord's, and the fullness thereof. If one
+  of the unbelievers invites you to dinner and you are disposed to go, eat whatever is set before you without
+  raising any question on the ground of conscience. But if someone says to you, This has been offered in
+  sacrifice, then do not eat it, for the sake of the one who informed you, and for the sake of conscience— I do
+  not mean your conscience, but his. For why should my liberty be determined by someone else's conscience? If I
+  partake with thankfulness, why am I denounced because of that for which I give thanks? So, whether you eat or
+  drink, or whatever you do, do all to the glory of God. (ESV)
+
+Friendship with the world, like idolatry, is demonic and, would prevent a person from entering into God's rest:
+
+  James 4:4-5 - You adulterous people! Do you not know that friendship with the world is enmity with God?
+  Therefore whoever wishes to be a friend of the world makes himself an enemy of God. Or do you suppose it is to
+  no purpose that the Scripture says, He yearns jealously over the spirit that he has made to dwell in us? (ESV)
+
+Bitter jealousy and selfish ambition is "earthly", "unspiritual", and "demonic":
+
+  James 3:14-17 - But if you have bitter (G4089 pikron) jealousy (G2205 zēlon) and selfish ambition (G2052
+  eritheian; self-interest) in your hearts, do not boast and be false to the truth. This is not the wisdom that
+  comes down from above, but is earthly (G1919 epigeios), unspiritual (G5591 psychikē -> psuchikos -> psuche, what
+  is natural, as it relates to physical, tangible life alone apart from God's inworking of faith), demonic (G1141
+  daimoniōdēs; of the devil / demon-like). For where jealousy and selfish ambition exist, there will be disorder
+  and every vile practice. But the wisdom from above is first pure, then peaceable, gentle, open to reason, full
+  of mercy and good fruits, impartial and sincere. (ESV)
+
+  Philippians 2:3 - Do nothing from rivalry or conceit (G2052 eritheian;
+  self-interest/rivalry/conceit/selfish-ambition/strife/bitter-conflict), but in humility count others more
+  significant than yourselves. (ESV)
 
 youtube.com: There's a River of Life - The Fisherfolk - Praise with Lyrics {@timetofavourzion3127}
 There’s a land of rest that we may enter now, Freed from all our works and freed from Satan’s power, Just resting
@@ -134045,11 +134106,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-27 Thu 07:58
+Date: 2026-08-27 Thu 21:42
 
 Author: Shane Mulligan
 
-Created: 2026-08-27 Thu 20:00
+Created: 2026-08-27 Thu 21:47
 
 Validate
 
