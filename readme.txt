@@ -603,6 +603,9 @@ hath fulfilled the commandment of righteousness; for he that hath love is far fr
   purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is
   lawlessness. (ESV)
 
+  Psalms 18:26 - with the purified you show yourself pure; and with the crooked you make yourself seem tortuous.
+  (ESV)
+
   II Corinthians 6:14 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
   lawlessness? Or what fellowship has light with darkness? (ESV)
 
@@ -3341,6 +3344,36 @@ title belongs to God:
   if I am a master, where is my fear? says the LORD of hosts to you, O priests, who despise my name. But you say,
   How have we despised your name? (ESV)
 
+With regard to Jesus Christ's commandment to call no man on earth "father", the [Mark 4:17] "trouble or
+persecution on account of the word" might refer to any difficulties as people oppose the fact that one practices
+this commandment in reality. The good sail would not fall away:
+
+  John 5:18 - This was why the Jews were seeking all the more to kill him, because not only was he breaking the
+  Sabbath, but he was even calling God his own Father, making himself equal with God. (ESV)
+
+It's wise to receive Jesus and His words and do as Jesus commands:
+
+  Mark 4:17 - And they have no root in themselves, but endure for a while; then, when tribulation or persecution
+  arises on account of the word, immediately they fall away. (ESV)
+
+  Luke 6:49 - But the one who hears and does not do them is like a man who built a house on the ground without a
+  foundation. When the stream broke against it, immediately it fell, and the ruin of that house was great. (ESV)
+
+  Luke 6:46-49 - Why do you call me Lord, Lord, and not do what I tell you? Everyone who comes to me and hears my
+  words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid
+  the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it,
+  because it had been well built. But the one who hears and does not do them is like a man who built a house on
+  the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
+  house was great. (ESV)
+
+  Luke 8:11-15 - Now the parable is this: The seed is the word of God. The ones along the path are those who have
+  heard. Then the devil comes and takes away the word from their hearts, so that they may not believe and be
+  saved. And the ones on the rock are those who, when they hear the word, receive it with joy. But these have no
+  root; they believe for a while, and in time of testing fall away. And as for what fell among the thorns, they
+  are those who hear, but as they go on their way they are choked by the cares and riches and pleasures of life,
+  and their fruit does not mature. As for that in the good soil, they are those who, hearing the word, hold it
+  fast in an honest and good heart, and bear fruit with patience. (ESV)
+
 Keep that in mind, because there is a new way of serving God (Romans 14:17-18, Romans 7:4-6) in the spirit, and
 empowered by God.
 
@@ -3912,6 +3945,52 @@ than anyone or anything else, then they will bear good fruit:
   bribe, and deprive the innocent of his right! Therefore, as the tongue of fire devours the stubble, and as dry
   grass sinks down in the flame, so their root will be as rottenness, and their blossom go up like dust; for they
   have rejected the law of the LORD of hosts, and have despised the word of the Holy One of Israel. (ESV)
+
+Even though Jesus Christ Son of God is Lord, God His Father is still also reigning and is still "vinedressing":
+
+  Matthew 11:25-27 - At that time Jesus declared, I thank you, Father, Lord of heaven and earth, that you have
+  hidden these things from the wise and understanding and revealed them to little children; yes, Father, for such
+  was your gracious will. All things have been handed over to me by my Father, and no one knows the Son except the
+  Father, and no one knows the Father except the Son and anyone to whom the Son chooses to reveal him. (ESV)
+
+  John 15:1-6 - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear
+  fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you
+  are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear
+  fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are
+  the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do
+  nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are
+  gathered, thrown into the fire, and burned. (ESV)
+
+  I John 2:1 - My little children, I am writing these things to you so that you may not sin. But if anyone does
+  sin, we have an advocate with the Father, Jesus Christ the righteous. (ESV)
+
+  I Peter 1:17-19 - And if you call on him as Father who judges impartially according to each one's deeds, conduct
+  yourselves with fear throughout the time of your exile, knowing that you were ransomed from the futile ways
+  inherited from your forefathers, not with perishable things such as silver or gold, but with the precious blood
+  of Christ, like that of a lamb without blemish or spot. (ESV)
+
+  Romans 11:17-23 - But if some of the branches were broken off, and you, although a wild olive shoot, were
+  grafted in among the others and now share in the nourishing root of the olive tree, do not be arrogant toward
+  the branches. If you are, remember it is not you who support the root, but the root that supports you. Then you
+  will say, Branches were broken off so that I might be grafted in. That is true. They were broken off because of
+  their unbelief, but you stand fast through faith. So do not become proud, but stand in awe. For if God did not
+  spare the natural branches, neither will he spare you. Note then the kindness and the severity of God: severity
+  toward those who have fallen, but God's kindness to you, provided you continue in his kindness. Otherwise you
+  too will be cut off. And even they, if they do not continue in their unbelief, will be grafted in, for God has
+  the power to graft them in again. (ESV)
+
+  I Corinthians 15:27-28 - For God has put all things in subjection under his feet. But when it says, all things
+  are put in subjection, it is plain that he is excepted who put all things in subjection under him. When all
+  things are subjected to him, then the Son himself will also be subjected to him who put all things in subjection
+  under him, that God may be all in all. (ESV)
+
+  John 15:1-6 - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear
+  fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you
+  are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear
+  fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are
+  the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do
+  nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are
+  gathered, thrown into the fire, and burned. (ESV)
 
 youtube.com: R . C . Sproul | Who You ' re Saved From # rcsproul # hell # shorts {@ HEBREWMKJV }
 Let me say it again. What we're saved from in biblical terms of salvation is God Himself. God is the one who saves
@@ -10343,6 +10422,10 @@ Continued love from God, though, is conditional on the stance of our own heart t
   him. (ESV)
 
   Matthew 5:7 - Blessed are the merciful, for they shall receive mercy. (ESV)
+
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
 
 Jesus is patient with us as we are saved:
 
@@ -17157,6 +17240,10 @@ ourselves as He is pure:
   when he appears we shall be like him, because we shall see him as he is. And everyone who thus hopes in him
   purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is
   lawlessness. (ESV)
+
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
 
 We want to be overcome by Christ so that we just do the will of God and can't help but do the will of God. To get
 there we are instructed to keep Jesus' commandments and resist sin:
@@ -31444,11 +31531,11 @@ God.
 
 Without Jesus Christ coming into a dark world (Luke 17:26, Genesis 6:5) as light that people may look upon Him and
 believe in Him and live (Numbers 21:9, John 3:14-15, John 6:40), people would destroy themselves (Ezekiel
-18:30-32, Romans 6:23). perish in sin. Humans would all be reprobates doing evil continually. The human race would
-be completely lost. But if we look upon Jesus Christ and love Jesus, we will keep His commandments (John 14:15).
-If we have faith in Him, we will do His deeds (John 14:10-15). So we must be those who love God's righteousness
-revealed and from the love of the truth (Luke 6:45), we will practice righteousness (I John 3:3-11), doing good
-deeds (III John 1:11).
+18:30-32, Romans 6:23) and would perish in their sin. Humans would all be reprobates doing evil continually. The
+human race would be completely lost. But if we look upon Jesus Christ and love Jesus, we will keep His
+commandments (John 14:15). If we have faith in Him, we will do His deeds (John 14:10-15). So we must be those who
+love God's righteousness revealed and from the love of the truth (Luke 6:45), we will practice righteousness (I
+John 3:3-11), doing good deeds (III John 1:11).
 
   Luke 17:26 - Just as it was in the days of Noah, so will it be in the days of the Son of Man. (ESV)
 
@@ -37635,6 +37722,10 @@ If we are merciful then we will receive mercy:
   Matthew 5:7 - Blessed are the merciful, for they shall receive mercy.
 
   James 2:13 - For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment.
+
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
 
 To get to know Jesus, we must obey His commandments:
 
@@ -83934,12 +84025,16 @@ against the spirit of the world that rejects God:
 I had been born-again so I had received forgiveness from God, and needed to pass it on. Also, after being
 born-again we should continue to pass forward grace, mercy and forgiveness:
 
+  Ephesians 4:32 - Be kind to one another, tenderhearted, forgiving one another, as God in Christ forgave you.
+  (ESV)
+
   Matthew 5:7 - Blessed are the merciful, for they shall receive mercy. (ESV)
 
   James 2:13 - For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment. (ESV)
 
-  Ephesians 4:32 - Be kind to one another, tenderhearted, forgiving one another, as God in Christ forgave you.
-  (ESV)
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
 
 In fact, it's clear that we must continue on in Jesus Christ's teaching after having been forgiven, and that
 includes being merciful to other people, as we have received mercy.
@@ -85491,6 +85586,10 @@ Mercy comes from God:
 Also the merciful will receive mercy:
 
   Matthew 5:7 - Blessed are the merciful, for they shall receive mercy. (ESV)
+
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
 
 We need to imitate God:
 
@@ -91000,6 +91099,10 @@ Be merciful to others:
 
   Matthew 5:7 - Blessed are the merciful, for they shall receive mercy.
 
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
+
 Be humble:
 
   James 4:6 - But he gives more grace. Therefore it says, God opposes the proud, but gives grace to the humble.
@@ -93401,7 +93504,14 @@ To get to know Jesus, we must obey His commandments:
 
 38.4. The merciful shall receive mercy
 
-  Matthew 5:7 - Blessed are the merciful, for they shall receive mercy.
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
+
+  Matthew 5:7 - Blessed are the merciful, for they shall receive mercy. (ESV)
+
+  I John 3:2 - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that when
+  he appears we shall be like him, because we shall see him as he is. (ESV)
 
   Romans 9:15-16 - For he says to Moses, I will have mercy on whom I have mercy, and I will have compassion on
   whom I have compassion. So then it depends not on human will or exertion, but on God, who has mercy. (ESV)
@@ -99851,7 +99961,27 @@ If we are merciful then we will receive mercy:
 
   James 2:13 - For judgment is without mercy to one who has shown no mercy. Mercy triumphs over judgment.
 
-Jesus' servants are given mercy by Jesus and they also show mercy to others.
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
+
+Jesus' servants are given mercy by Jesus and they also show mercy to others:
+
+  Matthew 18:21-35 - Then Peter came up and said to him, Lord, how often will my brother sin against me, and I
+  forgive him? As many as seven times? Jesus said to him, I do not say to you seven times, but seventy times
+  seven. Therefore the kingdom of heaven may be compared to a king who wished to settle accounts with his
+  servants. When he began to settle, one was brought to him who owed him ten thousand talents. And since he could
+  not pay, his master ordered him to be sold, with his wife and children and all that he had, and payment to be
+  made. So the servant fell on his knees, imploring him, Have patience with me, and I will pay you everything. And
+  out of pity for him, the master of that servant released him and forgave him the debt. But when that same
+  servant went out, he found one of his fellow servants who owed him a hundred denarii, and seizing him, he began
+  to choke him, saying, Pay what you owe. So his fellow servant fell down and pleaded with him, Have patience with
+  me, and I will pay you. He refused and went and put him in prison until he should pay the debt. When his fellow
+  servants saw what had taken place, they were greatly distressed, and they went and reported to their master all
+  that had taken place. Then his master summoned him and said to him, You wicked servant! I forgave you all that
+  debt because you pleaded with me. And should not you have had mercy on your fellow servant, as I had mercy on
+  you? And in anger his master delivered him to the jailers, until he should pay all his debt. So also my heavenly
+  Father will do to every one of you, if you do not forgive your brother from your heart. (ESV)
 
 Grace and truth have come through Jesus Christ:
 
@@ -115597,6 +115727,10 @@ The mercy regarding election ultimately depends on God's mercy:
 Jesus has made a promise regarding mercy. We should be merciful if we want mercy from God:
 
   Matthew 5:7 - Blessed are the merciful, for they shall receive mercy. (ESV)
+
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
 
 If we want our election to be sure then we should be supplementing our faith as peter destribes. We should have
 brotherly affection and agape love for our family in Christ and not go on sinning:
@@ -134359,11 +134493,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-28 Fri 19:49
+Date: 2026-08-28 Fri 21:51
 
 Author: Shane Mulligan
 
-Created: 2026-08-28 Fri 20:04
+Created: 2026-08-28 Fri 21:56
 
 Validate
 
