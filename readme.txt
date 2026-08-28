@@ -603,6 +603,11 @@ hath fulfilled the commandment of righteousness; for he that hath love is far fr
   purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is
   lawlessness. (ESV)
 
+  II Corinthians 6:14 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
+  lawlessness? Or what fellowship has light with darkness? (ESV)
+
+  I John 2:9 - Whoever says he is in the light and hates his brother is still in darkness. (ESV)
+
 Some people take that word in Matt 5:48 which is translated into English as "perfect" to mean "sinless
 perfection", but that's not what it means here. It's instructing to love not "only in part" but in a "complete"
 way. God sends the rain on the just and the unjust. We should love others the way God has loved us.
@@ -686,6 +691,18 @@ Whatever does not proceed from faith is sin which is lawlessness:
 
   Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must believe
   that he exists and that he rewards those who seek him. (ESV)
+
+Walking in the light involves loving the brothers:
+
+  I John 2:9 - Whoever says he is in the light and hates his brother is still in darkness. (ESV)
+
+  II Corinthians 6:14 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
+  lawlessness? Or what fellowship has light with darkness? (ESV)
+
+  I John 3:13-16 - Do not be surprised, brothers, that the world hates you. We know that we have passed out of
+  death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his
+  brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that
+  he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
 
 So if a person after appealing to God for mercy, then returns and commits sin again (i.e. for what is not done in
 faith is sin), then they don't have access to the sanctification. Faith needs to continue. What is not done in
@@ -890,6 +907,18 @@ faith must not fail overall:
 
   I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
   blood of Jesus his Son cleanses us from all sin. (ESV)
+
+We need to continue trusting Jesus. It's not possible to simultaneously commit sin and have faith in Jesus Christ.
+So we must resist committing sin:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 Father God takes away Jesus' branches which do not bear fruit. So we must bear good fruit in order to continue
 abiding in Jesus:
@@ -1486,8 +1515,11 @@ defeated death:
   I Peter 2:24 - He himself bore our sins in his body on the tree, that we might die to sin and live to
   righteousness. By his wounds you have been healed. (ESV)
 
+That Jesus Christ is the Son of God entails the truth that Jesus Christ "takes after" God (Colossians 1:15).
 Believing that Jesus is the Son of God entails believing that Jesus' works were good, that Jesus practiced
-righteousness. A son of God practices righteousness. A child of the devil practices wickedness:
+righteousness (John 14:31). A son of God practices righteousness. A child of the devil practices wickedness:
+
+  Colossians 1:15 - He is the image of the invisible God, the firstborn of all creation. (ESV)
 
   Luke 23:40-43 - But the other answered, and rebuking him said, “Do you not even fear God, since you are under
   the same sentence of condemnation? And we indeed are suffering justly, for we are receiving what we deserve for
@@ -1530,6 +1562,24 @@ righteousness. A son of God practices righteousness. A child of the devil practi
   gathered and burned with fire, so will it be at the close of the age. The Son of Man will send his angels, and
   they will gather out of his kingdom all causes of sin and all law-breakers, and throw them into the fiery
   furnace. In that place there will be weeping and gnashing of teeth. (ESV)
+
+  John 14:31 - but I do as the Father has commanded me, so that the world may know that I love the Father. Rise,
+  let us go from here. (ESV)
+
+God is pleased with Jesus Christ. Jesus Christ the Son of God takes after His father. Jesus Christ practices
+righteousness with the love of God His Father:
+
+  John 14:31 - but I do as the Father has commanded me, so that the world may know that I love the Father. Rise,
+  let us go from here. (ESV)
+
+  John 10:17 - For this reason the Father loves me, because I lay down my life that I may take it up again. (ESV)
+
+  Matthew 3:13-17 - Then Jesus came from Galilee to the Jordan to John, to be baptized by him. John would have
+  prevented him, saying, I need to be baptized by you, and do you come to me? But Jesus answered him, Let it be so
+  now, for thus it is fitting for us to fulfill all righteousness. Then he consented. And when Jesus was baptized,
+  immediately he went up from the water, and behold, the heavens were opened to him, and he saw the Spirit of God
+  descending like a dove and coming to rest on him; and behold, a voice from heaven said, This is my beloved Son,
+  with whom I am well pleased. (ESV)
 
 We must heed God's word even given through Jesus Christ, receiving God's testimony, even of His Son, Jesus Christ,
 rather than be led astray by earthly/worldly words, and in trusting God, we set our seal that God is true. This
@@ -1910,6 +1960,18 @@ Entering the Kingdom of God requires having faith in Jesus Christ, having stoppe
   down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods
   and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little
   children, let us not love in word or talk but in deed and in truth. (ESV)
+
+We need to continue trusting Jesus. It's not possible to simultaneously commit sin and have faith in Jesus Christ.
+So we must resist committing sin:
+
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
 
 A person with faith in Jesus Christ has the right to become a child of God. Entering the Kingdom of God requires
 being born-again, and as well as being born-again, a person is also required to not be sinning in order to enter
@@ -3250,8 +3312,17 @@ If we do what Jesus commands us then we will love one-another (John 15:14-17, I 
 goeth before – love toward God and Christ and toward our neighbor. For if any man be occupied with these, he
 hath fulfilled the commandment of righteousness; for he that hath love is far from all sin.
 
+Those people who are set free from committing sin are disciples of Jesus Christ:
+
+  John 8:31-32 - So Jesus said to the Jews who had believed (G4100 pepisteukotas; having believed) in him, If you
+  abide (G3306 meinēte; remain, abide, stay, continue, dwell, endure) in my word, you are truly my disciples, and
+  you will know the truth (G225 alētheia; truth, reality; i.e. walking in reality), and the truth will set you
+  free. (ESV)
+
 Jesus instructed His disciples to call no man on earth "father". This instruction, therefore, is for the
-Christian:
+Christian. After all, Jesus' father was not Joseph and yet Jesus was able to keep the 5th commandment to honor
+father and mother, and Jesus said Himself that He honors His father, and says that His father is God. And Father
+God said that Jesus is His Son who He is well pleased with:
 
   Matthew 23:1 - Then Jesus said to the crowds and to his disciples, (ESV)
 
@@ -31364,6 +31435,103 @@ We love because He first loved us:
   I John 3:10 - By this it is evident who are the children of God, and who are the children of the devil: whoever
   does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
 
+1.1.2. Walking in the light
+
+Light is loving in the truth or walking in the love of the truth, the love for the truth, love for God and the
+children of God (in the way that God has commanded us to love). Darkness is a lack of love for the truth, or
+simply a love for evil, love for the "world" rather than for God, believing in lies and rejecting the truth of
+God.
+
+Without Jesus Christ coming into a dark world (Luke 17:26, Genesis 6:5) as light that people may look upon Him and
+believe in Him and live (Numbers 21:9, John 3:14-15, John 6:40), people would destroy themselves (Ezekiel
+18:30-32, Romans 6:23). perish in sin. Humans would all be reprobates doing evil continually. The human race would
+be completely lost. But if we look upon Jesus Christ and love Jesus, we will keep His commandments (John 14:15).
+If we have faith in Him, we will do His deeds (John 14:10-15). So we must be those who love God's righteousness
+revealed and from the love of the truth (Luke 6:45), we will practice righteousness (I John 3:3-11), doing good
+deeds (III John 1:11).
+
+  Luke 17:26 - Just as it was in the days of Noah, so will it be in the days of the Son of Man. (ESV)
+
+  Genesis 6:5 - The LORD saw that the wickedness of man was great in the earth, and that every intention of the
+  thoughts of his heart was only evil continually. (ESV)
+
+  John 12:46 - I have come into the world as light, so that whoever believes in me may not remain in darkness.
+  (ESV)
+
+  Numbers 21:9 - So Moses made a bronze serpent and set it on a pole. And if a serpent bit anyone, he would look
+  at the bronze serpent and live. (ESV)
+
+  John 3:14-15 - And as Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up, that
+  whoever believes in him may have eternal life. (ESV)
+
+  John 6:40 - For this is the will of my Father, that everyone who looks on the Son and believes in him should
+  have eternal life, and I will raise him up on the last day. (ESV)
+
+  III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
+  has not seen God. (ESV)
+
+Paul clearly led people to be imitators of Christ for themself as he is an imitator of Christ, so Paul's followers
+should imitate him in imitating Christ:
+
+  I Corinthians 11:1-3 - Be imitators of me, as I am of Christ. Now I commend you because you remember me in
+  everything and maintain the traditions even as I delivered them to you. But I want you to understand that the
+  head of every man is Christ, the head of a wife is her husband, and the head of Christ is God. (ESV)
+
+  Ephesians 5:1-2 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
+  gave himself up for us, a fragrant offering and sacrifice to God. (ESV)
+
+Practicing righteousness from the love for the truth (I John 2:29, I John 3:7), a person walks by faith rather
+than committing sin (Romans 14:23), sin being lawlessness (I John 3:4). Someone who walks by faith is law-abiding
+and not lawless and not committing sin (I John 5:18), being law-abiding (Matthew 7:23, I Corinthians 8:3) to the
+law of faith (John 14:15) by faith in Christ Jesus. Someone who walks by faith is led by the Spirit and is not
+under the law (Galatians 5:18). If someone walks by the Spirit (Galatians 5:16) then they will not gratify the
+desires of the flesh (Galatians 5:17), and not being under the law there is no condemnation (Romans 8:1) for them.
+
+  Romans 8:5-8 - For those who live according to the flesh set their minds on the things of the flesh, but those
+  who live according to the Spirit set their minds on the things of the Spirit. To set the mind on the flesh is
+  death, but to set the mind on the Spirit is life and peace. For the mind that is set on the flesh is hostile to
+  God, for it does not submit to God's law; indeed, it cannot. Those who are in the flesh cannot please God. (ESV)
+
+  I John 5:18 - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself,
+  and that wicked one toucheth him not. (KJV)
+
+  II Corinthians 6:14 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
+  lawlessness? Or what fellowship has light with darkness? (ESV)
+
+  I John 1:5 - This is the message we have heard from him and proclaim to you, that God is light, and in him is no
+  darkness at all. (ESV)
+
+  I Peter 2:9 - But you are a chosen race, a royal priesthood, a holy nation, a people for his own possession,
+  that you may proclaim the excellencies of him who called you out of darkness into his marvelous light. (ESV)
+
+  I Thessalonians 5:5 - For you are all children of light, children of the day. We are not of the night or of the
+  darkness. (ESV)
+
+Walking in the light involves loving the brothers:
+
+  I John 2:9 - Whoever says he is in the light and hates his brother is still in darkness. (ESV)
+
+  II Corinthians 6:14 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
+  lawlessness? Or what fellowship has light with darkness? (ESV)
+
+  I John 3:13-16 - Do not be surprised, brothers, that the world hates you. We know that we have passed out of
+  death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his
+  brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that
+  he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+We must be those who receive God's salvation. So we must love the light and walk in the light:
+
+  John 3:17-21 - For God did not send his Son into the world to condemn the world, but in order that the world
+  might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned
+  already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has
+  come into the world, and people loved the darkness rather than the light because their deeds were evil. For
+  everyone who does wicked things hates the light and does not come to the light, lest his deeds should be
+  exposed. But whoever does (G4160 poiōn; doing) what is true comes to the light, so that it may be clearly seen
+  that his deeds have been carried out in God. (ESV)
+
+  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. (ESV)
+
 1.2. Children of God, born of promise, have faith in Christ and purify themselves
 
   Genesis 27:41 - Now Esau hated Jacob because of the blessing with which his father had blessed him, and Esau
@@ -33366,19 +33534,34 @@ We need to be "imitators" (not replacers) of Christ in order to share in Him.
   III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
   has not seen God. (ESV)
 
+  Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence
+  firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For
+  who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was
+  he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom
+  did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
+  unable to enter because of unbelief. (ESV)
+
 Inheritance by continued perseverance in doing good while having a clean conscience with God, trusting in God,
 acknowledging that Christ died for use while we were still sinners.
 
-Unless Jesus washes us first, we have no share in Him.
+Unless Jesus washes us first, we have no share in Him (John 13:8):
 
   John 14:1 - Let not your hearts be troubled. Believe in God; believe also in me. (ESV)
 
   John 15:3 - Already you are clean because of the word that I have spoken to you. (ESV)
 
+  John 13:8 - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have
+  no share with me. (ESV)
+
   Isaiah 26:3 - You keep him in perfect peace whose mind is stayed on you, because he trusts in you. (ESV)
 
   I John 4:10 - In this is love, not that we have loved God but that he loved us and sent his Son to be the
   propitiation for our sins. (ESV)
+
+  Titus 2:14 - who gave himself for us to redeem us from all lawlessness and to purify for himself a people for
+  his own possession who are zealous for good works. (ESV)
 
 We hold our faith in Christ and we endeavour to imitate Christ:
 
@@ -33417,7 +33600,8 @@ should have hope:
   Hebrews 3:6 - but Christ is faithful over God's house as a son. And we are his house if indeed we hold fast our
   confidence and our boasting in our hope. (ESV)
 
-We need to continue trusting Jesus:
+We need to continue trusting Jesus. It's not possible to simultaneously commit sin and have faith in Jesus Christ.
+So we must resist committing sin:
 
   Hebrews 3:12-19 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
   fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
@@ -79529,6 +79713,75 @@ drives home His point that we must continue to obey Christ:
   II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of God,
   and take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience
   is complete. (ESV)
+
+That Jesus Christ is the Son of God entails the truth that Jesus Christ "takes after" God (Colossians 1:15).
+Believing that Jesus is the Son of God entails believing that Jesus' works were good, that Jesus practiced
+righteousness (John 14:31). A son of God practices righteousness. A child of the devil practices wickedness:
+
+  Colossians 1:15 - He is the image of the invisible God, the firstborn of all creation. (ESV)
+
+  Luke 23:40-43 - But the other answered, and rebuking him said, “Do you not even fear God, since you are
+  under the same sentence of condemnation? And we indeed are suffering justly, for we are receiving what we
+  deserve for our deeds; but this man has done nothing wrong.” And he was saying, “Jesus, remember me when You
+  come in Your kingdom!” And He said to him, “Truly I say to you, today you shall be with Me in Paradise.”
+
+  John 14:10-15 - Do you not believe that I am in the Father and the Father is in me? The words that I say to
+  you I do not speak on my own authority, but the Father who dwells in me does his works. Believe me that I am
+  in the Father and the Father is in me, or else believe on account of the works themselves. Truly, truly, I
+  say to you, whoever believes in me will also do the works that I do; and greater works than these will he
+  do, because I am going to the Father. Whatever you ask in my name, this I will do, that the Father may be
+  glorified in the Son. If you ask me anything in my name, I will do it. If you love me, you will keep my
+  commandments. (ESV)
+
+  Mark 10:17-21 - And as he was setting out on his journey, a man ran up and knelt before him and asked him,
+  Good Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one
+  is good except God alone. You know the commandments: Do not murder, Do not commit adultery, Do not steal, Do
+  not bear false witness, Do not defraud, Honor your father and mother. And he said to him, Teacher, all these
+  I have kept from my youth. And Jesus, looking at him, loved him, and said to him, You lack one thing: go,
+  sell all that you have and give to the poor, and you will have treasure in heaven; and come, follow me.
+
+  I John 3:6-18 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him
+  or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he
+  is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God
+  makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been
+  born of God. By this it is evident who are the children of God, and who are the children of the devil:
+  whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For
+  this is the message that you have heard from the beginning, that we should love one another. We should not
+  be like Cain, who was of the evil one and murdered his brother. And why did he murder him? Because his own
+  deeds were evil and his brother's righteous. Do not be surprised, brothers, that the world hates you. We
+  know that we have passed out of death into life, because we love the brothers. Whoever does not love abides
+  in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life
+  abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives
+  for the brothers. But if anyone has the world's goods and sees his brother in need, yet closes his heart
+  against him, how does God's love abide in him? Little children, let us not love in word or talk but in deed
+  and in truth. (ESV)
+
+  Matthew 13:37-42 - He answered, The one who sows the good seed is the Son of Man. The field is the world,
+  and the good seed is the children of the kingdom. The weeds are the sons of the evil one, and the enemy who
+  sowed them is the devil. The harvest is the close of the age, and the reapers are angels. Just as the weeds
+  are gathered and burned with fire, so will it be at the close of the age. The Son of Man will send his
+  angels, and they will gather out of his kingdom all causes of sin and all law-breakers, and throw them into
+  the fiery furnace. In that place there will be weeping and gnashing of teeth. (ESV)
+
+  John 14:31 - but I do as the Father has commanded me, so that the world may know that I love the Father.
+  Rise, let us go from here. (ESV)
+
+God is pleased with Jesus Christ. Jesus Christ the Son of God takes after His father. Jesus Christ practices
+righteousness with the love of God His Father:
+
+  John 14:31 - but I do as the Father has commanded me, so that the world may know that I love the Father.
+  Rise, let us go from here. (ESV)
+
+  John 10:17 - For this reason the Father loves me, because I lay down my life that I may take it up again.
+  (ESV)
+
+  Matthew 3:13-17 - Then Jesus came from Galilee to the Jordan to John, to be baptized by him. John would have
+  prevented him, saying, I need to be baptized by you, and do you come to me? But Jesus answered him, Let it
+  be so now, for thus it is fitting for us to fulfill all righteousness. Then he consented. And when Jesus was
+  baptized, immediately he went up from the water, and behold, the heavens were opened to him, and he saw the
+  Spirit of God descending like a dove and coming to rest on him; and behold, a voice from heaven said, This
+  is my beloved Son, with whom I am well pleased. (ESV)
 
 Believing that Jesus is the Christ, the Son of God, we have forgiveness of sins and the right to become
 children of God, who practice righteousness, put a stop to sin, love their family in Christ, call God their
@@ -134106,11 +134359,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-28 Fri 09:06
+Date: 2026-08-28 Fri 19:49
 
 Author: Shane Mulligan
 
-Created: 2026-08-28 Fri 09:31
+Created: 2026-08-28 Fri 20:04
 
 Validate
 
