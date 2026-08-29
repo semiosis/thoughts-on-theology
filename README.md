@@ -78,7 +78,15 @@ Grace without the truth that convicts is not true grace because both grace and t
 Real love loves the truth and hates evil (**[Romans 12:9](https://www.biblegateway.com/passage/?search=Romans%2012%3A9&version=ESV)**).
 Real faith loves the truth (**[Mark 4:14-20](https://www.biblegateway.com/passage/?search=Mark%204%3A14-20&version=ESV)**, **[II Timothy 4:8](https://www.biblegateway.com/passage/?search=2%20Timothy%204%3A8&version=ESV)**).
 
-Love for evil or the world (**[Luke 11:43](https://www.biblegateway.com/passage/?search=Luke%2011%3A43&version=ESV)**) is not real love at all. But real love loves God (**[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)**, **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)**).
+Love for evil or the world [(G2889 kosmon)](G2889) is not real love at all. But real love loves God (**[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)**, **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)**), doing as He commands ([John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)) to love Him and our neighbour ([Luke 10:27-28](https://www.biblegateway.com/passage/?search=Luke%2010%3A27-28&version=ESV)) including our family in Christ ([John 13:34](https://www.biblegateway.com/passage/?search=John%2013%3A34&version=ESV)) the way we are commanded to ([I John 5:2](https://www.biblegateway.com/passage/?search=1%20John%205%3A2&version=ESV)):
+
+> **[Luke 11:43](https://www.biblegateway.com/passage/?search=Luke%2011%3A43&version=ESV)** - Woe to you Pharisees! For you love the best seat in the synagogues and greetings in the marketplaces. (ESV)
+
+> **[I John 2:15](https://www.biblegateway.com/passage/?search=1%20John%202%3A15&version=ESV)** - Do not love the world or the things in the world. If anyone loves the world, the love of the Father is not in him. (ESV)
+
+> **[John 18:36](https://www.biblegateway.com/passage/?search=John%2018%3A36&version=ESV)** - Jesus answered, My kingdom is not of this world. If my kingdom were of this world, my servants would have been fighting, that I might not be delivered over to the Jews. But my kingdom is not from the world. (ESV)
+
+> **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
 Faith is not at all directly at odds to <ins>true</ins> obedience, but obedience when understood correctly actually implies faith as a person cannot truly obey God without a love for God (**[Psalms 81:12-15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A12-15&version=ESV)**, **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)**, **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)**), say a love for His promise (**[Hebrews 11:8](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A8&version=ESV)**):
 
@@ -252,6 +260,8 @@ When Jesus says that He has made "known", it's implied that the people that Jesu
 
 > **[John 17:3](https://www.biblegateway.com/passage/?search=John%2017%3A3&version=ESV)** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
 
+> **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed [(G4100 pepisteukotas; having believed)](G4100) in him, **If** you abide [(G3306 meinēte; remain, abide, stay, continue, dwell, endure)](G3306) in my word, you are truly my disciples, and you will know the truth [(G225 alētheia; truth, reality; i.e. walking in reality)](G225), and the truth will set you free. (ESV)
+
 A person who has been forgiven much, loves much. So somebody who is forgiven by Jesus will love Jesus, and a person who loves Jesus will be "law of faith"-abiding (**[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**, **[Romans 3:27](https://www.biblegateway.com/passage/?search=Romans%203%3A27&version=ESV)**, **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)**, **[Matthew 13:41](https://www.biblegateway.com/passage/?search=Matthew%2013%3A41&version=ESV)**):
 
 > **[Luke 7:40-50](https://www.biblegateway.com/passage/?search=Luke%207%3A40-50&version=ESV)** - And Jesus answering said to him, Simon, I have something to say to you. And he answered, Say it, Teacher. A certain moneylender had two debtors. One owed five hundred denarii, and the other fifty. When they could not pay, he cancelled the debt of both. Now which of them will love him more? Simon answered, The one, I suppose, for whom he cancelled the larger debt. And he said to him, You have judged rightly. Then turning toward the woman he said to Simon, Do you see this woman? I entered your house; you gave me no water for my feet, but she has wet my feet with her tears and wiped them with her hair. You gave me no kiss, but from the time I came in she has not ceased to kiss my feet. You did not anoint my head with oil, but she has anointed my feet with ointment. Therefore I tell you, her sins, which are many, are forgiven—for she loved much. But he who is forgiven little, loves little. And he said to her, Your sins are forgiven. Then those who were at table with him began to say among themselves, Who is this, who even forgives sins? And he said to the woman, Your faith has saved you; go in peace. (ESV)
@@ -270,17 +280,29 @@ When a person is forgiven, they are now someone who loves the truth, even the tr
 
 > **[Luke 7:40-50](https://www.biblegateway.com/passage/?search=Luke%207%3A40-50&version=ESV)** - And Jesus answering said to him, Simon, I have something to say to you. And he answered, Say it, Teacher. A certain moneylender had two debtors. One owed five hundred denarii, and the other fifty. When they could not pay, he cancelled the debt of both. Now which of them will love him more? Simon answered, The one, I suppose, for whom he cancelled the larger debt. And he said to him, You have judged rightly. Then turning toward the woman he said to Simon, Do you see this woman? I entered your house; you gave me no water for my feet, but she has wet my feet with her tears and wiped them with her hair. You gave me no kiss, but from the time I came in she has not ceased to kiss my feet. You did not anoint my head with oil, but she has anointed my feet with ointment. Therefore I tell you, her sins, which are many, are forgiven—for she loved much. But he who is forgiven little, loves little. And he said to her, Your sins are forgiven. Then those who were at table with him began to say among themselves, Who is this, who even forgives sins? And he said to the woman, Your faith has saved you; go in peace. (ESV)
 
-To have the love of God completed in us we need to be those who love others as we have been loved by God. To love God in a complete way involves not simply loving His word but loving His children:
+To have the love of God completed in us we need to be those who love others as we have been loved by God, and God sends rain on both the just and the unjust. God is kind and merciful to the evil, so to have the love of God completed in us, also should we be kind and merciful to the evil. And we must love our family in Christ. To love God in a complete way involves not simply loving His word but loving His children. We should just do good to all as instructed:
 
 > **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
 
 > **[I John 4:16-17](https://www.biblegateway.com/passage/?search=1%20John%204%3A16-17&version=ESV)** - So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. (ESV)
 
-> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect [(G5046 teleioi; complete, mature)](G5046), as your heavenly Father is perfect. (ESV)
-
 > **[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)** - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. **Whoever keeps his commandments abides in him, and he in them**. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
 
 > **[I John 5:1-2](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-2&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. <ins>By this we know that we love the children of God, when we love God **and** obey his commandments.</ins> (ESV)
+
+> **[Mark 9:35](https://www.biblegateway.com/passage/?search=Mark%209%3A35&version=ESV)** - And he sat down and called the twelve. And he said to them, If anyone would be first, he must be last of all and servant of all. (ESV)
+
+> **[Galatians 6:10](https://www.biblegateway.com/passage/?search=Galatians%206%3A10&version=ESV)** - So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
+
+Loving our neighbour involves also loving those who hate us:
+
+> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect [(G5046 teleioi; complete, mature)](G5046), as your heavenly Father is perfect. (ESV)
+
+> **[Luke 6:32-36](https://www.biblegateway.com/passage/?search=Luke%206%3A32-36&version=ESV)** - If you love those who love you, what benefit is that to you? For even sinners love those who love them. **And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same.** And if you lend to those from whom you expect to receive, what credit is that to you? **Even sinners lend to sinners, to get back the same amount.** But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be merciful, even as your Father is merciful. (ESV)
+
+If we are occupied with love towards God and our neighbour as commanded, by faith walking by the spirit, then we have fulfilled the commandment of righteousness and are not "under the law":
+
+> **[Galatians 5:16-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A16-18&version=ESV)** - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not under the law. (ESV)
 
 -   [Polycarp 3:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html) [3:2 the faith given to you] which is the mother of us all, while hope followeth after and
     **love goeth before** &#x2013; <ins>love toward God and Christ and toward our neighbor.</ins> For
@@ -289,13 +311,23 @@ To have the love of God completed in us we need to be those who love others as w
 
 > **[II Thessalonians 1:3](https://www.biblegateway.com/passage/?search=2%20Thessalonians%201%3A3&version=ESV)** - We ought always to give thanks to God for you, brothers, as is right, because your faith is growing abundantly, and the love of every one of you for one another is increasing. (ESV)
 
+With a genuine faith in Jesus Christ a person will love their family in Christ:
+
+> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that **all may honor the Son, just as they honor the Father.** <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes [(G4100 pisteuo)](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/) him who sent me has eternal life</ins>. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has passed from death to life.
+
 > **[I John 3:14](https://www.biblegateway.com/passage/?search=1%20John%203%3A14&version=ESV)** - We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. (ESV)
+
+Going forward walking by faith, hoping in Jesus Christ rather than sin, we should be purifying ourself, and we should be producers of good deeds:
 
 > **[Colossians 1:21-23](https://www.biblegateway.com/passage/?search=Colossians%201%3A21-23&version=ESV),1:28,2:1-3** - And you, who once were alienated and hostile in mind, doing evil deeds, he has now reconciled in his body of flesh by his death, in order <ins>to present you holy and blameless and above reproach before him, if indeed you continue in the faith, stable and steadfast, not shifting from the **hope of the gospel** that you heard</ins>, which has been proclaimed in all creation under heaven, and of which I, Paul, became a minister. Him we proclaim, warning everyone and teaching everyone with all wisdom, that we may present everyone **mature in Christ**. For I want you to know how great a struggle I have for you and for those at Laodicea and for all who have not seen me face to face, that their hearts may be encouraged, being **knit together in love**, to reach all the riches of full assurance of understanding and the knowledge of God's mystery, which is Christ, in whom are hidden all the treasures of wisdom and knowledge. (ESV)
 
 > **[I John 3:2-4](https://www.biblegateway.com/passage/?search=1%20John%203%3A2-4&version=ESV)** - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that <ins>when he appears we shall be like him, because we shall see him as he is.</ins> And **everyone who thus hopes in him purifies himself as he is pure**. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. (ESV)
 
 > **[Psalms 18:26](https://www.biblegateway.com/passage/?search=Psalms%2018%3A26&version=ESV)** - with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
+
+Following Jesus Christ, a person walks in the light and loves their family in Christ:
+
+> **[John 8:12](https://www.biblegateway.com/passage/?search=John%208%3A12&version=ESV)** - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in darkness, but will have the light of life. (ESV)
 
 > **[II Corinthians 6:14](https://www.biblegateway.com/passage/?search=2%20Corinthians%206%3A14&version=ESV)** - Do not be unequally yoked with unbelievers. For what partnership has righteousness with lawlessness? Or what fellowship has light with darkness? (ESV)
 
@@ -16490,7 +16522,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgdc45b70) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org59f3a65) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -22218,7 +22250,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org704295d).
+I didn't know but it turned out to be the last day of my [sentence](#orgddcdb22).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -24125,6 +24157,41 @@ In these times with the artificial intelligence stuff, when people find themselv
     as I'm growing.
 
 > **[Matthew 6:24](https://www.biblegateway.com/passage/?search=Matthew%206%3A24&version=ESV)** - No one can serve two masters, for either he will hate the one and love the other, or he will be devoted to the one and despise the other. You cannot serve God and money. (ESV)
+
+-   Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-08-29 Sat 17:46&gt; </span></span> 
+    
+    > **[Isaiah 46:9-11](https://www.biblegateway.com/passage/?search=Isaiah%2046%3A9-11&version=ESV)** - remember the former things of old; for I am God, and there is no other; I am God, and there is none like me, declaring the end from the beginning and from ancient times things not yet done, saying, My counsel shall stand, and I will accomplish all my purpose, calling a bird of prey from the east, the man of my counsel from a far country. I have spoken, and I will bring it to pass; I have purposed, and I will do it. (ESV)
+    
+    And all things work out for good for those who love God and are called according to His purpose, so even if in this time on Earth they experience suffering, tribulation or persecution arising on account of the word of God,
+    ultimately, it's far better to be serving Christ in truth doing the will of God and experiencing that hardship, than it is to be walking by the flesh making the flesh one's strength, or an AI one's strength, trusting and hoping in AI rather than God, for example.
+    
+    > **[Isaiah 5:7](https://www.biblegateway.com/passage/?search=Isaiah%205%3A7&version=ESV),20-24** - For the vineyard of the LORD of hosts is the house of Israel, and the men of Judah are his pleasant planting; and he looked for justice, but behold, bloodshed; for righteousness, but behold, an outcry! Woe to those who call evil good and good evil, who put darkness for light and light for darkness, who put bitter for sweet and sweet for bitter! Woe to those who are wise in their own eyes, and shrewd in their own sight! Woe to those who are heroes at drinking wine, and valiant men in mixing strong drink, who acquit the guilty for a bribe, and deprive the innocent of his right! Therefore, as the tongue of fire devours the stubble, and as dry grass sinks down in the flame, so their root will be as rottenness, and their blossom go up like dust; for they have rejected the law of the LORD of hosts, and have despised the word of the Holy One of Israel. (ESV)
+    
+    > **[I Corinthians 2:11-16](https://www.biblegateway.com/passage/?search=1%20Corinthians%202%3A11-16&version=ESV)** - For who knows a person's thoughts except the spirit of that person, which is in him? So also no one comprehends the thoughts of God except the Spirit of God. Now we have received not the spirit of the world, but the Spirit who is from God, that we might understand the things freely given us by God. And we impart this in words not taught by human wisdom but taught by the Spirit, interpreting spiritual truths to those who are spiritual. The natural person does not accept the things of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned. The spiritual person judges all things, but is himself to be judged by no one. For who has understood the mind of the Lord so as to instruct him? But we have the mind of Christ. (ESV)
+    
+    > **[Romans 12:2](https://www.biblegateway.com/passage/?search=Romans%2012%3A2&version=ESV)** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
+    
+    > **[Romans 8:28](https://www.biblegateway.com/passage/?search=Romans%208%3A28&version=ESV)** - And we know that for those who love God all things work together for good, for those who are called according to his purpose. (ESV)
+    
+    > **[Hebrews 11:39-40](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A39-40&version=ESV)** - And all these, though commended through their faith, did not receive what was promised, since God had provided something better for us, that apart from us they should not be made perfect. (ESV)
+    
+    Everyone born of God overcomes the world:
+    
+    > **[I John 5:1-5](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-5&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are not burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has overcome the world—our faith. Who is it that overcomes the world except the one who believes that Jesus is the Son of God? (ESV)
+    
+    > **[1 John 4:4](https://www.biblegateway.com/passage/?search=1%20John%204%3A4&version=ESV)** -  Little children, you are from God and have overcome them, for he who is in you is greater than he who is in the world.  (ESV)
+    
+    > **[Romans 12:2](https://www.biblegateway.com/passage/?search=Romans%2012%3A2&version=ESV)** - Do not be conformed to this world, but be transformed by the renewal of your mind, that **by testing** you may **discern what is the will of God**, what is good and **acceptable** and perfect. (ESV)
+    
+    > **[I Corinthians 7:28-35](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A28-35&version=ESV)** - But if you do marry, you have not sinned, and if a betrothed woman marries, she has not sinned. Yet those who marry will have worldly troubles, and I would spare you that. This is what I mean, brothers: the appointed time has grown very short. From now on, let those who have wives live as though they had none, and those who mourn as though they were not mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those who deal with the world as though they had no dealings with it. For the present form of this world is passing away. I want you to be free from anxieties. The unmarried man is anxious about the things of the Lord, how to please the Lord. But the married man is anxious about worldly things, how to please his wife, and his interests are divided. And the unmarried or betrothed woman is anxious about the things of the Lord, how to be holy in body and spirit. But the married woman is anxious about worldly things, how to please her husband. I say this for your own benefit, not to lay any restraint upon you, but to promote good order and to secure your undivided devotion to the Lord. (ESV)
+    
+    -   **[Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}](https://www.earlychristianwritings.com/text/justinmartyr-resurrection.html):** And God, the Father of the universe, who is the perfect intelligence, is the truth. And the Word, being His Son, came to us, having put on flesh, revealing both Himself and the Father, giving to us in Himself resurrection from the dead, and eternal life afterwards. And this is Jesus Christ, our Saviour and Lord. He, therefore, is Himself both the faith and the proof of Himself and of all things. Wherefore **those who follow Him, and know Him, having faith in Him as their proof, shall rest in Him**. But since the adversary does not cease to resist many, and uses many and divers arts to ensnare them, that he may *seduce the faithful from their faith, and that he may prevent the faithless from believing*, **it seems to me necessary that we also, being armed with the invulnerable doctrines of the faith, do battle against him in behalf of the weak.**
+    
+    > **[James 3:14-17](https://www.biblegateway.com/passage/?search=James%203%3A14-17&version=ESV)** - But if you have bitter jealousy and selfish ambition in your hearts, do not boast and be false to the truth. This is not the wisdom that comes down from above, but is earthly [(G1919 epigeios)](G1919), unspiritual [(G5591 psychikē -> psuchikos -> psuche, what is natural, as it relates to physical, tangible life alone apart from God's inworking of faith)](G5591), demonic [(G1141 daimoniōdēs; of the devil / demon-like)](G1141). For where jealousy and selfish ambition exist, there will be disorder and every vile practice. But the wisdom from above is first pure, then peaceable, gentle, open to reason, full of mercy and good fruits, impartial and sincere. (ESV)
+    
+    I believe what Rich Fyke says here. Earth is not where I'm going to be spending eternity.
+    
+    -   **[youtube.com:  Can Anything Separate You From The Love of Christ ? { Bible Study - Romans Chapter 8 Part 2 } {@ richfyke7392 } @time: 26 min 43 sec](https://youtube.com/watch?v=_b-C9bjDsOw&t=1603):** "This is not our home. We're waiting. This isn't our home. This isn't where we're going to spend eternity. This isn't what it's all about. Living on this present world, this present earth: this is not what it's about."
 
 Neither should we worship angels, good or evil:
 
@@ -26728,7 +26795,7 @@ And the way people have been using this AI stuff is earthly and of the devil.
 
 I believe what Rich Fyke says here. Earth is not where I'm going to be spending eternity.
 
--   **[youtube.com:  Can Anything Separate You From The Love of Christ ? { Bible Study - Romans Chapter 8 Part 2 } {@ richfyke7392 } @time: 26 min 43 sec](https://youtube.com/watch?v=_b-C9bjDsOw&t=1603):** "This is no our home. We're waiting. This isn't our home. This isn't where we're going to spend eternity. This isn't what it's all about. Living on this present world, this present earth: this is not what it's about."
+-   **[youtube.com:  Can Anything Separate You From The Love of Christ ? { Bible Study - Romans Chapter 8 Part 2 } {@ richfyke7392 } @time: 26 min 43 sec](https://youtube.com/watch?v=_b-C9bjDsOw&t=1603):** "This is not our home. We're waiting. This isn't our home. This isn't where we're going to spend eternity. This isn't what it's all about. Living on this present world, this present earth: this is not what it's about."
 
 Among possible eschatological theologies I hold in possibility is this idea of a heavenly reign - as in, Jesus Christ and His saints reigning from heaven. I do look forward to being there (i.e. that being my home). But I also understand that God does bring His Kingdom to earth and reigns over it.
 
@@ -46529,7 +46596,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org80e1f62)
+See: [33.4.1](#orge6e8545)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -67963,7 +68030,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org80e1f62)
+See: [33.4.1](#orge6e8545)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -70617,7 +70684,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org01affe1) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orge39ea60) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -78835,7 +78902,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org01affe1) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orge39ea60) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -80171,7 +80238,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org8b38e27)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org01e936c)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
