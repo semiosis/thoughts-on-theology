@@ -136,8 +136,22 @@ that convicts is not true grace because both grace and truth have come through J
 14:6). Real love loves the truth and hates evil (Romans 12:9). Real faith loves the truth (Mark 4:14-20, II
 Timothy 4:8).
 
-Love for evil or the world (Luke 11:43) is not real love at all. But real love loves God (I John 2:15-17, I John
-4:7).
+Love for evil or the world (G2889 kosmon) is not real love at all. But real love loves God (I John 2:15-17, I John
+4:7), doing as He commands (John 14:21) to love Him and our neighbour (Luke 10:27-28) including our family in
+Christ (John 13:34) the way we are commanded to (I John 5:2):
+
+  Luke 11:43 - Woe to you Pharisees! For you love the best seat in the synagogues and greetings in the
+  marketplaces. (ESV)
+
+  I John 2:15 - Do not love the world or the things in the world. If anyone loves the world, the love of the
+  Father is not in him. (ESV)
+
+  John 18:36 - Jesus answered, My kingdom is not of this world. If my kingdom were of this world, my servants
+  would have been fighting, that I might not be delivered over to the Jews. But my kingdom is not from the world.
+  (ESV)
+
+  John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
+  loved by my Father, and I will love him and manifest myself to him. (ESV)
 
 Faith is not at all directly at odds to true obedience, but obedience when understood correctly actually implies
 faith as a person cannot truly obey God without a love for God (Psalms 81:12-15, James 2:5, Luke 6:45), say a love
@@ -506,6 +520,11 @@ from His Father "do" what He commands. So there is a knowing that comes not just
   John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
   (ESV)
 
+  John 8:31-32 - So Jesus said to the Jews who had believed (G4100 pepisteukotas; having believed) in him, If you
+  abide (G3306 meinēte; remain, abide, stay, continue, dwell, endure) in my word, you are truly my disciples, and
+  you will know the truth (G225 alētheia; truth, reality; i.e. walking in reality), and the truth will set you
+  free. (ESV)
+
 A person who has been forgiven much, loves much. So somebody who is forgiven by Jesus will love Jesus, and a
 person who loves Jesus will be "law of faith"-abiding (John 14:15, Romans 3:27, I Corinthians 9:21, Matthew
 13:41):
@@ -553,8 +572,11 @@ by God:
   began to say among themselves, Who is this, who even forgives sins? And he said to the woman, Your faith has
   saved you; go in peace. (ESV)
 
-To have the love of God completed in us we need to be those who love others as we have been loved by God. To love
-God in a complete way involves not simply loving His word but loving His children:
+To have the love of God completed in us we need to be those who love others as we have been loved by God, and God
+sends rain on both the just and the unjust. God is kind and merciful to the evil, so to have the love of God
+completed in us, also should we be kind and merciful to the evil. And we must love our family in Christ. To love
+God in a complete way involves not simply loving His word but loving His children. We should just do good to all
+as instructed:
 
   I John 4:12 - No one has ever seen God; if we love one another, God abides in us and his love is perfected in
   us. (ESV)
@@ -562,13 +584,6 @@ God in a complete way involves not simply loving His word but loving His childre
   I John 4:16-17 - So we have come to know and to believe the love that God has for us. God is love, and whoever
   abides in love abides in God, and God abides in him. By this is love perfected with us, so that we may have
   confidence for the day of judgment, because as he is so also are we in this world. (ESV)
-
-  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
-  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
-  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
-  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
-  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
-  therefore must be perfect (G5046 teleioi; complete, mature), as your heavenly Father is perfect. (ESV)
 
   I John 3:23-24 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this
@@ -578,6 +593,36 @@ God in a complete way involves not simply loving His word but loving His childre
   Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
   and obey his commandments. (ESV)
 
+  Mark 9:35 - And he sat down and called the twelve. And he said to them, If anyone would be first, he must be
+  last of all and servant of all. (ESV)
+
+  Galatians 6:10 - So then, as we have opportunity, let us do good to everyone, and especially to those who are of
+  the household of faith. (ESV)
+
+Loving our neighbour involves also loving those who hate us:
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect (G5046 teleioi; complete, mature), as your heavenly Father is perfect. (ESV)
+
+  Luke 6:32-36 - If you love those who love you, what benefit is that to you? For even sinners love those who love
+  them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same.
+  And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to
+  sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return,
+  and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the
+  evil. Be merciful, even as your Father is merciful. (ESV)
+
+If we are occupied with love towards God and our neighbour as commanded, by faith walking by the spirit, then we
+have fulfilled the commandment of righteousness and are not "under the law":
+
+  Galatians 5:16-18 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the
+  desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are
+  opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you
+  are not under the law. (ESV)
+
 • Polycarp 3:3 [3:2 the faith given to you] which is the mother of us all, while hope followeth after and love
 goeth before – love toward God and Christ and toward our neighbor. For if any man be occupied with these, he
 hath fulfilled the commandment of righteousness; for he that hath love is far from all sin.
@@ -585,8 +630,19 @@ hath fulfilled the commandment of righteousness; for he that hath love is far fr
   II Thessalonians 1:3 - We ought always to give thanks to God for you, brothers, as is right, because your faith
   is growing abundantly, and the love of every one of you for one another is increasing. (ESV)
 
+With a genuine faith in Jesus Christ a person will love their family in Christ:
+
+  John 5:21-24 - For as the Father raises the dead and gives them life, so also the Son gives life to whom he
+  will. The Father judges no one, but has given all judgment to the Son, that all may honor the Son, just as they
+  honor the Father. Whoever does not honor the Son does not honor the Father who sent him. Truly, truly, I say to
+  you, whoever hears my word and believes (G4100 pisteuo) him who sent me has eternal life. He does not come
+  (2064. erchomai) into judgment, but has passed from death to life.
+
   I John 3:14 - We know that we have passed out of death into life, because we love the brothers. Whoever does not
   love abides in death. (ESV)
+
+Going forward walking by faith, hoping in Jesus Christ rather than sin, we should be purifying ourself, and we
+should be producers of good deeds:
 
   Colossians 1:21-23,1:28,2:1-3 - And you, who once were alienated and hostile in mind, doing evil deeds, he has
   now reconciled in his body of flesh by his death, in order to present you holy and blameless and above reproach
@@ -605,6 +661,11 @@ hath fulfilled the commandment of righteousness; for he that hath love is far fr
 
   Psalms 18:26 - with the purified you show yourself pure; and with the crooked you make yourself seem tortuous.
   (ESV)
+
+Following Jesus Christ, a person walks in the light and loves their family in Christ:
+
+  John 8:12 - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in
+  darkness, but will have the light of life. (ESV)
 
   II Corinthians 6:14 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
   lawlessness? Or what fellowship has light with darkness? (ESV)
@@ -2048,6 +2109,78 @@ Entering the Kingdom of God requires having faith in Jesus Christ, having stoppe
   proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns
   to wallow in the mire. (ESV)
 
+Journal <2026-08-30 Sun 14:50>
+
+When Jesus Christ chose his 12 Apostles, He chose ordinary people such as fishermen who went on to rely on God,
+and to make God their strength, rather than trust in earthly riches:
+
+  Mark 10:21-24 - And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you
+  have and give to the poor, and you will have treasure in heaven; and come, follow me. Disheartened by the
+  saying, he went away sorrowful, for he had great possessions. And Jesus looked around and said to his disciples,
+  How difficult it will be for those who have wealth to enter the kingdom of God! And the disciples were amazed at
+  his words. But Jesus said to them again, Children, how difficult it is to enter the kingdom of God! (ESV)
+
+  Proverbs 11:28 - Whoever trusts in his riches will fall, but the righteous will flourish like a green leaf.
+  (ESV)
+
+Here, Peter in rebuking Jesus had his mind not set on the things of God, but rather Peter had his mind set on the
+things of man. Peter was walking by the flesh making the flesh His strength:
+
+  Matthew 16:21-23 - From that time Jesus began to show his disciples that he must go to Jerusalem and suffer many
+  things from the elders and chief priests and scribes, and be killed, and on the third day be raised. And Peter
+  took him aside and began to rebuke him, saying, Far be it from you, Lord! This shall never happen to you. But he
+  turned and said to Peter, Get behind me, Satan! You are a hindrance to me. For you are not setting your mind on
+  the things of God, but on the things of man. (ESV)
+
+Having their minds set on earthly things, the disciples were thinking of earthly solutions, making the flesh their
+strength:
+
+  Luke 9:13 - But he said to them, You give them something to eat. They said, We have no more than five loaves and
+  two fish—unless we are to go and buy food for all these people. (ESV)
+
+  Luke 9:12-17 - Now the day began to wear away, and the twelve came and said to him, Send the crowd away to go
+  into the surrounding villages and countryside to find lodging and get provisions, for we are here in a desolate
+  place. But he said to them, You give them something to eat. They said, We have no more than five loaves and two
+  fish—unless we are to go and buy food for all these people. For there were about five thousand men. And he said
+  to his disciples, Have them sit down in groups of about fifty each. And they did so, and had them all sit down.
+  And taking the five loaves and the two fish, he looked up to heaven and said a blessing over them. Then he broke
+  the loaves and gave them to the disciples to set before the crowd. And they all ate and were satisfied. And what
+  was left over was picked up, twelve baskets of broken pieces. (ESV)
+
+  Mark 6:37-44 - But he answered them, You give them something to eat. And they said to him, Shall we go and buy
+  two hundred denarii worth of bread and give it to them to eat? And he said to them, How many loaves do you have?
+  Go and see. And when they had found out, they said, Five, and two fish. Then he commanded them all to sit down
+  in groups on the green grass. So they sat down in groups, by hundreds and by fifties. And taking the five loaves
+  and the two fish he looked up to heaven and said a blessing and broke the loaves and gave them to the disciples
+  to set before the people. And he divided the two fish among them all. And they all ate and were satisfied. And
+  they took up twelve baskets full of broken pieces and of the fish. And those who ate the loaves were five
+  thousand men. (ESV)
+
+So what we must do, rather, is walk by faith, making God our strength:
+
+  Matthew 17:19-20 - Then the disciples came to Jesus privately and said, Why could we not cast it out? He said to
+  them, Because of your little faith. For truly, I say to you, if you have faith like a grain of mustard seed, you
+  will say to this mountain, Move from here to there, and it will move, and nothing will be impossible for you.
+  (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+A person repents into walking by faith, and this is faith in Yahweh (Jehovah), the Triune God, Father, Son (Jesus
+Christ, Word of God) and Holy Spririt, and His words:
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+  John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
+  And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
+  may not remain in darkness. If anyone hears my words and does not keep them, I do not judge (G2919 krinō: do
+  judge) him; for I did not come to judge the world but to save the world. The one who rejects me and does not
+  receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken
+  on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to
+  speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me.
+  (ESV)
+
 Is this Pharisee correct here (Luke 7:39) in saying the woman is a sinner? The woman is at that time worshiping
 Jesus Christ so in that sense I would say she is "not a sinner" because I believe she is "born of God" and from
 the love of Jesus Christ practicing righteousness (I John 4:7, I John 3:4,8,9) and is justified by faith in Jesus
@@ -3346,7 +3479,7 @@ title belongs to God:
 
 With regard to Jesus Christ's commandment to call no man on earth "father", the [Mark 4:17] "trouble or
 persecution on account of the word" might refer to any difficulties as people oppose the fact that one practices
-this commandment in reality. The good sail would not fall away:
+this commandment in reality. The good soil would not fall away:
 
   John 5:18 - This was why the Jews were seeking all the more to kill him, because not only was he breaking the
   Sabbath, but he was even calling God his own Father, making himself equal with God. (ESV)
@@ -20088,6 +20221,129 @@ their faith in Christ Jesus. In Christ Jesus, we're all aboard the ark of Jesus 
 
   I Corinthians 1:9 - God is faithful, by whom you were called into the fellowship of his Son, Jesus Christ our
   Lord. (ESV)
+
+Journal <2026-08-30 Sun 14:57>
+
+Unity with the world is not what we should seek for, nor should pray for it. The world is the "faithless", those
+who walk in darkness. We should not be unequally yoked with unbelievers. So then we should not be praying for
+"unity" with the "unbelieving world", but rather should be praying that people turn from darkness to light, and
+from the power of Satan to God, that they may receive forgiveness of sins and a place among those who are
+sanctified by faith in Jesus Christ:
+
+  Acts 26:16-18 - But rise and stand upon your feet, for I have appeared to you for this purpose, to appoint you
+  as a servant and witness to the things in which you have seen me and to those in which I will appear to you,
+  delivering you from your people and from the Gentiles—to whom I am sending you to open their eyes, so that they
+  may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins
+  and a place among those who are sanctified by faith in me. (ESV)
+
+  II Corinthians 6:14 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
+  lawlessness? Or what fellowship has light with darkness? (ESV)
+
+  II Thessalonians 3:1-2 - Finally, brothers, pray for us, that the word of the Lord may speed ahead and be
+  honored, as happened among you, and that we may be delivered from wicked and evil men. For not all have faith.
+  (ESV)
+
+  Matthew 15:10-14 - And he called the people to him and said to them, Hear and understand: it is not what goes
+  into the mouth that defiles a person, but what comes out of the mouth; this defiles a person. Then the disciples
+  came and said to him, Do you know that the Pharisees were offended when they heard this saying? He answered,
+  Every plant that my heavenly Father has not planted will be rooted up. Let them alone; they are blind guides.
+  And if the blind lead the blind, both will fall into a pit. (ESV)
+
+  James 4:4 - You adulterous people! Do you not know that friendship with the world is enmity with God? Therefore
+  whoever wishes to be a friend of the world makes himself an enemy of God. (ESV)
+
+Rather, it would make more fitting to pray that the word of the Lord, the word of Yahweh (Jehovah) God (Father,
+Son and Holy Spirit), the word of God given through our Lord Jesus Christ who is God's Son, to bring people out of
+the world, out of darkness, and into Christ, into the light.
+
+We are called to do good to all people, and to be kind and merciful even to those who are evil. But that doesn't
+mean we should yoke ourselves to them. We should just endeavour to be led by the Spirit, trusting God and His word
+from a love for the truth, and obeying God out of faith and obedience with a love for God and His Word, obedient
+and ready for every good work. If we have faith in Jesus Christ, we will do His deeds as He has said. If we love
+Jesus Christ, we will keep His commandments a He has said.
+
+So I just want to be really clear about this, we should not be praying for praying for unity with the world, but
+rather we should be praying for the word of the Lord to speed ahead and be honored, and for God to send out
+laborers into His harvest because we want people to be led by the Spirit. We ourselves don't want to be led by the
+world, so we should not pray for unity with it. We want people to come into Christ, abiding in His commandments.
+Christ Himself isn't divided, but those who are not in Christ are not in Christ.
+
+  Matthew 9:37-38 - Then he said to his disciples, The harvest is plentiful, but the laborers are few; therefore
+  pray earnestly to the Lord of the harvest to send out laborers into his harvest. (ESV)
+
+Those who are in Christ have crucified the flesh along with its passions. Those who are in Christ abide in Jesus
+Christ's commandments. Those who are in Christ abide in love. Those who are in Christ do not keep on sinning, and
+so those who are in Christ walk by faith.
+
+  John 14:21-24 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
+  loved by my Father, and I will love him and manifest myself to him. Judas (not Iscariot) said to him, Lord, how
+  is it that you will manifest yourself to us, and not to the world? Jesus answered him, If anyone loves me, he
+  will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does
+  not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
+
+  I John 3:13-16 - Do not be surprised, brothers, that the world hates you. We know that we have passed out of
+  death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his
+  brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that
+  he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+So we should still do good to all, especially the household of faith. After all, Jesus Christ instructed us to be
+kind and merciful to even evil people. It is mandatory to love our family in Christ, but we don't always know who
+is in Christ. So we should just do good to all, and love God and our neighbour as instructed, and leave the
+commending to God.
+
+Do we need to forgive and tolerate everything that people do? No, we don't. I was born-again on 2 April 2022 and
+for anything which anyone has done against me personally up to that time when I was born-again, I couldn't hold
+anyone accountable for any perceived wrong done towards me.
+
+That's because of what Jesus Christ has taught in His parable of the unforgiving servant. My debt was cancelled
+when I was born-again.
+
+As for what happens going forward, I believe that it's right to be compassionate and merciful towards all men, as
+Polycarp has instructed, but abiding in the teaching of Christ.
+
+I don't think there is any obligation for me to forgive all people for everything they do all the time. For
+example, I do not "forgive" those who have not repented from practicing child trafficking, but still practice it.
+I do not need to forgive those who have not repented but go on practicing sexual immorality.
+
+A person who sins doesn't remain in God's house forever.
+
+People who go ahead and do not abide in Christ's teaching are not welcome in my house, and I will endeavour to
+avoid them:
+
+  II John 1:9-11 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his
+  wicked works. (ESV)
+
+People who are commit idolatry, theft, murder, adultery and falsely witness, or who are not repentant from any
+abominations which God finds unacceptable are not welcome in my house, and I will endeavour to avoid them:
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+And forgiveness for sin is only in Christ as well, so in order to have true and lasting forgiveness from God, a
+person needs to repent and come to faith in Jesus Christ and go on abiding in Him.
+
+But if a brother of mine sins, then I'm instructed to rebuke them! But if they repent, then they can be forgiven.
+
+If a person sins against me personally, then it's possible for me to forgive them for perceived sins done against
+me personally. But that doesn't mean I'm capable of absolving every sin anyone ever does or has done. And I
+certainly don't need to tolerate or welcome unbelievers into my life. I certainly do not seek unity with the
+world, but rather for people to come to know Jesus Christ for themselves.
+
+  Luke 17:3-4 - Pay attention to yourselves! If your brother sins, rebuke him, and if he repents, forgive him, and
+  if he sins against you seven times in the day, and turns to you seven times, saying, I repent, you must forgive
+  him. (ESV)
+
+Polycarp 6:1
+And the presbyters also must be compassionate, merciful towards all men, turning back the sheep that are gone
+astray, visiting all the infirm, not neglecting a widow or an orphan or a poor man: but providing always for that
+which is honorable in the sight of God and of men, abstaining from all anger, respect of persons, unrighteous
+judgment, being far from all love of money, not quick to believe anything against any man, not hasty in judgment,
+knowing that we all are debtors of sin.
 
 youtube.com: Leave Your Church If This Happens {@ TruthUnites }
 Amen, Gavin.
@@ -42384,6 +42640,102 @@ started asking for Bible verses again from God, now he's given me two to three e
   Matthew 6:24 - No one can serve two masters, for either he will hate the one and love the other, or he will be
   devoted to the one and despise the other. You cannot serve God and money. (ESV)
 
+• Journal <2026-08-29 Sat 17:46>
+
+  Isaiah 46:9-11 - remember the former things of old; for I am God, and there is no other; I am God, and there
+  is none like me, declaring the end from the beginning and from ancient times things not yet done, saying, My
+  counsel shall stand, and I will accomplish all my purpose, calling a bird of prey from the east, the man of
+  my counsel from a far country. I have spoken, and I will bring it to pass; I have purposed, and I will do
+  it. (ESV)
+
+And all things work out for good for those who love God and are called according to His purpose, so even if in
+this time on Earth they experience suffering, tribulation or persecution arising on account of the word of
+God, ultimately, it's far better to be serving Christ in truth doing the will of God and experiencing that
+hardship, than it is to be walking by the flesh making the flesh one's strength, or an AI one's strength,
+trusting and hoping in AI rather than God, for example.
+
+  Isaiah 5:7,20-24 - For the vineyard of the LORD of hosts is the house of Israel, and the men of Judah are
+  his pleasant planting; and he looked for justice, but behold, bloodshed; for righteousness, but behold, an
+  outcry! Woe to those who call evil good and good evil, who put darkness for light and light for darkness,
+  who put bitter for sweet and sweet for bitter! Woe to those who are wise in their own eyes, and shrewd in
+  their own sight! Woe to those who are heroes at drinking wine, and valiant men in mixing strong drink, who
+  acquit the guilty for a bribe, and deprive the innocent of his right! Therefore, as the tongue of fire
+  devours the stubble, and as dry grass sinks down in the flame, so their root will be as rottenness, and
+  their blossom go up like dust; for they have rejected the law of the LORD of hosts, and have despised the
+  word of the Holy One of Israel. (ESV)
+
+  I Corinthians 2:11-16 - For who knows a person's thoughts except the spirit of that person, which is in him?
+  So also no one comprehends the thoughts of God except the Spirit of God. Now we have received not the spirit
+  of the world, but the Spirit who is from God, that we might understand the things freely given us by God.
+  And we impart this in words not taught by human wisdom but taught by the Spirit, interpreting spiritual
+  truths to those who are spiritual. The natural person does not accept the things of the Spirit of God, for
+  they are folly to him, and he is not able to understand them because they are spiritually discerned. The
+  spiritual person judges all things, but is himself to be judged by no one. For who has understood the mind
+  of the Lord so as to instruct him? But we have the mind of Christ. (ESV)
+
+  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by
+  testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+  Romans 8:28 - And we know that for those who love God all things work together for good, for those who are
+  called according to his purpose. (ESV)
+
+  Hebrews 11:39-40 - And all these, though commended through their faith, did not receive what was promised,
+  since God had provided something better for us, that apart from us they should not be made perfect. (ESV)
+
+Everyone born of God overcomes the world:
+
+  I John 5:1-5 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves
+  the Father loves whoever has been born of him. By this we know that we love the children of God, when we
+  love God and obey his commandments. For this is the love of God, that we keep his commandments. And his
+  commandments are not burdensome. For everyone who has been born of God overcomes the world. And this is the
+  victory that has overcome the world—our faith. Who is it that overcomes the world except the one who
+  believes that Jesus is the Son of God? (ESV)
+
+  1 John 4:4 - Little children, you are from God and have overcome them, for he who is in you is greater than
+  he who is in the world. (ESV)
+
+  Romans 12:2 - Do not be conformed to this world, but be transformed by the renewal of your mind, that by
+  testing you may discern what is the will of God, what is good and acceptable and perfect. (ESV)
+
+  I Corinthians 7:28-35 - But if you do marry, you have not sinned, and if a betrothed woman marries, she has
+  not sinned. Yet those who marry will have worldly troubles, and I would spare you that. This is what I mean,
+  brothers: the appointed time has grown very short. From now on, let those who have wives live as though they
+  had none, and those who mourn as though they were not mourning, and those who rejoice as though they were
+  not rejoicing, and those who buy as though they had no goods, and those who deal with the world as though
+  they had no dealings with it. For the present form of this world is passing away. I want you to be free from
+  anxieties. The unmarried man is anxious about the things of the Lord, how to please the Lord. But the
+  married man is anxious about worldly things, how to please his wife, and his interests are divided. And the
+  unmarried or betrothed woman is anxious about the things of the Lord, how to be holy in body and spirit. But
+  the married woman is anxious about worldly things, how to please her husband. I say this for your own
+  benefit, not to lay any restraint upon you, but to promote good order and to secure your undivided devotion
+  to the Lord. (ESV)
+
+Saint Justin Martyr: Fragments of the Lost Work of Justin on the Resurrection {Roberts-Donaldson}
+And God, the Father of the universe, who is the perfect intelligence, is the truth. And the Word, being His
+Son, came to us, having put on flesh, revealing both Himself and the Father, giving to us in Himself
+resurrection from the dead, and eternal life afterwards. And this is Jesus Christ, our Saviour and Lord. He,
+therefore, is Himself both the faith and the proof of Himself and of all things. Wherefore those who follow
+Him, and know Him, having faith in Him as their proof, shall rest in Him. But since the adversary does not
+cease to resist many, and uses many and divers arts to ensnare them, that he may seduce the faithful from
+their faith, and that he may prevent the faithless from believing, it seems to me necessary that we also,
+being armed with the invulnerable doctrines of the faith, do battle against him in behalf of the weak.
+
+  James 3:14-17 - But if you have bitter jealousy and selfish ambition in your hearts, do not boast and be
+  false to the truth. This is not the wisdom that comes down from above, but is earthly (G1919 epigeios),
+  unspiritual (G5591 psychikē -> psuchikos -> psuche, what is natural, as it relates to physical, tangible
+  life alone apart from God's inworking of faith), demonic (G1141 daimoniōdēs; of the devil / demon-like). For
+  where jealousy and selfish ambition exist, there will be disorder and every vile practice. But the wisdom
+  from above is first pure, then peaceable, gentle, open to reason, full of mercy and good fruits, impartial
+  and sincere. (ESV)
+
+I believe what Rich Fyke says here. Earth is not where I'm going to be spending eternity.
+
+youtube.com: Can Anything Separate You From The Love of Christ ? { Bible Study - Romans Chapter 8 Part 2 } {@
+richfyke7392 } @time: 26 min 43 sec
+"This is not our home. We're waiting. This isn't our home. This isn't where we're going to spend eternity.
+This isn't what it's all about. Living on this present world, this present earth: this is not what it's
+about."
+
 Neither should we worship angels, good or evil:
 
   Colossians 2:18 - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail
@@ -46528,7 +46880,7 @@ I believe what Rich Fyke says here. Earth is not where I'm going to be spending 
 
 youtube.com: Can Anything Separate You From The Love of Christ ? { Bible Study - Romans Chapter 8 Part 2 } {@
 richfyke7392 } @time: 26 min 43 sec
-"This is no our home. We're waiting. This isn't our home. This isn't where we're going to spend eternity. This
+"This is not our home. We're waiting. This isn't our home. This isn't where we're going to spend eternity. This
 isn't what it's all about. Living on this present world, this present earth: this is not what it's about."
 
 Among possible eschatological theologies I hold in possibility is this idea of a heavenly reign - as in, Jesus
@@ -89026,6 +89378,78 @@ keep His commandments, not trusting in the worldly stuff, but trusting Jesus:
   after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God
   and his righteousness, and all these things will be added to you. Therefore do not be anxious about tomorrow,
   for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
+
+Journal <2026-08-30 Sun 14:50>
+
+When Jesus Christ chose his 12 Apostles, He chose ordinary people such as fishermen who went on to rely on God,
+and to make God their strength, rather than trust in earthly riches:
+
+  Mark 10:21-24 - And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you
+  have and give to the poor, and you will have treasure in heaven; and come, follow me. Disheartened by the
+  saying, he went away sorrowful, for he had great possessions. And Jesus looked around and said to his disciples,
+  How difficult it will be for those who have wealth to enter the kingdom of God! And the disciples were amazed at
+  his words. But Jesus said to them again, Children, how difficult it is to enter the kingdom of God! (ESV)
+
+  Proverbs 11:28 - Whoever trusts in his riches will fall, but the righteous will flourish like a green leaf.
+  (ESV)
+
+Here, Peter in rebuking Jesus had his mind not set on the things of God, but rather Peter had his mind set on the
+things of man. Peter was walking by the flesh making the flesh His strength:
+
+  Matthew 16:21-23 - From that time Jesus began to show his disciples that he must go to Jerusalem and suffer many
+  things from the elders and chief priests and scribes, and be killed, and on the third day be raised. And Peter
+  took him aside and began to rebuke him, saying, Far be it from you, Lord! This shall never happen to you. But he
+  turned and said to Peter, Get behind me, Satan! You are a hindrance to me. For you are not setting your mind on
+  the things of God, but on the things of man. (ESV)
+
+Having their minds set on earthly things, the disciples were thinking of earthly solutions, making the flesh their
+strength:
+
+  Luke 9:13 - But he said to them, You give them something to eat. They said, We have no more than five loaves and
+  two fish—unless we are to go and buy food for all these people. (ESV)
+
+  Luke 9:12-17 - Now the day began to wear away, and the twelve came and said to him, Send the crowd away to go
+  into the surrounding villages and countryside to find lodging and get provisions, for we are here in a desolate
+  place. But he said to them, You give them something to eat. They said, We have no more than five loaves and two
+  fish—unless we are to go and buy food for all these people. For there were about five thousand men. And he said
+  to his disciples, Have them sit down in groups of about fifty each. And they did so, and had them all sit down.
+  And taking the five loaves and the two fish, he looked up to heaven and said a blessing over them. Then he broke
+  the loaves and gave them to the disciples to set before the crowd. And they all ate and were satisfied. And what
+  was left over was picked up, twelve baskets of broken pieces. (ESV)
+
+  Mark 6:37-44 - But he answered them, You give them something to eat. And they said to him, Shall we go and buy
+  two hundred denarii worth of bread and give it to them to eat? And he said to them, How many loaves do you have?
+  Go and see. And when they had found out, they said, Five, and two fish. Then he commanded them all to sit down
+  in groups on the green grass. So they sat down in groups, by hundreds and by fifties. And taking the five loaves
+  and the two fish he looked up to heaven and said a blessing and broke the loaves and gave them to the disciples
+  to set before the people. And he divided the two fish among them all. And they all ate and were satisfied. And
+  they took up twelve baskets full of broken pieces and of the fish. And those who ate the loaves were five
+  thousand men. (ESV)
+
+So what we must do, rather, is walk by faith, making God our strength:
+
+  Matthew 17:19-20 - Then the disciples came to Jesus privately and said, Why could we not cast it out? He said to
+  them, Because of your little faith. For truly, I say to you, if you have faith like a grain of mustard seed, you
+  will say to this mountain, Move from here to there, and it will move, and nothing will be impossible for you.
+  (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+A person repents into walking by faith, and this is faith in Yahweh (Jehovah), the Triune God, Father, Son (Jesus
+Christ, Word of God) and Holy Spririt, and His words:
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+  John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
+  And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
+  may not remain in darkness. If anyone hears my words and does not keep them, I do not judge (G2919 krinō: do
+  judge) him; for I did not come to judge the world but to save the world. The one who rejects me and does not
+  receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken
+  on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to
+  speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me.
+  (ESV)
 
 Endurance is important:
 
@@ -134493,11 +134917,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-28 Fri 21:51
+Date: 2026-08-30 Sun 15:48
 
 Author: Shane Mulligan
 
-Created: 2026-08-28 Fri 21:56
+Created: 2026-08-30 Sun 15:53
 
 Validate
 
