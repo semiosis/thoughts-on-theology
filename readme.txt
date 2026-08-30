@@ -3573,6 +3573,19 @@ Now a Christian is instructed by the Apostle Peter to honor all people 1 Peter 2
 commandment to call no man on earth father, is not against honoring one's previous parents because both Christ's
 commandment and the Apostle Peter's instruction are able to be kept at the same time.
 
+Now since these people who appear as my previous parents, are truly no longer my parents, then in understanding
+Jesus' teaching that anyone who comes to Him and does not hate their mother and father cannot be His disciple,
+it's correct to say that there is no need for me to hate these people who are not my parents if I am to come to
+Jesus Christ some more.
+
+The people they used to be were those who used to be my parents, and I hate my old life. I simply can't affirm
+that these people I formerly regarded as being my parents, are my parents anymore if I am to love them in reality
+how I'm commanded to love.
+
+  I John 5:1-2 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. (ESV)
+
 If someone claims that Jesus Christ is their brother, then surely they then consider God to be their Father, as
 Jesus Christ's father is God the father of Jesus Christ. But that God is their father is especially true if Jesus
 Christ considers them to be a brother because if Jesus calls a person brother then that person's father is Jesus'
@@ -131619,7 +131632,312 @@ and in reality, and that should produce good deeds. But we don't rely on being a
 Good works still come from good faith. But we don't rely on being able to carry out perfect deeds. But we still
 have the heart of faith, love, hope, obedience in reality, with intention to do the will of God.
 
-78.4.52. Journal <2026-03-20 Fri> - <2026-03-22 Sun>, <2026-03-23 Mon>
+78.4.52. Journal <2026-08-30 Sun 19:47>
+
+I have fond memories of my former life, and thankful to God for a relatively decent previous life, but I'm not
+agape loving it. But certainly those people I remember, I hope and pray do come to or continue in the knowledge of
+God through faith in Jesus Christ. But that previous life of mine died, and I am now looking forwards,
+endeavouring to walk in newness of life, living for the will of God. I don't agape love my previous life.
+
+  Philippians 3:8 - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my
+  Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
+  Christ (ESV)
+
+My former parents are of my previous life. My previous life is dead. My former genaeology is not my present
+genaeology. Those who I formerly regarded as "uncle" and "aunty", "nana", "grandad" and "grandpa" and "grandma"
+and "brother" and "sister" I no longer regard as having those titles. But if any of them are in Christ then they
+would be brother and sister to me.
+
+I reject calling my former parents (from my former life) who I am still in close physical proximity to as "my
+parents".
+
+I haven't said they are not believers, and neither have I said they are believers. I have simply said they are not
+my parents.
+
+  Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+Now since these people who appear as my previous parents, are truly no longer my parents in reality, then in
+understanding Jesus' teaching that anyone who comes to Him and does not hate their mother and father cannot be His
+disciple, it's correct to say that there is no need for me to hate these people anymore if I am to come to Jesus
+Christ some more because they are not my parents. Jesus is talking about hating parents and these people are not
+my parents.
+
+But that doesn't mean that I have never hated people who I considered at some point to be my parents (i.e. those
+who formerly I had regarded as being my parents) and crucially when they actually were my parents. But if the
+people I hated are no longer my parents then I don't have to hate them in order to come to Jesus.
+
+Now I hate my previous life.
+
+It is no more the reality that these people are my parents, as I died an actual death when I was born-again, and
+all things became new, and so those people from my previous life have died along with my previous life.
+
+  II Corinthians 5:14-15 - For the love of Christ controls us, because we have concluded this: that one has died
+  for all, therefore all have died; and he died for all, that those who live might no longer live for themselves
+  but for him who for their sake died and was raised. (ESV)
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+I hate my old life. And even this new life now has felt rather spoiled and contaminated in part to what has felt
+like extreme resistance to walking in newness of life, and a Satanic snare which seems to have been an attempmt to
+trap me into walking according the flesh by peer pressure. I simply can't affirm that those people I formerly
+regarded as my parents are my parents anymore if I am to love them in reality how I'm commanded to love them.
+
+  I John 5:1-2 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. (ESV)
+
+I have a new family now, my family in Christ. God has made all thing new.
+
+I would love those who I formerly regarded as family to come to know God through faith in Jesus Christ, walking by
+the Spirit, abiding in Jesus Christ's commandments in reality. But reflecting on who I pray for, I actually pray
+for them just about as frequently for them as I do for other people, that they come into the knowledge of God /
+come into greater knowledge of God through faith in Jesus Christ.
+
+There is a way I love those who are surely family in Christ which is that of true agape love for my true family
+who are in Christ, which is reserved for those who are making testimony of Jesus Christ to me, who are confessing
+their faith in Jesus Christ to me; Those who I may observe, say, loving as God has commanded in deed, or receiving
+and affirming the word of God, and who are not supporting of sinful things which God hates.
+
+But I have after I was born-again, many times been actively resisted by my former parents, for endeavouring to
+abide in Jesus Christ's commandments. And under those circumstances, I have felt like they were truly not family
+to me. It hasn't always been like that. And I have had my freedom taken away and bound in these circumstances, in
+close proximity to them for a long period of time. But at times also it has seemed also as if they were believers.
+But God knows. I shouldn't bound be in this situation like this. It has felt like Satanic snare.
+
+  Matthew 10:34-37 - Do not think that I have come to bring peace to the earth. I have not come to bring peace,
+  but a sword. For I have come to set a man against his father, and a daughter against her mother, and a
+  daughter-in-law against her mother-in-law. And a person's enemies will be those of his own household. Whoever
+  loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not
+  worthy of me. (ESV)
+
+I have been pressured so strongly by circumstance and those around me, into calling them my mother and father.
+I've even been asked by people if "they are believers". But who am I to say? Christians are supposed to walk by
+faith and make testimony of Jesus Christ. If someone wants to find out if they are believers then they should them
+what they believe about Jesus Christ.
+
+People have gotten angry at me for refusing to call my previous father 'father'. I have even been told by someone
+that they do not believe I am saved after I insisted that the 5th commandment (the commandment to honor one's
+father and mother) is applied with God as my father, and mother talking about my family in Christ.
+
+But I have endured so much tribulation on account of the word of God for endeavouring to abide in Jesus' teachings
+and commandments:
+
+  Mark 4:14-20 - The sower sows the word. And these are the ones along the path, where the word is sown: when they
+  hear, Satan immediately comes and takes away the word that is sown in them. And these are the ones sown on rocky
+  ground: the ones who, when they hear the word, immediately receive it with joy. And they have no root in
+  themselves, but endure for a while; then, when tribulation or persecution arises on account of the word,
+  immediately they fall away. And others are the ones sown among thorns. They are those who hear the word, but the
+  cares of the world and the deceitfulness of riches and the desires for other things enter in and choke the word,
+  and it proves unfruitful. But those that were sown on the good soil are the ones who hear the word and accept it
+  and bear fruit, thirtyfold and sixtyfold and a hundredfold. (ESV)
+
+I've been born-again, and I have faith in Jesus Christ that my Dad is now is God the Father of Jesus Christ.
+
+  Luke 2:46-50 - After three days they found him in the temple, sitting among the teachers, listening to them and
+  asking them questions. And all who heard him were amazed at his understanding and his answers. And when his
+  parents saw him, they were astonished. And his mother said to him, Son, why have you treated us so? Behold, your
+  father and I have been searching for you in great distress. And he said to them, Why were you looking for me?
+  Did you not know that I must be in my Father's house? And they did not understand the saying that he spoke to
+  them. (ESV)
+
+My mother and brothers and sisters are those who hear the word of God and do it.
+
+The person who used to be my father before I became born of the Spirit (I was born of the Spirit on 2 April 2022)
+is certainly not my father anymore.
+
+The person who I formerly regarded as mother, I have had a great deal of conflict with after I was born-again, but
+things have settled down in some sense. If in Christ, though, she could be regarded as still "mother".
+
+  Luke 2:51 - And he went down with them and came to Nazareth and was submissive to them. And his mother treasured
+  up all these things in her heart. (ESV)
+
+  Luke 8:21 - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+The people I formerly regarded as mother and father may still be believers in Jesus and if that were the case,
+then it would be more fitting to call them sister in Christ (maybe also mother) and brother in Christ, rather than
+mother and father.
+
+But there are older woman who I have had conversations with about Jesus who I might now call mother or sister.
+
+My old life is literally dead. I died on 2 April 2022 and was born again to a new life. And I have been fighting
+against the fleshly resistance that has come even from the people around me, just to get set free. The devil set a
+snare.
+
+So what Jesus is saying here in Luke 14:26, I believe, is that when a person comes to Jesus Christ, their old life
+has to be left behind, hated, and "lost". The old life needs to be lost. And their new life with their new family
+in Christ begins:
+
+  Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+  Luke 9:23-27 - And he said to all, If anyone would come after me, let him deny himself and take up his cross
+  daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will
+  save it. For what does it profit a man if he gains the whole world and loses or forfeits himself? For whoever is
+  ashamed of me and of my words, of him will the Son of Man be ashamed when he comes in his glory and the glory of
+  the Father and of the holy angels. But I tell you truly, there are some standing here who will not taste death
+  until they see the kingdom of God. (ESV)
+
+I know God knows the hearts of those who I previously called my parents. In my view they have seemed to be worldly
+at times. And after getting born-again I have had conflict with them especially when I have endeavoured to keep
+Jesus Christ's teachings and commandments, which vexed me. And I have wished very much that I was not held here in
+what thas felt to me to be a prison of circumstance, or a snare set by the devil, to hold me in the flesh and to
+deter me from following Jesus.
+
+I have been frustrated at times by the lack of vocal confession of their faith to me. But at other times they have
+listened as I spoke about my faith, and have at times agreed. There has been terrible conflict at times with them
+after I was born-again, though. I had been confined to this household by court-ordained bail conditions after I
+was born-again and made a marriage proposal, and that to me felt like witchcraft.
+
+I am grateful for my upbringing before I was born-again, and I do feel as though I have lived a privileged life
+before I was born-again.
+
+When I was water baptised as a teenager (in 2005, I believe), I feel as though I wasn't discipled thoroughly into
+observing all that Jesus Christ has commanded. And so when I got born-again of the Spirit in 2022, I had to learn
+what I would call "the hard way". But sadly, the Baptist church which I was attending at the time I was born-again
+wasn't really teaching the teachings of Jesus Christ accurately, nor thoroughly, as I recall, but rather it often
+felt as though Sunday morning services were very off topic and dilute.
+
+  Amos 8:11 - Behold, the days are coming, declares the Lord GOD, when I will send a famine on the land— not a
+  famine of bread, nor a thirst for water, but of hearing the words of the LORD. (ESV)
+
+I began reading from the Apocrypha and from the gospels (Matt, Mark, Luke and John) for myself to learn as I
+sought to learn from "rich" material. And reading even from the gnostic so-called gospels (Thomas, Valentinus and
+Philip). And also, it was not long after that before I started going to a pentecostal church which was not very
+strong on theology. Under these circumstances I made a marriage proposal. Also, under these circumstances, as I
+was doing my learning, I began to receive dreams and visions.
+
+It wasn't long before the police knocked on my door warning me to make no further communication. But not very long
+after that I made communication again to ask if I could propose again in a year. Sadly, the police returned again
+to arrest me (it felt very graceless).
+
+Basically, I was drawn into court over the marriage proposal I made after getting born-again, and given bail
+conditions to keep me bound to this household of the parents of my flesh. And that felt like witchcraft. It also
+felt very much illegal, as even Reformed Church quiz night results were used as evidence of me breaking bail.
+There were things which I did which I think were within my rights but still broke bail.
+
+And I was confined here into this household under bail conditions. So I was actually, ironically, prevented from
+"moving on". And that felt very counter-productive if what was really wanted of me was to back off and move on.
+
+I continued to attend Bible studies and church services, and have endeavoured to be corrected by God, coming into
+agreement with the Scripture and to abide soundly in Jesus Christ's teachings and commandments, as I endeavour to
+trust and obey Jesus.
+
+And I began to receive a lot of pushback when trying to affirm sound doctrine, especially the teachings of Jesus
+Christ.
+
+Now with regards to my previous parents again: Being raised by them in my "previous life" (that is, before I was
+born-again), I have felt loved by them then.
+
+  Hebrews 12:9 - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not
+  much more be subject to the Father of spirits and live? (ESV)
+
+And after getting born-again, although there has been necessary division between my previous parents and myself
+(Jesus Christ said that there would be), and although I have at times been vexed and frustrated by the lack of
+vocal testimony of their faith in Jesus Christ, I have also at times witnessed my previous father confess His
+faith in Jesus Christ even after I was born-again. And it has certainly been turbulent.
+
+Despite the conflicts, I have feel as though things have "stabilized" in some sense, but in an awkward way, where
+I am refusing to use the words "mother" and "father", "mum" and "dad" to refer to them, yet are in very close
+proximty. And I'm longing for deliverance.
+
+I wish that they would make clear vocal professions of their faith to me. Sometimes I hear Christian music playing
+in the house from them. They have been attending an Anglican church. I went to an Anglican church service today.
+It was my first time going there.
+
+I am still very uncomfortable living here as I have not been released yet from what I feel is a prison of
+circumstance.
+
+There was a schism which happened in the St Matthews Anglican church in Dunedin because St Matthew's began to
+bless gay 'marriage' (which is not real marriage):
+
+• odt.co.nz: Congregation split complete
+
+I stand firmly against gay so-called 'marriage' which is not real marriage at all. What does not proceed from
+faith is sin and sin is lawlessness. So as far as I'm concerned, those who practice such things cannot inherit the
+Kingdom of God and neither are welcome in my house:
+
+  Jeremiah 5:7-12 - How can I pardon you? Your children have forsaken me and have sworn by those who are no gods.
+  When I fed them to the full, they committed adultery and trooped to the houses of whores. They were well-fed,
+  lusty stallions, each neighing for his neighbor's wife. Shall I not punish them for these things? declares the
+  LORD; and shall I not avenge myself on a nation such as this? Go up through her vine rows and destroy, but make
+  not a full end; strip away her branches, for they are not the LORD's. For the house of Israel and the house of
+  Judah have been utterly treacherous to me, declares the LORD. They have spoken falsely of the LORD and have
+  said, He will do nothing; no disaster will come upon us, nor shall we see sword or famine. (ESV)
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+  II Corinthians 6:14-18 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
+  lawlessness? Or what fellowship has light with darkness? What accord has Christ with Belial? Or what portion
+  does a believer share with an unbeliever? What agreement has the temple of God with idols? For we are the temple
+  of the living God; as God said, I will make my dwelling among them and walk among them, and I will be their God,
+  and they shall be my people. Therefore go out from their midst, and be separate from them, says the Lord, and
+  touch no unclean thing; then I will welcome you, and I will be a father to you, and you shall be sons and
+  daughters to me, says the Lord Almighty. (ESV)
+
+A person who sins doesn't remain in God's house forever.
+
+People who go ahead and do not abide in Christ's teaching are not welcome in my house, and I will endeavour to
+avoid them. And Jesus Christ has instructed to, "sin no more":
+
+  II John 1:9-11 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his
+  wicked works. (ESV)
+
+Since I have a new identity, I have "divorced" myself from the old identity of who I was before I was born-again.
+Actually, God made me a new person so I'm simply embracing the new identity based on the promise that those who
+have faith in Jesus Christ's name have the right to become children of God, and obeying by faith Jesus'
+instruction to call no man on earth 'father' and also by reason, having witnessed being born-again of the Spirit
+calling out to Jesus as it happened.
+
+I've been adopted by God the Father of my Lord Jesus Christ, and He is my Father. The people who used to be my
+parents are not my parents anymore in a definite sense. But the mother of my flesh if truly in Christ I may still
+call "mother" as Jesus Christ has said His mother and brothers are those who hear the word of God and do it. But
+I'm still reserved about using the word "mother" and rightly so because frustratingly people in close proximity to
+me have generally been withholding making vocal confessions of their faith to me, the type of confession which I
+yearn to hear from people, especially that Jesus is the Christ, the Son of God, who has come into the world from
+God in the flesh (word become flesh).
+
+This body, this tent that I am in is from Adam. But I'm a completely different person now spiritually, and the
+spirit is my true identity. God is the Father of my spirit and the new spirit is who I am, and I await to receive
+a new body, that is the resurrection body. I am a child of God now rather than of my previous parents. When Jesus
+Christ has said that "If anyone comes to me and does not hate his own father and mother and wife and children and
+brothers and sisters, yes, and even his own life, he cannot be my disciple." I am understanding that as related to
+there being a necessary divorce of the previous identity, and that divorce of the previous identity in my
+experience has been a necessary adjustment which resulted in conflict. But that doesnt' have to be permamently the
+case. If there is reconciliation then it would need to be as brothers in Christ rather than "father and son" in
+Christ. My previous father is not my current father. God the father of Jesus Christ is my current father, I
+believe. New spirit, new Dad who is God the father of Jesus Christ, and that is non-negotiable. So this is my
+current position on the issue:
+
+  Hebrews 12:9 - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not
+  much more be subject to the Father of spirits and live? (ESV)
+
+  Matthew 10:34-37 - Do not think that I have come to bring peace to the earth. I have not come to bring peace,
+  but a sword. For I have come to set a man against his father, and a daughter against her mother, and a
+  daughter-in-law against her mother-in-law. And a person's enemies will be those of his own household. Whoever
+  loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not
+  worthy of me. (ESV)
+
+  Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+I realies that it is possible for a person to be "both" a brother in the flesh and in the Lord, but I'm reserved
+about giving the noun "brother" to people unless I observe the testimony of Jesus Christ from them:
+
+  Philemon 1:15-16 - For this perhaps is why he was parted from you for a while, that you might have him back
+  forever, no longer as a slave but more than a slave, as a beloved brother—especially to me, but how much more to
+  you, both in the flesh and in the Lord. (ESV)
+
+78.4.53. Journal <2026-03-20 Fri> - <2026-03-22 Sun>, <2026-03-23 Mon>
 
 More harassing, demonic dreams today. I went to bed asking God the Father, the Son and the Holy Spirit, Yahweh,
 Jehovah, God of Abraham, Isaac and Jacob, Most High God, that He would protect me in my sleep. I had also asked
@@ -131628,15 +131946,6 @@ God to testify of Jesus Christ from Holy Spirit to me.
 I was still attacked by demons all through the night and was not given the testimony. I was woken up about 4 or 5
 times during the night and this morning to demonic dreams. LGBT related dreams. Something invading my mind to push
 lying, harassing thoughts and dreams into my head. It's disgusting stuff. I rebuke it in Jesus Christ's name.
-
-I love the parents of my flesh. They have been amazing. But since I have a new identity, I have "divorced" myself
-from the old identity. I've been adopted by God the Father of my Lord Jesus Christ, and He is my Father. The
-people who used to be my parents are not my parents anymore in a definite sense. This body, this tent that I am in
-is from Adam. But I'm a completely different person now spiritually, and the spirit is my true identity. God is
-the Father of my spirit and the new spirit is who I am. I am a child of God now rather than my previous parents.
-
-  Hebrews 12:9 - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not
-  much more be subject to the Father of spirits and live? (ESV)
 
 But I've been born-again, and I'm resisting the pressure that has been applied on me to walk as I used to walk,
 with the mindset of the former self:
@@ -131991,7 +132300,7 @@ to steal.
   put away from you, along with all malice. Be kind to one another, tenderhearted, forgiving one another, as God
   in Christ forgave you. (ESV)
 
-78.4.53. Journal <2026-03-26 Thu>
+78.4.54. Journal <2026-03-26 Thu>
 
 Going back to what I'd said on <2025-10-25 Sat>, "It feels like someone above has been running the Large Hadron
 Collider but with people's souls and that's a demented experiment."
@@ -132038,7 +132347,7 @@ very soul crushing. It's a hellish existence figuratively speaking - maybe like 
 
   Proverbs 18:14 - A man's spirit will endure sickness, but a crushed spirit who can bear? (ESV)
 
-78.4.54. Journal <2026-03-28 Sat>
+78.4.55. Journal <2026-03-28 Sat>
 
 No man on earth is my father (Matthew 23:9). Amen. God Himself, the Father of the Lord Jesus Christ, is my Father.
 God is who I call upon as my Father.
@@ -132150,7 +132459,7 @@ account to the Judge:
   respect to this they are surprised when you do not join them in the same flood of debauchery, and they malign
   you; but they will give account to him who is ready to judge the living and the dead. (ESV)
 
-78.4.55. Journal <2026-03-30 Mon>
+78.4.56. Journal <2026-03-30 Mon>
 
 Today I listened to a sermon which I appreciated very much.
 
@@ -132162,7 +132471,7 @@ despise God's instruction and then God's instruction would feel legalistic. Even
 love God in order to keep covenant. It's not possible to do what God wants without a love for God. I can see that
 scripturally, but also believe I know that experientially now.
 
-78.4.56. Journal <2026-03-31 Tue 18:03>
+78.4.57. Journal <2026-03-31 Tue 18:03>
 
 God can:
 
@@ -132199,7 +132508,7 @@ and turning to God. I also agree on a particular thing which he said about how r
 born-again
 foundations.edu: Dr. O. Talmadge Spence - Repentance and the Kingdom | Foundations Bible College
 
-78.4.57. Journal <2026-04-01 Wed>
+78.4.58. Journal <2026-04-01 Wed>
 
 In Jesus Christ's name, I rebuke every spirit which attacked me this morning to put dreams of young women, etc.
 into my mind. In Jesus Christ's name I rebuke the sexual defilement spirit which has been causing my genitals to
@@ -132250,7 +132559,7 @@ I'm not bitter. I'm not harbouring unforgiveness, and that's what makes this so 
 spiritual attacks have continued. I've just become very weary of being attacked by demons and feeling neglected by
 God. My complaint will be loud until Jesus gives me the testimony which He promised.
 
-78.4.58. Journal <2026-04-01 Wed 20:18>
+78.4.59. Journal <2026-04-01 Wed 20:18>
 
 I love it when Jesus sets up works for me to do. But I want them to be done with clarity of instruction in
 difficult situations where I ask God for answers. I don't want to feel like I'm only person on planet earth
@@ -132289,7 +132598,7 @@ And quite honestly, I just don't want to be here in the world. I earnestly want 
 memory erased and for my soul to heal and wake up in heaven where there are still things to do and be excited
 about.
 
-78.4.59. Journal <2026-04-02 Thu 01:23>
+78.4.60. Journal <2026-04-02 Thu 01:23>
 
 It's just after midnight but around noon today will be 4 years born-again today.
 
@@ -132493,7 +132802,7 @@ up; and the flames will not consume us. For He is our Lord our God, the Holy one
 
 Amen.
 
-78.4.60. Journal <2026-04-11 Sat 14:41>
+78.4.61. Journal <2026-04-11 Sat 14:41>
 
 No "John 15:26-27, I John 4:2" testimony of Jesus Christ from Holy Spirit has yet been spoken to me.
 
@@ -132691,7 +133000,7 @@ must be those who go out in reality to do God's will for us:
   and pride in possessions—is not from the Father but is from the world. And the world is passing away along with
   its desires, but whoever does the will of God abides forever. (ESV)
 
-78.4.61. Journal <2026-04-16 Thu 07:42>
+78.4.62. Journal <2026-04-16 Thu 07:42>
 
 For those in Christ, our body is not our own. It's not right to say, "A Christian man has the right to do whatever
 he wants in his body." A Christian man or woman does not have the right to do whatever they want with their flesh,
@@ -132732,7 +133041,7 @@ Please, God, deliver me from the tribulation.
 
 Amen.
 
-78.4.62. Journal <2026-04-20 Mon 22:38>
+78.4.63. Journal <2026-04-20 Mon 22:38>
 
 It's been an interesting day. God has actually encouraged me a huge amount today. It's been amazing. I feel as
 though God gave me so much opportunity to share my faith with people on the streets of Dunedin today. It was
@@ -132754,7 +133063,7 @@ Things will be OK. I know that God knows what I'm thinking. God discerns my thou
 
 All glory to God.
 
-78.4.63. Journal <2026-05-16 Sat>
+78.4.64. Journal <2026-05-16 Sat>
 
 I think that what has happened to me regarding receiving continuous demonic harassment and defilement is a massive
 injustice. Ever since I was born-again, I have been seeking to follow Christ and seeking to be trusting and
@@ -132781,7 +133090,7 @@ Holy Spirit in Jesus Christ's name.
 
 And I don't want to be in this world anymore. It sucks being here.
 
-78.4.64. Journal <2026-05-18 Mon>
+78.4.65. Journal <2026-05-18 Mon>
 
 Walking home today I got a little reminder of a certain feeling that God gave me, a feeling I had felt not long
 after I was newly born-again. The way that music or an old video game can be nostalgic, experiencing this feeling
@@ -132840,7 +133149,7 @@ God's grace is given for us to be sanctified and God takes us to a new place:
 Another cool thing God did today was set me up with a brief meeting with a friend who is a Christian and who is a
 Physics tutor. So we got to discuss the "faith equation".
 
-78.4.65. Journal <2026-05-21 Thu>
+78.4.66. Journal <2026-05-21 Thu>
 
 I do not want to be in a position anymore where I'm being pressured/coerced into trusting in the flesh. I do not
 want to live in this house of the people who used to be my parents. For the love of Father, Son and Holy Spirit;
@@ -132896,7 +133205,7 @@ heaven where He is reigning as Lord of Heaven and Earth. May God help me in Jesu
   II Samuel 22:7 - In my distress I called upon the LORD; to my God I called. From his temple he heard my voice,
   and my cry came to his ears. (ESV)
 
-78.4.66. Journal <2026-05-23 Sat>
+78.4.67. Journal <2026-05-23 Sat>
 
 By faith I believe that God will deliver me from my present situation where I have felt opposed by Satan
 continually, as I have endeavoured to do the will of God. I have felt downtrodden and been brought to despair for
@@ -132948,7 +133257,7 @@ Faithfulness - 3vv & chorus } with lyrics for congregations {@ ChetValleyHymnsan
   heard. Then the devil comes and takes away the word from their hearts, so that they may not believe and be
   saved. (ESV)
 
-78.4.67. Journal <2026-05-24 Sun>
+78.4.68. Journal <2026-05-24 Sun>
 
 Last time I attempted to leave this household of my previous parents after I was given an ultimatum by my previous
 father a few days ago when he said "call me your father or get out", no-one was prepared to accomodate me after I
@@ -133008,7 +133317,7 @@ done in "faith". So it's not relying on our "works". But God sees the person's h
 faith in Jesus. We don't self commend. Whoever loves Jesus will keep His commandments. Whoever believes in Jesus
 will do the works that He did - good deeds from good faith.
 
-78.4.68. Journal <2026-05-24 Sun>
+78.4.69. Journal <2026-05-24 Sun>
 
 I attended a church service today and I was really happy to see that participating in following Jesus Christ was
 being taught. I had resolved to remove my earlier journal entry about jumping off a cliff. I was just feeling
@@ -133030,7 +133339,7 @@ God will not leave me:
 
 After that, there was some interesting interactions today I had on the street.
 
-78.4.69. Journal <2026-05-24 Sun>
+78.4.70. Journal <2026-05-24 Sun>
 
 Paul received mercy:
 
@@ -133052,7 +133361,7 @@ an example to those who were to believe in him for eternal life.
 We should hold our faith in Jesus Christ, and by faith obey Jesus Christ, abide in Jesus' teachings and
 commandments, and having our minds conformed to the mind of Christ. Jesus is patient with us as we are saved.
 
-78.4.70. Journal <2026-05-24 Sun>
+78.4.71. Journal <2026-05-24 Sun>
 
 Thank the Lord Jesus Christ, there is someone who seems to be keen to go flatting with me.
 
@@ -133063,7 +133372,7 @@ previous parents, that God would take care of them. But I know that God will nev
 what the Scripture says. I do not need to worry. Individually, our duty is to fear God and keep His commandments
 for us. In the Lord Jesus Christ's name.
 
-78.4.71. Journal <2026-05-25 Mon 10:13>
+78.4.72. Journal <2026-05-25 Mon 10:13>
 
 When Jesus from the cross mentions "behold, your mother" (John 19:27), I'm convinced that this is firstly meaning
 to say that Mary was "at that moment" doing the will of God (Luke 8:21) so Jesus was referring to the Mary "born
@@ -133089,7 +133398,7 @@ honouring Jesus Christ's commandments:
   present Jerusalem, for she is in slavery with her children. But the Jerusalem above is free, and she is our
   mother. (ESV)
 
-78.4.72. A universal opportunity to accept Jesus
+78.4.73. A universal opportunity to accept Jesus
 
 I believe all people are given an opportunity at some stage in one way or another to put their faith in Jesus:
 
@@ -133170,7 +133479,7 @@ We still need to believe to avoid condemnation:
   For whoever finds me finds life and obtains favor from the LORD, but he who fails to find me injures himself;
   all who hate me love death. (ESV)
 
-78.4.73. Journal <2026-05-30 Sat>
+78.4.74. Journal <2026-05-30 Sat>
 
 Since getting born-again of the spirit, the enemy the devil has clearly been trying to get me "unequally yoked
 with unbelievers" and has been bombarding me with these lies that I'm "of the night", even using this label of
@@ -133295,7 +133604,7 @@ down, God has seen me through my affliction:
   Psalms 139:12 - even the darkness is not dark to you; the night is bright as the day, for darkness is as light
   with you. (ESV)
 
-78.4.74. Journal <2026-05-30 Sat 14:35>
+78.4.75. Journal <2026-05-30 Sat 14:35>
 
 But I was thinking today about "unqual yoking" and have decided after thinking about the application of Scripture
 today that going flatting with somoeone of unknown or ambivalent belief/disbelief though is far less than ideal,
@@ -133448,7 +133757,7 @@ Jesus Christ Son of God, I call upon God the father of Jesus Christ in heaven as
 I'm still committed to not marrying until or unless God would speak to instruct me while confirming that Jesus is
 the Christ, the Son of God, the Word of God who has come from God into the world as flesh.
 
-78.4.75. Journal <2026-05-30 Sat 15:18>
+78.4.76. Journal <2026-05-30 Sat 15:18>
 
 There were a lot of things Vicky has spoken here which sound correct to me. Seems to be jam packed with good
 teaching but test the spirits:
@@ -133461,7 +133770,7 @@ did that by a lapse of faith, and I confess that I was wrong to speak badly of H
 I do believe that God does fight for me. I'm just so tired of demonic harassment. It's not God's fault. Surely God
 has blessed me with sanctification and wants other people to be saved, and God disciplines me.
 
-78.4.76. Journal <2026-06-01 Mon 09:49>
+78.4.77. Journal <2026-06-01 Mon 09:49>
 
 youtube.com: In Your Patience - Preparation for The Coming Days {@ richfyke7392 }
 When it hurts, be patient. Possess ye your soul. When things don't work out the way you thought it would, be
@@ -133495,7 +133804,7 @@ the wrath of God will have to endure. I wouldn't want to be the one receiving Go
   beyond all comparison, as we look not to the things that are seen but to the things that are unseen. For the
   things that are seen are transient, but the things that are unseen are eternal. (ESV)
 
-78.4.77. Journal <2026-06-04 Thu 14:09>
+78.4.78. Journal <2026-06-04 Thu 14:09>
 
 On the one hand, I feel as though over the years before I was born-again I had dug myself a fairly big hole by
 doing sinful things. But I wholeheartedly believe that God annihilated any generational sin and spiritual
@@ -133506,7 +133815,7 @@ F1 car a lot with bad theology and because I was held in flesh-conducive circums
 been a snare set by the devil, and this snare, though Christ is greater and can put it under my feet, has been a
 thorn in my side.
 
-78.4.78. Journal <2026-06-05 Fri 12:49>
+78.4.79. Journal <2026-06-05 Fri 12:49>
 
 It's not inherently wrong to own possessions, or to "have money", but if rather than pursuing righteousness and
 godliness, a person pursues material wealth, then that is wrong. In the pursuit of righteousness, in the pursuit
@@ -133539,7 +133848,7 @@ the means to help:
   Luke 10:36-37 - Which of these three, do you think, proved to be a neighbor to the man who fell among the
   robbers? He said, The one who showed him mercy. And Jesus said to him, You go, and do likewise. (ESV)
 
-78.4.79. Journal <2026-06-06 Sat 15:12>
+78.4.80. Journal <2026-06-06 Sat 15:12>
 
 I'm so tired of the reproach and the isolation as I resist false-teaching, false teaching such as "antinomianism".
 The worst antinomianism is when people teach that keeping the commandments of Christ is not grace. I don't see how
@@ -133588,7 +133897,7 @@ by the flesh rather than by the spirit. May Father God, in Jesus Christ's name I
 satanic stranglehold. And may God speak to me the testimony of Jesus Christ as a direct word to my heart, I hope
 and pray, trusting in what Jesus Christ has promised.
 
-78.4.80. Journal <2026-06-15 Mon>
+78.4.81. Journal <2026-06-15 Mon>
 
 Here is a confession of my faith:
 
@@ -133601,7 +133910,7 @@ Here is a confession of my faith:
 
 Jesus, the Son of God, is Yahweh and is the Word of God who has come into the world as flesh.
 
-78.4.81. Journal <2026-06-15 Mon 11:21>
+78.4.82. Journal <2026-06-15 Mon 11:21>
 
 I find it truly remarkable the sheer amount of demonic harassment satanic opposition that God has allowed me to be
 terrorised by. And I'm not happy about it at all. Jesus Christ has promised that Holy Spirit would testify of Him
@@ -133625,7 +133934,7 @@ Christ to fulfill His promise which is that Holy Spirit would testify of Him to 
 "so-called" "Christians" refuse to help me when I'm in need for what I am in need of. God knows. And I want the
 Lord Jesus Christ to deliver me from evil and provide for me clear instruction.
 
-78.4.82. Journal <2026-06-16 Tue>
+78.4.83. Journal <2026-06-16 Tue>
 
   Acts 5:27-32 - And when they had brought them, they set them before the council. And the high priest questioned
   them, saying, We strictly charged you not to teach in this name, yet here you have filled Jerusalem with your
@@ -133644,7 +133953,7 @@ Lord Jesus Christ to deliver me from evil and provide for me clear instruction.
   a child. But solid food is for the mature, for those who have their powers of discernment trained by constant
   practice to distinguish good from evil. (ESV)
 
-78.4.83. Journal <2026-06-20 Sat 10:31>
+78.4.84. Journal <2026-06-20 Sat 10:31>
 
 OK, so I was yet attacked by a lot of demonic dreams. Imagine God sending an angel messenger to speak to someone
 on earth, but along the way a pack of demons who are alrealy down here on the earth start harassing the person in
@@ -133740,7 +134049,7 @@ from Yahweh God into the world as flesh.
 And I'm personally also fed up with the spiritual attacks. But I'm hoping in Jesus that He will deliver me from
 all of it.
 
-78.4.84. Journal <2026-06-28 Sun 09:07>
+78.4.85. Journal <2026-06-28 Sun 09:07>
 
 May God have mercy on me. I love the Lord Jesus Christ.
 
@@ -133825,7 +134134,7 @@ But may God deliver me from evil:
   to what is good and innocent as to what is evil. The God of peace will soon crush Satan under your feet. The
   grace of our Lord Jesus Christ be with you. (ESV)
 
-78.4.85. Journal <2026-07-02 Thu 11:13>
+78.4.86. Journal <2026-07-02 Thu 11:13>
 
 I still haven't been set free from this household of the flesh, but I hope that God will liberate me. It feels as
 though in this household of the parents of my previous self, of the flesh, that they still speak from the flesh
@@ -133916,7 +134225,7 @@ My previous dad has let me know it's OK if I can't come along. And I explained. 
 first allegiance is to obey God. So that pressure is no longer there. However, this doesn't change my believe that
 I think it is right to become independent from this household.
 
-78.4.86. Journal <2026-07-05 Sun 21:57>
+78.4.87. Journal <2026-07-05 Sun 21:57>
 
 I commented on youtube.com: Quiz from Towards Jesus:
 
@@ -133966,7 +134275,7 @@ Thank You, Jesus for the rest which I'm trusting on you to provide. I'm tired, l
 rest his head tired." I do actually believe when the time is right God will cause me to rest. But I also believe
 we enter that rest through faith and obedience.
 
-78.4.87. Journal <2026-07-10 Fri 10:08>
+78.4.88. Journal <2026-07-10 Fri 10:08>
 
 I commented on these videos:
 
@@ -134095,7 +134404,7 @@ flesh:
   John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
   loved by my Father, and I will love him and manifest myself to him. (ESV)
 
-78.4.88. Journal <2026-07-22 Wed 16:53>
+78.4.89. Journal <2026-07-22 Wed 16:53>
 
 If a person is going around telling people, "I'm a Christian," that doesn't mean that they really are a Christian,
 so to guage whether or not a person is a Christian wouldn't be to ask, "Are you a Christian?" If a person is going
@@ -134235,7 +134544,7 @@ faith in Him. God has loved us first:
   so that we might live through him. In this is love, not that we have loved God but that he loved us and sent his
   Son to be the propitiation for our sins. (ESV)
 
-78.4.89. Journal <2026-07-24 Fri 10:12>
+78.4.90. Journal <2026-07-24 Fri 10:12>
 
 I'm very weary of getting harassing dreams which do not carry the testimony of Jesus Christ, and I'm weary of
 defilement messing with me and I'm weary of these imprisoning circumstances. I want to be set free. May God my
@@ -134412,7 +134721,7 @@ His saints out of the hand of the wicked He delivers them (Interlinear)
   Revelation of John 14:19 - So the angel swung his sickle across the earth and gathered the grape harvest of the
   earth and threw it into the great winepress of the wrath of God. (ESV)
 
-78.4.90. Journal <2026-08-02 Sun 02:58>
+78.4.91. Journal <2026-08-02 Sun 02:58>
 
 So I have just had a couple of interesting dreams. It still bothers me that there was no explicit testimony of
 Jesus Christ from Holy Spirit to me. But I will quote relevant Scripture. Trust God's word through Scripture,
@@ -134587,7 +134896,7 @@ a direct word with the testimony of Jesus Christ.
   neither sees him nor knows him. You know him, for he dwells with you and will be in you. I will not leave you as
   orphans; I will come to you. (ESV)
 
-78.4.91. Journal <2026-08-04 Tue 18:38>
+78.4.92. Journal <2026-08-04 Tue 18:38>
 
 youtube.com: Poll from Ready to Harvest
 
@@ -134795,7 +135104,7 @@ John 1:18 (Interlinear)
 God no one has seen ever yet [the] only begotten God the [One] being in the bosom of the Father He has made [Him]
 known
 
-78.4.92. Journal <2026-08-21 Fri 22:42>
+78.4.93. Journal <2026-08-21 Fri 22:42>
 
 As I was lying down earlier taking a nap, I had a couple of pictures come into my mind:
 
@@ -134921,7 +135230,7 @@ Date: 2026-08-30 Sun 15:48
 
 Author: Shane Mulligan
 
-Created: 2026-08-30 Sun 15:53
+Created: 2026-08-30 Sun 21:28
 
 Validate
 

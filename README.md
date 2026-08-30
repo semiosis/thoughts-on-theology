@@ -1666,6 +1666,15 @@ It's not dishonoring to one's previous parents to give the title of 'father' to 
 
 Now a Christian is instructed by the Apostle Peter to honor all people [1 Peter 2:17](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A17&version=ESV), and so to keep Christ's commandment to call no man on earth father, is not against honoring one's previous parents because both Christ's commandment and the Apostle Peter's instruction are able to be kept at the same time.
 
+Now since these people who appear as my previous parents, are truly no longer my parents,
+then in understanding Jesus' teaching that anyone who comes to Him and does not hate their mother and father
+cannot be His disciple, it's correct to say that there is no need for me to hate these people who are not my parents if I am to come to Jesus Christ some more.
+
+The people they used to be were those who used to be my parents, and I hate my old life.
+I simply can't affirm that these people I formerly regarded as being my parents, are my parents anymore if I am to love them in reality how I'm commanded to love.
+
+> **[I John 5:1-2](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-2&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. <ins>By this we know that we love the children of God, when we love God **and** obey his commandments.</ins> (ESV)
+
 If someone claims that Jesus Christ is their brother, then surely they then consider God to be their Father, as Jesus Christ's father is God the father of Jesus Christ. But that God is their father is especially true if Jesus Christ considers them to be a brother because if Jesus calls a person brother then that person's father is Jesus' father:
 
 > **[Romans 8:29](https://www.biblegateway.com/passage/?search=Romans%208%3A29&version=ESV)** - For those whom he foreknew he also **predestined to be conformed to the image of his Son**, in order that he might be the firstborn among many brothers. (ESV)
@@ -16638,7 +16647,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge32b9b3) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfedefb1) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -22366,7 +22375,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org6c41422).
+I didn't know but it turned out to be the last day of my [sentence](#org2e2f227).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -46712,7 +46721,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org4e2540b)
+See: [33.4.1](#orgbfc73de)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -68176,7 +68185,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org4e2540b)
+See: [33.4.1](#orgbfc73de)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -70830,7 +70839,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgeef9acb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org8f1d08c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -79048,7 +79057,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgeef9acb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org8f1d08c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -80384,7 +80393,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org5bda786)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org1a56443)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -83030,6 +83039,226 @@ Works to faith is like flesh to spirit, and the spirit is willing, at least it *
 Good works still come from good faith. But we don't rely on being able to carry out perfect deeds. But we still have the heart of faith, love, hope, obedience in reality, with intention to do the will of God.
 
 
+### Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-08-30 Sun 19:47&gt;</span></span>
+
+I have fond memories of my former life, and thankful to God for a relatively decent previous life, but I'm not agape loving it.
+But certainly those people I remember, I hope and pray do come to or continue in the knowledge of God through faith in Jesus Christ.
+But that previous life of mine died, and I am now looking forwards, endeavouring to walk in newness of life, living for the will of God.
+I don't agape love my previous life.
+
+> **[Philippians 3:8](https://www.biblegateway.com/passage/?search=Philippians%203%3A8&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ (ESV)
+
+My former parents are of my previous life. My previous life is dead.
+My former genaeology is not my present genaeology.
+Those who I formerly regarded as "uncle" and "aunty", "nana", "grandad" and "grandpa" and "grandma" and "brother" and "sister"
+I no longer regard as having those titles. But if any of them are in Christ then they would be brother and sister to me.
+
+I reject calling my former parents (from my former life) who I am still in close physical proximity to as "my parents".
+
+I haven't said they are not believers, and neither have I said they are believers. I have simply said they are not my parents.
+
+> **[Luke 14:26](https://www.biblegateway.com/passage/?search=Luke%2014%3A26&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+Now since these people who appear as my previous parents, are truly no longer my parents in reality,
+then in understanding Jesus' teaching that anyone who comes to Him and does not hate their mother and father
+cannot be His disciple, it's correct to say that there is no need for me to hate these people anymore
+if I am to come to Jesus Christ some more because they are not my parents.
+Jesus is talking about hating parents and these people are not my parents.
+
+But that doesn't mean that I have *never* hated people who I considered at some point to be my parents (i.e. those who formerly I had regarded as being my parents)
+and crucially **when** they actually were my parents.
+But if the people I hated are no longer my parents then I don't have to hate them in order to come to Jesus.
+
+Now I hate my previous life.
+
+It is no more the reality that these people are my parents, as I died an actual death when I was born-again, and all things became new,
+and so those people from my previous life have died along with my previous life.
+
+> **[II Corinthians 5:14-15](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A14-15&version=ESV)** - For the love of Christ controls us, because we have concluded this: that one has died for all, therefore all have died; and he died for all, that <ins>those who live **might no longer** live for themselves but for him who for their sake died and was raised.</ins> (ESV)
+
+> **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, and everyone who lives and believes in me shall never [(G3756 οὐ)](G3756) [(G3361 μή)](G3361) die. Do you believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
+
+I hate my old life. And even this new life now has felt rather spoiled and contaminated in part to what has felt like extreme resistance to walking in newness of life,
+and a Satanic snare which seems to have been an attempmt to trap me into walking according the flesh by peer pressure.
+I simply can't affirm that those people I formerly regarded as my parents are my parents anymore if I am to love them in reality how I'm commanded to love them.
+
+> **[I John 5:1-2](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-2&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. <ins>By this we know that we love the children of God, when we love God **and** obey his commandments.</ins> (ESV)
+
+I have a new family now, my family in Christ. God has made all thing new.
+
+I would love those who I formerly regarded as family to come to know God through faith in Jesus Christ,
+walking by the Spirit, abiding in Jesus Christ's commandments in reality.
+But reflecting on who I pray for, I actually pray for them just about as frequently for them as I do for other people, that they come into the knowledge of God / come into greater knowledge of God through faith in Jesus Christ.
+
+There is a way I love those who are surely family in Christ which is that of true agape love for my true family who are in Christ,
+which is reserved for those who are making testimony of Jesus Christ to me,
+who are confessing their faith in Jesus Christ to me; Those who I may observe, say,
+loving as God has commanded in deed, or receiving and affirming the word of God, and who are not supporting of sinful things which God hates.
+
+But I have after I was born-again, many times been actively resisted by my former parents, for endeavouring to abide in Jesus Christ's commandments. And under those circumstances, I have felt like they were truly not family to me. It hasn't always been like that. And I have had my freedom taken away and bound in these circumstances, in close proximity to them for a long period of time. But at times also it has seemed also as if they were believers. But God knows. I shouldn't bound be in this situation like this. It has felt like Satanic snare.
+
+> **[Matthew 10:34-37](https://www.biblegateway.com/passage/?search=Matthew%2010%3A34-37&version=ESV)** - Do not think that I have come to bring peace to the earth. I have not come to bring peace, but a sword. For I have come to set a man against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law. And a person's enemies will be those of his own household. Whoever loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. (ESV)
+
+I have been pressured so strongly by circumstance and those around me, into calling them my mother and father.
+I've even been asked by people if "they are believers".
+But who am I to say? Christians are supposed to walk by faith and make testimony of Jesus Christ.
+If someone wants to find out if they are believers then they should them what they believe about Jesus Christ.
+
+People have gotten angry at me for refusing to call my previous father 'father'.
+I have even been told by someone that they do not believe I am saved after I insisted that the 5th commandment (the commandment to honor one's father and mother)
+is applied with God as my father, and mother talking about my family in Christ.
+
+But I have endured so much tribulation on account of the word of God for endeavouring to abide in Jesus' teachings and commandments:
+
+> **[Mark 4:14-20](https://www.biblegateway.com/passage/?search=Mark%204%3A14-20&version=ESV)** - The sower sows the word. And these are the ones along the path, where the word is sown: when they hear, Satan immediately comes and takes away the word that is sown in them. And these are the ones sown on rocky ground: the ones who, when they hear the word, immediately receive it with joy. **And they have no root in themselves, but endure for a while; then, when tribulation or persecution arises on account of the word, immediately they fall away.** And others are the ones sown among thorns. They are those who hear the word, but the cares of the world and the deceitfulness of riches and the desires for other things enter in and choke the word, and it proves unfruitful. But those that were sown on the good soil are the ones who hear the word and accept it and bear fruit, thirtyfold and sixtyfold and a hundredfold. (ESV)
+
+I've been born-again, and I have faith in Jesus Christ that my Dad is now is God the Father of Jesus Christ.
+
+> **[Luke 2:46-50](https://www.biblegateway.com/passage/?search=Luke%202%3A46-50&version=ESV)** - After three days they found him in the temple, sitting among the teachers, listening to them and asking them questions. And all who heard him were amazed at his understanding and his answers. And when his parents saw him, they were astonished. And his mother said to him, Son, why have you treated us so? Behold, your father and I have been searching for you in great distress. And he said to them, Why were you looking for me? Did you not know that I must be in my Father's house? And they did not understand the saying that he spoke to them. (ESV)
+
+My mother and brothers and sisters are those who hear the word of God and do it.
+
+The person who used to be my father before I became born of the Spirit (I was born of the Spirit on 2 April 2022) is certainly not my father anymore.
+
+The person who I formerly regarded as mother, I have had a great deal of conflict with after I was born-again, but things have settled down in some sense.
+If in Christ, though, she could be regarded as still "mother".
+
+> **Luke 2:51** - And he went down with them and came to Nazareth and was submissive to them. And his mother treasured up all these things in her heart. (ESV)
+
+> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+The people I formerly regarded as mother and father may still be believers in Jesus and if that were the case, then it would be more fitting to call them
+sister in Christ (maybe also mother) and brother in Christ, rather than mother and father.
+
+But there are older woman who I have had conversations with about Jesus who I might now call mother or sister.
+
+My old life is literally dead. I died on 2 April 2022 and was born again to a new life. And I have been fighting against the fleshly resistance that has come
+even from the people around me, just to get set free. The devil set a snare.
+
+So what Jesus is saying here in [Luke 14:26](https://www.biblegateway.com/passage/?search=Luke%2014%3A26&version=ESV), I believe, is that when a person comes to Jesus Christ, their old life has to be left behind, hated,
+and "lost". The old life needs to be lost. And their new life with their new family in Christ begins:
+
+> **[Luke 14:26](https://www.biblegateway.com/passage/?search=Luke%2014%3A26&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+> **[Luke 9:23-27](https://www.biblegateway.com/passage/?search=Luke%209%3A23-27&version=ESV)** - And he said to all, If anyone would come after me, let him deny himself and take up his cross daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will save it. For what does it profit a man if he gains the whole world and loses or forfeits himself? For whoever is ashamed of me and of my words, of him will the Son of Man be ashamed when he comes in his glory and the glory of the Father and of the holy angels. But I tell you truly, there are some standing here who will not taste death until they see the kingdom of God. (ESV)
+
+I know God knows the hearts of those who I previously called my parents.
+In my view they have seemed to be worldly at times. And after getting born-again
+I have had conflict with them especially when I have endeavoured to keep Jesus Christ's teachings and commandments,
+which vexed me. And I have wished very much that I was not held here in what thas felt to me to be a prison of circumstance,
+or a snare set by the devil, to hold me in the flesh and to deter me from following Jesus.
+
+I have been frustrated at times by the lack of vocal confession of their faith to me.
+But at other times they have listened as I spoke about my faith, and have at times agreed.
+There has been terrible conflict at times with them after I was born-again, though.
+I had been confined to this household by court-ordained bail conditions after I was born-again and made a marriage proposal, and that to me felt like witchcraft.
+
+I am grateful for my upbringing before I was born-again, and I do feel as though I have lived a privileged life before I was born-again.
+
+When I was water baptised as a teenager (in 2005, I believe), I feel as though I wasn't discipled thoroughly into observing all that Jesus Christ has commanded.
+And so when I got born-again of the Spirit in 2022, I had to learn what I would call "the hard way".
+But sadly, the Baptist church which I was attending at the time I was born-again wasn't really teaching the teachings of Jesus Christ accurately, nor thoroughly, as I recall,
+but rather it often felt as though Sunday morning services were very off topic and dilute.
+
+> **[Amos 8:11](https://www.biblegateway.com/passage/?search=Amos%208%3A11&version=ESV)** - Behold, the days are coming, declares the Lord GOD, when I will send a famine on the land— not a famine of bread, nor a thirst for water, but of hearing the words of the LORD. (ESV)
+
+I began reading from the Apocrypha and from the gospels (Matt, Mark, Luke and John) for myself to learn as I sought to learn from "rich" material.
+And reading even from the gnostic so-called gospels (Thomas, Valentinus and Philip).
+And also, it was not long after that before I started going to a pentecostal church which was not very strong on theology.
+Under these circumstances I made a marriage proposal.
+Also, under these circumstances, as I was doing my learning, I began to receive dreams and visions.
+
+It wasn't long before the police knocked on my door warning me to make no further communication.
+But not very long after that I made communication again to ask if I could propose again in a year.
+Sadly, the police returned again to arrest me (it felt very graceless).
+
+Basically, I was drawn into court over the marriage proposal I made after getting born-again, and given bail conditions to keep me bound to this household of the parents of my flesh.
+And that felt like witchcraft.
+It also felt very much illegal, as even Reformed Church quiz night results were used as evidence of me breaking bail.
+There were things which I did which I think were within my rights but still broke bail.
+
+And I was confined here into this household under bail conditions.
+So I was actually, ironically, prevented from "moving on".
+And that felt very counter-productive if what was really wanted of me was to back off and move on.
+
+I continued to attend Bible studies and church services, and have endeavoured to be corrected by God,
+coming into agreement with the Scripture and to abide soundly in Jesus Christ's teachings and commandments,
+as I endeavour to trust and obey Jesus.
+
+And I began to receive a lot of pushback when trying to affirm sound doctrine, especially the teachings of Jesus Christ.
+
+Now with regards to my previous parents again: Being raised by them in my "previous life" (that is, before I was born-again), I have
+felt loved by them then.
+
+> **[Hebrews 12:9](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A9&version=ESV)** - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not much more be subject to the Father of spirits and live? (ESV)
+
+And after getting born-again, although there has been necessary division between my previous parents and myself (Jesus Christ said that there would be),
+and although I have at times been vexed and frustrated by the lack of vocal testimony of their faith in Jesus Christ,
+I have also at times witnessed my previous father confess His faith in Jesus Christ even after I was born-again.
+And it has certainly been turbulent.
+
+Despite the conflicts, I have feel as though things have "stabilized" in some sense, but in an awkward way,
+where I am refusing to use the words "mother" and "father", "mum" and "dad" to refer to them,
+yet are in very close proximty. And I'm longing for deliverance.
+
+I wish that they would make clear vocal professions of their faith to me.
+Sometimes I hear Christian music playing in the house from them.
+They have been attending an Anglican church.
+I went to an Anglican church service today. It was my first time going there.
+
+I am still very uncomfortable living here as I have not been released yet from what I feel is a prison of circumstance.
+
+There was a schism which happened in the St Matthews Anglican church in Dunedin because St Matthew's began to bless gay 'marriage' (which is not real marriage):
+
+-   [odt.co.nz:  Congregation split complete](https://www.odt.co.nz/news/dunedin/congregation-split-complete-v0zondhw)
+
+I stand firmly against gay so-called 'marriage' which is not real marriage at all. What does not proceed from faith is sin and sin is lawlessness. So as far as I'm concerned, those who practice such things cannot inherit the Kingdom of God and neither are welcome in my house:
+
+> **[Jeremiah 5:7-12](https://www.biblegateway.com/passage/?search=Jeremiah%205%3A7-12&version=ESV)** - How can I pardon you? Your children have forsaken me and have sworn by those who are no gods. When I fed them to the full, they committed adultery and trooped to the houses of whores. They were well-fed, lusty stallions, each neighing for his neighbor's wife. Shall I not punish them for these things? declares the LORD; and shall I not avenge myself on a nation such as this? Go up through her vine rows and destroy, but make not a full end; strip away her branches, for they are not the LORD's. For the house of Israel and the house of Judah have been utterly treacherous to me, declares the LORD. They have spoken falsely of the LORD and have said, He will do nothing; no disaster will come upon us, nor shall we see sword or famine. (ESV)
+
+> **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)** - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come and stand before me in this house, which is called by my name, and say, We are delivered to do all these abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I have seen it, saith the LORD. (KJV)
+
+> **[II Corinthians 6:14-18](https://www.biblegateway.com/passage/?search=2%20Corinthians%206%3A14-18&version=ESV)** - Do not be unequally yoked with unbelievers. For what partnership has righteousness with lawlessness? Or what fellowship has light with darkness? What accord has Christ with Belial? Or what portion does a believer share with an unbeliever? What agreement has the temple of God with idols? For we are the temple of the living God; as God said, I will make my dwelling among them and walk among them, and I will be their God, and they shall be my people. Therefore go out from their midst, and be separate from them, says the Lord, and touch no unclean thing; then I will welcome you, and I will be a father to you, and you shall be sons and daughters to me, says the Lord Almighty. (ESV)
+
+A person who sins doesn't remain in God's house forever.
+
+People who go ahead and do not abide in Christ's teaching are not welcome in my house, and I will endeavour to avoid them. And Jesus Christ has instructed to, "sin no more":
+
+> **[II John 1:9-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-11&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his wicked works. (ESV)
+
+Since I have a new identity, I have "divorced" myself from the old identity of who I was before I was born-again.
+Actually, God made me a new person so I'm simply embracing the new identity based on the promise that those who have faith in Jesus Christ's name have the right to become children of God,
+and obeying by faith Jesus' instruction to call no man on earth 'father' and also by reason, having witnessed being born-again of the Spirit calling out to Jesus as it happened.
+
+I've been adopted by God the Father of my Lord Jesus Christ, and He is my Father. The people who used to be my parents are not my parents anymore in a definite sense.
+But the mother of my flesh if truly in Christ I may still call "mother" as Jesus Christ has said His mother and brothers are those who hear the word of God and do it.
+But I'm still reserved about using the word "mother" and rightly so because frustratingly people in close proximity to me
+have generally been withholding making vocal confessions of their faith to me,
+the type of confession which I yearn to hear from people, especially that Jesus is the Christ, the Son of God, who has come into the world from God in the flesh (word become flesh).
+
+This body, this tent that I am in is from Adam. But I'm a completely different person now spiritually, and the spirit is my true identity.
+God is the Father of my spirit and the new spirit is who I am, and I await to receive a new body, that is the resurrection body.
+I am a child of God now rather than of my previous parents. When Jesus Christ
+has said that "If anyone comes to me and does not hate his own father and
+mother and wife and children and brothers and sisters, yes, and even his own
+life, he cannot be my disciple." I am understanding that as related to there being a necessary divorce of the previous identity,
+and that divorce of the previous identity in my experience has been a necessary adjustment which resulted in conflict.
+But that doesnt' have to be permamently the case. If there is reconciliation then it would need to be as brothers in Christ
+rather than "father and son" in Christ. My previous father is not my current father.
+God the father of Jesus Christ is my current father, I believe. New spirit, new Dad who is God the father of Jesus Christ,
+and that is non-negotiable. So this is my current position on the issue:
+
+> **[Hebrews 12:9](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A9&version=ESV)** - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not much more be subject to the Father of spirits and live? (ESV)
+
+> **[Matthew 10:34-37](https://www.biblegateway.com/passage/?search=Matthew%2010%3A34-37&version=ESV)** - Do not think that I have come to bring peace to the earth. I have not come to bring peace, but a sword. For I have come to set a man against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law. And a person's enemies will be those of his own household. Whoever loves father or mother more than me is not worthy of me, and whoever loves son or daughter more than me is not worthy of me. (ESV)
+
+> **[Luke 14:26](https://www.biblegateway.com/passage/?search=Luke%2014%3A26&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+I realies that it is possible for a person to be "both" a brother in the flesh and in the Lord, but I'm reserved about giving the noun "brother" to people unless I observe the testimony of Jesus Christ from them:
+
+> **[Philemon 1:15-16](https://www.biblegateway.com/passage/?search=Philemon%201%3A15-16&version=ESV)** - For this perhaps is why he was parted from you for a while, that you might have him back forever, no longer as a slave but more than a slave, as a beloved brother—especially to me, but how much more to you, both in the flesh and in the Lord. (ESV)
+
+
 ### Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-03-20 Fri&gt; </span></span> - <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-03-22 Sun&gt;</span></span>, <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-03-23 Mon&gt;</span></span>
 
 More harassing, demonic dreams today.
@@ -83042,10 +83271,6 @@ I was woken up about 4 or 5 times during the night and this morning to demonic d
 LGBT related dreams. Something invading my mind to push lying, harassing thoughts and dreams into my head.
 It's disgusting stuff.
 I rebuke it in Jesus Christ's name.
-
-I love the parents of my flesh. They have been amazing. But since I have a new identity, I have "divorced" myself from the old identity. I've been adopted by God the Father of my Lord Jesus Christ, and He is my Father. The people who used to be my parents are not my parents anymore in a definite sense. This body, this tent that I am in is from Adam. But I'm a completely different person now spiritually, and the spirit is my true identity. God is the Father of my spirit and the new spirit is who I am. I am a child of God now rather than my previous parents.
-
-> **[Hebrews 12:9](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A9&version=ESV)** - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not much more be subject to the Father of spirits and live? (ESV)
 
 But I've been born-again, and I'm resisting the pressure that has been applied on me to walk as I used to walk, with the mindset of the former self:
 
