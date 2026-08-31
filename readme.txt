@@ -7979,6 +7979,14 @@ applies to the Christian who by the law of faith abides in Jesus Christ's comman
   stopped the mouths of lions, quenched the power of fire, escaped the edge of the sword, were made strong out of
   weakness, became mighty in war, put foreign armies to flight. (ESV)
 
+  Psalms 11:1-7 - 1 In Yahweh I take refuge; How can you say to my soul, “Flee as a bird to your mountain; 2 For,
+  behold, the wicked bend the bow, They make ready their arrow upon the string To shoot in darkness at the upright
+  in heart. 3 If the foundations are destroyed, What can the righteous do?” 4 Yahweh is in His holy temple;
+  Yahweh’s throne is in heaven; His eyes behold, His eyelids test the sons of men. 5 Yahweh tests the righteous,
+  But the wicked and the one who loves violence His soul hates. 6 May He rain snares upon the wicked; Fire and
+  brimstone and burning wind will be the portion of their cup. 7 For Yahweh is righteous, He loves righteousness;
+  The upright will behold His face. (LSB)
+
 Someone who is "in Christ Jesus" has God's righteousness who is Jesus Christ, and they are abiding in Jesus
 Christ's commandments. Yeshuah Hamashiach (Jesus Christ) is Yahweh (Jehovah) and is God the Son of God:
 
@@ -7987,6 +7995,8 @@ Christ's commandments. Yeshuah Hamashiach (Jesus Christ) is Yahweh (Jehovah) and
   shall bow, every tongue shall swear allegiance. Only in the LORD, it shall be said of me, are righteousness and
   strength; to him shall come and be ashamed all who were incensed against him. In the LORD all the offspring of
   Israel shall be justified and shall glory. (ESV)
+
+  Isaiah 45:25 - In Jehovah are all the seed of Israel justified, And they boast themselves.' (YLT)
 
   I Corinthians 1:30 - It is because of Him that you are in Christ Jesus, who has become for us wisdom from God:
   our righteousness, holiness, and redemption. (engbsb2020eb)
@@ -20265,9 +20275,13 @@ sanctified by faith in Jesus Christ:
   James 4:4 - You adulterous people! Do you not know that friendship with the world is enmity with God? Therefore
   whoever wishes to be a friend of the world makes himself an enemy of God. (ESV)
 
-Rather, it would make more fitting to pray that the word of the Lord, the word of Yahweh (Jehovah) God (Father,
-Son and Holy Spirit), the word of God given through our Lord Jesus Christ who is God's Son, to bring people out of
-the world, out of darkness, and into Christ, into the light.
+Rather, it would make more fitting to pray that the word of the Lord may speed ahead and be honored, the word of
+Yahweh (Jehovah) God (Father, Son and Holy Spirit), the word of God given through our Lord Jesus Christ who is
+God's Son, to bring people out of the world, out of darkness, and into Christ, into the light.
+
+  II Thessalonians 3:1-2 - Finally, brothers, pray for us, that the word of the Lord may speed ahead and be
+  honored, as happened among you, and that we may be delivered from wicked and evil men. For not all have faith.
+  (ESV)
 
 We are called to do good to all people, and to be kind and merciful even to those who are evil. But that doesn't
 mean we should yoke ourselves to them. We should just endeavour to be led by the Spirit, trusting God and His word
@@ -54573,6 +54587,16 @@ For me this is a matter of Biblical separation.
 
 I hope that Jesus will be faithful to me and provide me with the testimony of Himself from Holy Spirit. And
 deliver me from this horrible situation.
+
+Journal <2026-09-01 Tue 08:41>
+
+  Psalms 11:1-7 - 1 In Yahweh I take refuge; How can you say to my soul, “Flee as a bird to your mountain; 2 For,
+  behold, the wicked bend the bow, They make ready their arrow upon the string To shoot in darkness at the upright
+  in heart. 3 If the foundations are destroyed, What can the righteous do?” 4 Yahweh is in His holy temple;
+  Yahweh’s throne is in heaven; His eyes behold, His eyelids test the sons of men. 5 Yahweh tests the righteous,
+  But the wicked and the one who loves violence His soul hates. 6 May He rain snares upon the wicked; Fire and
+  brimstone and burning wind will be the portion of their cup. 7 For Yahweh is righteous, He loves righteousness;
+  The upright will behold His face. (LSB)
 
 Something I recall John Piper mentioning is that "AI does words better than us". But I want to mention this. Real
 speech comes from the heart, so AI can still be called a speechless idol, even if it produces the imitation of
@@ -131930,7 +131954,7 @@ current position on the issue:
   Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
   brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
 
-I realies that it is possible for a person to be "both" a brother in the flesh and in the Lord, but I'm reserved
+I realise that it is possible for a person to be "both" a brother in the flesh and in the Lord, but I'm reserved
 about giving the noun "brother" to people unless I observe the testimony of Jesus Christ from them:
 
   Philemon 1:15-16 - For this perhaps is why he was parted from you for a while, that you might have him back
@@ -134884,6 +134908,16 @@ is the Truth (I John 5:1-6) God is the Truth.
 
 The truth is reality (G225 aletheia). I refuse to imbibe on this delusional AI chatbot theft rubbish.
 
+Journal <2026-09-01 Tue 08:41>
+
+  Psalms 11:1-7 - 1 In Yahweh I take refuge; How can you say to my soul, “Flee as a bird to your mountain; 2 For,
+  behold, the wicked bend the bow, They make ready their arrow upon the string To shoot in darkness at the upright
+  in heart. 3 If the foundations are destroyed, What can the righteous do?” 4 Yahweh is in His holy temple;
+  Yahweh’s throne is in heaven; His eyes behold, His eyelids test the sons of men. 5 Yahweh tests the righteous,
+  But the wicked and the one who loves violence His soul hates. 6 May He rain snares upon the wicked; Fire and
+  brimstone and burning wind will be the portion of their cup. 7 For Yahweh is righteous, He loves righteousness;
+  The upright will behold His face. (LSB)
+
 I hope and pray that God cleans me up, delivers me from the evil, silences the demons and speaks to me clearly as
 a direct word with the testimony of Jesus Christ.
 
@@ -135226,11 +135260,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-08-30 Sun 15:48
+Date: 2026-09-01 Tue 08:40
 
 Author: Shane Mulligan
 
-Created: 2026-08-30 Sun 21:28
+Created: 2026-09-01 Tue 08:56
 
 Validate
 

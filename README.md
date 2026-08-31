@@ -3752,9 +3752,21 @@ David who wrote **[Psalms 103:17-18](https://www.biblegateway.com/passage/?searc
 
 > **[Hebrews 11:32-34](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A32-34&version=ESV)** - And what more shall I say? For time would fail me to tell of Gideon, Barak, Samson, Jephthah, of David and Samuel and the prophets— who through faith conquered kingdoms, enforced justice, obtained promises, stopped the mouths of lions, quenched the power of fire, escaped the edge of the sword, were made strong out of weakness, became mighty in war, put foreign armies to flight. (ESV)
 
+> **[Psalms 11:1-7](https://read.lsbible.org/?q=Psalm+14)** -
+>     **1** In Yahweh I take refuge; How can you say to my soul, “Flee as a bird to your mountain;
+>     **2** For, behold, the wicked bend the bow, They make ready their arrow upon the string To shoot in darkness at the upright in heart.
+>     **3** If the foundations are destroyed, What can the righteous do?”
+>     **4** Yahweh is in His holy temple; Yahweh’s throne is in heaven; His eyes behold, His eyelids test the sons of men.
+>     **5** Yahweh tests the righteous, But the wicked and the one who loves violence His soul hates.
+>     **6** May He rain snares upon the wicked; Fire and brimstone and burning wind will be the portion of their cup.
+>     **7** For Yahweh is righteous, He loves righteousness; The upright will behold His face.
+>     (LSB)
+
 Someone who is "in Christ Jesus" has God's righteousness who is Jesus Christ, and they are abiding in Jesus Christ's commandments. Yeshuah Hamashiach (Jesus Christ) is Yahweh (Jehovah) and is God the Son of God:
 
 > **[Isaiah 45:22-25](https://www.biblegateway.com/passage/?search=Isaiah%2045%3A22-25&version=ESV)** - Turn to me and be saved, all the ends of the earth! For I am God, and there is no other. By myself I have sworn; from my mouth has gone out in righteousness a word that shall not return: To me every knee shall bow, every tongue shall swear allegiance. **Only in the LORD, it shall be said of me, are righteousness and strength; to him shall come and be ashamed all who were incensed against him. In the LORD all the offspring of Israel shall be justified and shall glory.** (ESV)
+
+> **[Isaiah 45:25](https://www.biblegateway.com/passage/?search=Isaiah%2045%3A25&version=ESV)** - In Jehovah are all the seed of Israel justified, And they boast themselves.' (YLT)
 
 > **[I Corinthians 1:30](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A30&version=ESV)** - It is because of Him that you are in Christ Jesus, who has become for us wisdom from God: our righteousness, holiness, and redemption. (engbsb2020eb)
 
@@ -10452,7 +10464,9 @@ For salvation we should be unifying in heart and soul with other believers, with
     
     > **[James 4:4](https://www.biblegateway.com/passage/?search=James%204%3A4&version=ESV)** - You *adulterous* people! Do you not know that **friendship with the world is enmity with God**? Therefore whoever wishes to be a friend of the world makes himself an enemy of God. (ESV)
     
-    Rather, it would make more fitting to pray that the word of the Lord, the word of Yahweh (Jehovah) God (Father, Son and Holy Spirit), the word of God given through our Lord Jesus Christ who is God's Son, to bring people out of the world, out of darkness, and into Christ, into the light.
+    Rather, it would make more fitting to pray that the word of the Lord may speed ahead and be honored, the word of Yahweh (Jehovah) God (Father, Son and Holy Spirit), the word of God given through our Lord Jesus Christ who is God's Son, to bring people out of the world, out of darkness, and into Christ, into the light.
+    
+    > **[II Thessalonians 3:1-2](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A1-2&version=ESV)** - Finally, brothers, pray for us, that the word of the Lord may speed ahead and be honored, as happened among you, and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
     
     We are called to do good to all people, and to be kind and merciful even to those who are evil. But that doesn't mean we should yoke ourselves to them.
     We should just endeavour to be led by the Spirit, trusting God and His word from a love for the truth, and obeying God out of faith and obedience with a love for God and His Word, obedient and ready for every good work.
@@ -16647,7 +16661,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgfedefb1) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3194983) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -22375,7 +22389,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org2e2f227).
+I didn't know but it turned out to be the last day of my [sentence](#org7acd716).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -32045,6 +32059,16 @@ So if a pastor is lazy and isn't walking in the ways of the LORD and just gettin
     
     I hope that Jesus will be faithful to me and provide me with the testimony of Himself from Holy Spirit.
     And deliver me from this horrible situation.
+
+-   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-09-01 Tue 08:41&gt;</span></span>:** > **[Psalms 11:1-7](https://read.lsbible.org/?q=Psalm+14)** -
+    >     **1** In Yahweh I take refuge; How can you say to my soul, “Flee as a bird to your mountain;
+    >     **2** For, behold, the wicked bend the bow, They make ready their arrow upon the string To shoot in darkness at the upright in heart.
+    >     **3** If the foundations are destroyed, What can the righteous do?”
+    >     **4** Yahweh is in His holy temple; Yahweh’s throne is in heaven; His eyes behold, His eyelids test the sons of men.
+    >     **5** Yahweh tests the righteous, But the wicked and the one who loves violence His soul hates.
+    >     **6** May He rain snares upon the wicked; Fire and brimstone and burning wind will be the portion of their cup.
+    >     **7** For Yahweh is righteous, He loves righteousness; The upright will behold His face.
+    >     (LSB)
 
 Something I recall John Piper mentioning is that "AI does words better than us". But I want to mention this.
 Real speech comes from the heart, so AI can still be called a speechless idol, even if it produces the imitation of speech or writing:
@@ -46721,7 +46745,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgbfc73de)
+See: [33.4.1](#org5804e89)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -68185,7 +68209,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgbfc73de)
+See: [33.4.1](#org5804e89)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -70839,7 +70863,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org8f1d08c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org7e9a818) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -79057,7 +79081,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org8f1d08c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org7e9a818) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -80393,7 +80417,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org1a56443)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgedb4ede)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -83254,7 +83278,7 @@ and that is non-negotiable. So this is my current position on the issue:
 
 > **[Luke 14:26](https://www.biblegateway.com/passage/?search=Luke%2014%3A26&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
 
-I realies that it is possible for a person to be "both" a brother in the flesh and in the Lord, but I'm reserved about giving the noun "brother" to people unless I observe the testimony of Jesus Christ from them:
+I realise that it is possible for a person to be "both" a brother in the flesh and in the Lord, but I'm reserved about giving the noun "brother" to people unless I observe the testimony of Jesus Christ from them:
 
 > **[Philemon 1:15-16](https://www.biblegateway.com/passage/?search=Philemon%201%3A15-16&version=ESV)** - For this perhaps is why he was parted from you for a while, that you might have him back forever, no longer as a slave but more than a slave, as a beloved brother—especially to me, but how much more to you, both in the flesh and in the Lord. (ESV)
 
@@ -85120,6 +85144,16 @@ God is the Truth.
 
 The truth is reality [(G225 aletheia)](https://www.blueletterbible.org/lexicon/g225/kjv/tr/0-1/).
 I refuse to imbibe on this delusional AI chatbot theft rubbish.
+
+-   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-09-01 Tue 08:41&gt;</span></span>:** > **[Psalms 11:1-7](https://read.lsbible.org/?q=Psalm+14)** -
+    >     **1** In Yahweh I take refuge; How can you say to my soul, “Flee as a bird to your mountain;
+    >     **2** For, behold, the wicked bend the bow, They make ready their arrow upon the string To shoot in darkness at the upright in heart.
+    >     **3** If the foundations are destroyed, What can the righteous do?”
+    >     **4** Yahweh is in His holy temple; Yahweh’s throne is in heaven; His eyes behold, His eyelids test the sons of men.
+    >     **5** Yahweh tests the righteous, But the wicked and the one who loves violence His soul hates.
+    >     **6** May He rain snares upon the wicked; Fire and brimstone and burning wind will be the portion of their cup.
+    >     **7** For Yahweh is righteous, He loves righteousness; The upright will behold His face.
+    >     (LSB)
 
 I hope and pray that God cleans me up, delivers me from the evil, silences the demons and speaks to me clearly as a direct word with the testimony of Jesus Christ.
 
