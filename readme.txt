@@ -18528,7 +18528,7 @@ and put a stop to literally the list of things he's saying to put a stop to:
   face against that man; I will make him a sign and a byword and cut him off from the midst of my people, and you
   shall know that I am the LORD. (ESV)
 
-We need a righteousness sufficient to enter the kindom of heaven and we can have that righteousness by imputation
+We need a righteousness sufficient to enter the kingdom of heaven and we can have that righteousness by imputation
 through faith in the truth. We must abide in the teaching of Christ, though. We need to have faith in the real
 Jesus Christ:
 
@@ -96583,29 +96583,72 @@ correcting one another:
   to a knowledge of the truth, and they may escape from the snare of the devil, after being captured by him to do
   his will. (ESV)
 
-We have to receive the kingdom of God (follow Jesus, and Jesus will miraculously take us to God. Like Job, need to
-stop coveting idols such as money and put our trust in trust God, in Jesus, receive Jesus):
+Receiving Jesus involves believing who He is, that is the Christ, the Son of God who has come in His father's
+name. Jesus being the Son of God is both a righteous person and a prophet, and Jesus being the Christ, He is the
+Son of Man (*Matthew 26:2, Daniel 7:13*) and is God the Son of God, and is Yahweh (Jehovah) the Son of Yahweh
+(Jehovah):
 
-• Mark 10:14-31 - But when Jesus saw it, he was indignant and said to them, Let the children come to me; do not
-hinder them, for to such belongs the kingdom of God. Truly, I say to you, whoever does not receive the kingdom
-of God like a child shall not enter it. And he took them in his arms and blessed them, laying his hands on
-them. And as he was setting out on his journey, a man ran up and knelt before him and asked him, Good Teacher,
-what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good except
-God alone. You know the commandments: Do not murder, Do not commit adultery, Do not steal, Do not bear false
-witness, Do not defraud, Honor your father and mother. And he said to him, Teacher, all these I have kept from
-my youth. And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you
-have and give to the poor, and you will have treasure in heaven; and come, follow me. Disheartened by the
-saying, he went away sorrowful, for he had great possessions. And Jesus looked around and said to his
-disciples, How difficult it will be for those who have wealth to enter the kingdom of God! And the disciples
-were amazed at his words. But Jesus said to them again, Children, how difficult it is to enter the kingdom of
-God! It is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of
-God. And they were exceedingly astonished, and said to him, Then who can be saved? Jesus looked at them and
-said, With man it is impossible, but not with God. For all things are possible with God. Peter began to say to
-him, See, we have left everything and followed you. Jesus said, Truly, I say to you, there is no one who has
-left house or brothers or sisters or mother or father or children or lands, for my sake and for the gospel,
-who will not receive a hundredfold now in this time, houses and brothers and sisters and mothers and children
-and lands, with persecutions, and in the age to come eternal life. But many who are first will be last, and
-the last first. (ESV)
+  Matthew 10:40-41 - Whoever receives you receives me, and whoever receives me receives him who sent me. The one
+  who receives a prophet because he is a prophet will receive a prophet's reward, and the one who receives a
+  righteous person because he is a righteous person will receive a righteous person's reward. (ESV)
+
+Receiving the Kingdom of God involves recognising what the Kingdom of God even is including who it belongs to:
+
+  Acts 28:23-31 - When they had appointed a day for him, they came to him at his lodging in greater numbers. From
+  morning till evening he expounded to them, testifying to the kingdom of God and trying to convince them about
+  Jesus both from the Law of Moses and from the Prophets. And some were convinced by what he said, but others
+  disbelieved. And disagreeing among themselves, they departed after Paul had made one statement: The Holy Spirit
+  was right in saying to your fathers through Isaiah the prophet: Go to this people, and say, You will indeed hear
+  but never understand, and you will indeed see but never perceive. For this people's heart has grown dull, and
+  with their ears they can barely hear, and their eyes they have closed; lest they should see with their eyes and
+  hear with their ears and understand with their heart and turn, and I would heal them. Therefore let it be known
+  to you that this salvation of God has been sent to the Gentiles; they will listen. He lived there two whole
+  years at his own expense, and welcomed all who came to him, proclaiming the *kingdom of God and teaching about
+  the Lord Jesus Christ with all boldness and without hindrance*. (ESV)
+
+  Ephesians 5:1-5 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
+  gave himself up for us, a fragrant offering and sacrifice to God. But sexual immorality and all impurity or
+  covetousness must not even be named among you, as is proper among saints. Let there be no filthiness nor foolish
+  talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
+  this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
+  inheritance in the kingdom of Christ and God. (ESV)
+
+Receiving the Kingdom of God like a child involves, I think, becoming like a child of the Kingdom through faith in
+the word of God planted in good soil, and therefore treasuring the word of God, believing it, holding fast to the
+word of God:
+
+  Matthew 13:37-43 - He answered, The one who sows the good seed is the Son of Man. The field is the world, and
+  the good seed is the children of the kingdom. The weeds are the sons of the evil one, and the enemy who sowed
+  them is the devil. The harvest is the close of the age, and the reapers are angels. Just as the weeds are
+  gathered and burned with fire, so will it be at the close of the age. The Son of Man will send his angels, and
+  they will gather out of his kingdom all causes of sin and all law-breakers (G4160 poiountas 3588 tēn G458
+  anomian; practicing lawlessness), and throw them into the fiery furnace. In that place there will be weeping and
+  gnashing of teeth. Then the righteous will shine like the sun in the kingdom of their Father. He who has ears,
+  let him hear. (ESV)
+
+We have to receive the kingdom of God like a child (follow Jesus, and Jesus will miraculously take us to God. Like
+Job, need to stop coveting idols such as money and put our trust in trust God, in Jesus, receive Jesus):
+
+  Mark 10:14-31 - But when Jesus saw it, he was indignant and said to them, Let the children come to me; do not
+  hinder them, for to such belongs the kingdom of God. Truly, I say to you, whoever does not receive the kingdom
+  of God like a child shall not enter it. And he took them in his arms and blessed them, laying his hands on them.
+  And as he was setting out on his journey, a man ran up and knelt before him and asked him, Good Teacher, what
+  must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good except God
+  alone. You know the commandments: Do not murder, Do not commit adultery, Do not steal, Do not bear false
+  witness, Do not defraud, Honor your father and mother. And he said to him, Teacher, all these I have kept from
+  my youth. And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you have
+  and give to the poor, and you will have treasure in heaven; and come, follow me. Disheartened by the saying, he
+  went away sorrowful, for he had great possessions. And Jesus looked around and said to his disciples, How
+  difficult it will be for those who have wealth to enter the kingdom of God! And the disciples were amazed at his
+  words. But Jesus said to them again, Children, how difficult it is to enter the kingdom of God! It is easier for
+  a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. And they were
+  exceedingly astonished, and said to him, Then who can be saved? Jesus looked at them and said, With man it is
+  impossible, but not with God. For all things are possible with God. Peter began to say to him, See, we have left
+  everything and followed you. Jesus said, Truly, I say to you, there is no one who has left house or brothers or
+  sisters or mother or father or children or lands, for my sake and for the gospel, who will not receive a
+  hundredfold now in this time, houses and brothers and sisters and mothers and children and lands, with
+  persecutions, and in the age to come eternal life. But many who are first will be last, and the last first.
+  (ESV)
 
   John 8:12 - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in
   darkness, but will have the light of life. (ESV)
@@ -135260,11 +135303,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-01 Tue 08:40
+Date: 2026-09-02 Wed 11:19
 
 Author: Shane Mulligan
 
-Created: 2026-09-01 Tue 08:56
+Created: 2026-09-02 Wed 11:24
 
 Validate
 
