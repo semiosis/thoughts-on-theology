@@ -19,6 +19,8 @@ In trusting Jesus and His words, we are led by Him. And it's **very** important 
 
 > **[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)** - It is written in the Prophets, And they will all be taught by God. **Everyone who has heard and learned from the Father comes to me—** (ESV)
 
+> **[John 7:29](https://www.biblegateway.com/passage/?search=John%207%3A29&version=ESV)** - I know him, for I come from him, and he sent me. (ESV)
+
 > **[I John 4:6](https://www.biblegateway.com/passage/?search=1%20John%204%3A6&version=ESV)** - We are from God. **Whoever knows God listens to us;** whoever is not from God does not listen to us. By this we know the Spirit of truth and the spirit of error. (ESV)
 
 > **[I John 4:8](https://www.biblegateway.com/passage/?search=1%20John%204%3A8&version=ESV),19-21** - Anyone who does not love does not know God, because God is love. We love because he first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever loves God must also love his brother. (ESV)
@@ -793,7 +795,13 @@ A person who is "from God", who has received Jesus Christ, having received God's
 
 > **[John 3:34](https://www.biblegateway.com/passage/?search=John%203%3A34&version=ESV)** - For he whom God has sent utters the words of God, for he gives the Spirit without measure. (ESV)
 
+Being "from God", a person would have been "sent from God":
+
+> **[John 7:29](https://www.biblegateway.com/passage/?search=John%207%3A29&version=ESV)** - I know him, for I come from him, and he sent me. (ESV)
+
 > **[I John 4:6](https://www.biblegateway.com/passage/?search=1%20John%204%3A6&version=ESV)** - We are from God. Whoever knows God listens to us; whoever is not from God does not listen to us. By this we know the Spirit of truth and the spirit of error. (ESV)
+
+> **[John 13:20](https://www.biblegateway.com/passage/?search=John%2013%3A20&version=ESV)** - Truly, truly, I say to you, whoever receives the one I send receives me, and whoever receives me receives the one who sent me. (ESV)
 
 A person who is being taught by God, comes to Jesus (**[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)**).
 
@@ -11361,6 +11369,36 @@ Imitating Jesus Christ involves imitating His love for righteousness and hatred 
 
 > **[Matthew 23:28](https://www.biblegateway.com/passage/?search=Matthew%2023%3A28&version=ESV)** - So you also outwardly appear righteous to others, but within you are full of hypocrisy and lawlessness. (ESV)
 
+Jesus is our example. We can't replace Jesus Christ as the head of His church, though:
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Hebrews 13:7](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A7&version=ESV)** - Remember your leaders, those who spoke to you the word of God. Consider the outcome of their way of life, and imitate their faith. (ESV)
+
+> **[John 15:12-14](https://www.biblegateway.com/passage/?search=John%2015%3A12-14&version=ESV)** - This is my commandment, that you love one another as I have loved you. Greater love has no one than this, that someone lays down his life for his friends. You are my friends if you do what I command you. (ESV)
+
+> **[III John 1:11](https://www.biblegateway.com/passage/?search=3%20John%201%3A11&version=ESV)** - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
+
+> **[I Corinthians 4:16](https://www.biblegateway.com/passage/?search=1%20Corinthians%204%3A16&version=ESV)** - I urge you, then, be imitators of me. (ESV)
+
+> **[I Corinthians 11:1](https://www.biblegateway.com/passage/?search=1%20Corinthians%2011%3A1&version=ESV)** - Be imitators of me, as I am of Christ. (ESV)
+
+> **[Ephesians 5:1](https://www.biblegateway.com/passage/?search=Ephesians%205%3A1&version=ESV)** - Therefore be imitators of God, as beloved children. (ESV)
+
+> **[I Thessalonians 1:6](https://www.biblegateway.com/passage/?search=1%20Thessalonians%201%3A6&version=ESV)** - And you became imitators of us and of the Lord, for you received the word in much affliction, with the joy of the Holy Spirit, (ESV)
+
+> **[I Thessalonians 2:14](https://www.biblegateway.com/passage/?search=1%20Thessalonians%202%3A14&version=ESV)** - For you, brothers, became imitators of the churches of God in Christ Jesus that are in Judea. For you suffered the same things from your own countrymen as they did from the Jews, (ESV)
+
+> **[Hebrews 6:12](https://www.biblegateway.com/passage/?search=Hebrews%206%3A12&version=ESV)** - so that you may not be sluggish, but imitators of those who through faith and patience inherit the promises. (ESV)
+
+> **[Philippians 3:8-11](https://www.biblegateway.com/passage/?search=Philippians%203%3A8-11&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. (ESV)
+
+> **[John 8:12](https://www.biblegateway.com/passage/?search=John%208%3A12&version=ESV)** - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in darkness, but will have the light of life. (ESV)
+
+> **[I John 2:9](https://www.biblegateway.com/passage/?search=1%20John%202%3A9&version=ESV)** - Whoever says he is in the light and hates his brother is still in darkness. (ESV)
+
+> **[Hebrews 12:1-6](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-6&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, so that you may not grow weary or fainthearted. In your struggle against sin you have not yet resisted to the point of shedding your blood. And have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son whom he receives. (ESV)
+
 And as we endeavour to imitate Jesus Christ, we wait for Jesus who delivers us from the coming wrath that is going to come upon the sons of disobedience:
 
 > **[I Thessalonians 1:9-10](https://www.biblegateway.com/passage/?search=1%20Thessalonians%201%3A9-10&version=ESV)** - For they themselves report concerning us the kind of reception we had among you, and how you turned to God from idols to serve the living and true God, and to wait for his Son from heaven, whom he raised from the dead, Jesus who delivers us from the wrath to come. (ESV)
@@ -11368,13 +11406,45 @@ And as we endeavour to imitate Jesus Christ, we wait for Jesus who delivers us f
 > **[Ephesians 5:5-8](https://www.biblegateway.com/passage/?search=Ephesians%205%3A5-8&version=ESV)** - For you may be sure of this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children of light (ESV)
 
 When it comes to following the 10 commandments, we must be followers of them from the heart (the way Jesus commanded).
-The type of love we must have for one another  we must have  we have must involve agape love:
 
-> **[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)** - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. **Whoever keeps his commandments abides in him, and he in them**. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+Jesus Christ's Dad is God, not Joseph, but He kept the commandment to honor one's father and mother.
+Jesus Christ, Son of God, honored God who is His father and His mother who is of those who "hear the word of God and do it".
 
-> **[James 2:8-9](https://www.biblegateway.com/passage/?search=James%202%3A8-9&version=ESV)** - If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. But if you show partiality, you are committing sin and are convicted by the law as transgressors. (ESV)
+> **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
 
-> **[Romans 13:9](https://www.biblegateway.com/passage/?search=Romans%2013%3A9&version=ESV)** - The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as yourself. (ESV)
+So as a born-again Christian, the commandment to honor one's father and mother is applied in imitation of the same way that Jesus Christ applied it:
+
+> **[Matthew 23:8-11](https://www.biblegateway.com/passage/?search=Matthew%2023%3A8-11&version=ESV)** - But you are not to be called rabbi, for you have one teacher, and you are all brothers. And call no man your father on earth, for you have one Father, who is in heaven. Neither be called instructors, for you have one instructor (2519. kathégétés), the Christ. The greatest among you shall be your servant. (ESV)
+
+What about keeping the Sabbath? By the sounds of it, since the Sabbath was made "for man", we should be feel free to rest on the Sabbath.
+And we should not pervert the purpose of the Sabbath by turning the commandment into a heavy an unnecessary yoke that defeats the purpose of the Sabbath.
+And we should not cease to do good. A person is supposed to walk by faith and in love:
+
+> **[Mark 2:27](https://www.biblegateway.com/passage/?search=Mark%202%3A27&version=ESV)** - And he said to them, The Sabbath was made for man, not man for the Sabbath. (ESV)
+
+> **[Luke 6:9](https://www.biblegateway.com/passage/?search=Luke%206%3A9&version=ESV)** - And Jesus said to them, I ask you, is it lawful on the Sabbath to do good or to do harm, to save life or to destroy it? (ESV)
+
+We're not under law because Christ redeemed us from the curse of the law, but only if we are led by the Spirit:
+
+> **[Galatians 3:12-14](https://www.biblegateway.com/passage/?search=Galatians%203%3A12-14&version=ESV)** - But the law is not of faith, rather The one who does them shall live by them. Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might receive the promised Spirit through faith. (ESV)
+
+We've got to follow after Jesus, obediently, sure, having confidence by doing in reality from the heart, sure, but not relying on the external success (in our own eyes) of deeds for our own confidence:
+
+> **[Galatians 3:11-14](https://www.biblegateway.com/passage/?search=Galatians%203%3A11-14&version=ESV)** - Now it is evident that no one is justified before God by the law, for The righteous shall live by faith. But the law is not of faith, rather The one who does [(G4160 poiēsas; having done)](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/) them [(G846 auta; these things)](https://www.blueletterbible.org/lexicon/g846/kjv/tr/0-1/) shall live by them. Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might receive the promised Spirit through faith. (ESV)
+
+When a the righteous comes before the throne of Jesus Christ, they won't be self-commending, but rather Jesus will let them know when they such things for Him:
+
+> **[Matthew 25:44-45](https://www.biblegateway.com/passage/?search=Matthew%2025%3A44-45&version=ESV)** - Then they also will answer, saying, Lord, when did we see you hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to you? Then he will answer them, saying, Truly, I say to you, as you did not do it to one of the least of these, you did not do it to me. (ESV)
+
+Benig led by the Spirit, a person is not under the Law and sin has no dominion over them:
+
+> **[Galatians 5:13-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A13-18&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not under the law. (ESV)
+
+> **[Romans 6:14-18](https://www.biblegateway.com/passage/?search=Romans%206%3A14-18&version=ESV)** - For sin will have no dominion over you, since you are not under law but under grace. What then? Are we to sin because we are not under law but under grace? By no means! Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
+
+But rather, we are under grace (Jesus helps us as we by faith in Him do what He has commanded, and as we imitate [but not replace] His faith and love out of faith and obedience to Him and to God). We still are saved by faith and obedience to Jesus Christ Himself (rather than to simply the Law of God).
+
+> **[Hebrews 12:1-6](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-6&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, so that you may not grow weary or fainthearted. In your struggle against sin you have not yet resisted to the point of shedding your blood. And have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son whom he receives. (ESV)
 
 "The one having completed all of these external deeds will live" is probably an accurate way to understand "the one who does [(G4160 poiēsas; having done)](G4160) them shall live by them", as if there entire future is dependent on the completion of all of these external tasks. But in doing Christ's law of faith, we should be doing from the heart:
 
@@ -16661,7 +16731,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5c4c999) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgaf8fed9) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -17226,8 +17296,31 @@ But notice how the phrase "under law" is written differently for Romans 6:14-15 
     10  but  under grace
     11  Conj Prep  N-AFS
 
-And we're not under law because Christ redeemed us from the curse of the law.
-But rather, we are under grace (Jesus is helping us but we are abiding in Jesus' commandments).
+We're not under law because Christ redeemed us from the curse of the law, but only if we are led by the Spirit:
+
+> **[Galatians 3:12-14](https://www.biblegateway.com/passage/?search=Galatians%203%3A12-14&version=ESV)** - But the law is not of faith, rather The one who does them shall live by them. Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might receive the promised Spirit through faith. (ESV)
+
+We've got to follow after Jesus, obediently, sure, having confidence by doing in reality from the heart, sure, but not relying on the external success (in our own eyes) of deeds for our own confidence:
+
+> **[Galatians 3:11-14](https://www.biblegateway.com/passage/?search=Galatians%203%3A11-14&version=ESV)** - Now it is evident that no one is justified before God by the law, for The righteous shall live by faith. But the law is not of faith, rather The one who does [(G4160 poiēsas; having done)](https://www.blueletterbible.org/lexicon/g4160/kjv/tr/0-1/) them [(G846 auta; these things)](https://www.blueletterbible.org/lexicon/g846/kjv/tr/0-1/) shall live by them. Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is everyone who is hanged on a tree— so that in Christ Jesus the blessing of Abraham might come to the Gentiles, so that we might receive the promised Spirit through faith. (ESV)
+
+When a the righteous comes before the throne of Jesus Christ, they won't be self-commending, but rather Jesus will let them know when they such things for Him:
+
+> **[Matthew 25:44-45](https://www.biblegateway.com/passage/?search=Matthew%2025%3A44-45&version=ESV)** - Then they also will answer, saying, Lord, when did we see you hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to you? Then he will answer them, saying, Truly, I say to you, as you did not do it to one of the least of these, you did not do it to me. (ESV)
+
+Benig led by the Spirit, a person is not under the Law and sin has no dominion over them:
+
+> **[Galatians 5:13-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A13-18&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not under the law. (ESV)
+
+> **[Romans 6:14-18](https://www.biblegateway.com/passage/?search=Romans%206%3A14-18&version=ESV)** - For sin will have no dominion over you, since you are not under law but under grace. What then? Are we to sin because we are not under law but under grace? By no means! Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
+
+But rather than being "under law", we are under grace (Jesus helps us as we by faith in Him do what He has commanded, and as we imitate [but not replace] His faith and love out of faith and obedience to Him and to God). We still are saved by faith and obedience to Jesus Christ Himself (rather than to simply the Law of God):
+
+> **[Hebrews 12:1-6](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A1-6&version=ESV)** - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from sinners such hostility against himself, so that you may not grow weary or fainthearted. In your struggle against sin you have not yet resisted to the point of shedding your blood. And have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son whom he receives. (ESV)
+
+Though not "under law", we still need to be "law-abiding". And I believe that is to the law of faith in Christ Jesus. What is not done in faith is sin and sin is lawlessness. Having faith in Jesus Christ is being law-abiding:
+
+> **[Romans 3:27-31](https://www.biblegateway.com/passage/?search=Romans%203%3A27-31&version=ESV)** - Then what becomes of our boasting? It is excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God is one. **He will justify the circumcised by faith and the uncircumcised through faith.** Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 "The one having completed all of these external deeds will live" is probably an accurate way to understand "the one who does [(G4160 poiēsas; having done)](G4160) them shall live by them", as if there entire future is dependent on the completion of all of these external tasks:
 
@@ -17240,6 +17333,16 @@ Abiding by Christ's law (Christ's commandments), which is a law of faith (we're 
 > **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
 
 > **[John 1:17](https://www.biblegateway.com/passage/?search=John%201%3A17&version=ESV)** - For the law was given through Moses; grace and truth came through Jesus Christ. (ESV)
+
+We must love one-another as commanded to be "law-abiding". We can come to Jesus with baggage, with sin, but we can't come to Jesus by sinning:
+
+> **[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)** - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. **Whoever keeps his commandments abides in him, and he in them**. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+> **[James 2:8-9](https://www.biblegateway.com/passage/?search=James%202%3A8-9&version=ESV)** - If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. But if you show partiality, you are committing sin and are convicted by the law as transgressors. (ESV)
+
+> **[Romans 13:9](https://www.biblegateway.com/passage/?search=Romans%2013%3A9&version=ESV)** - The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as yourself. (ESV)
+
+> **[I John 4:7-21](https://www.biblegateway.com/passage/?search=1%20John%204%3A7-21&version=ESV)** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. Anyone who does not love does not know God, because God is love. In this the love of God was made manifest among us, that God sent his only Son into the world, so that we might live through him. In this is love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins. Beloved, if God so loved us, we also ought to love one another. No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. By this we know that we abide in him and he in us, because he has given us of his Spirit. And we have seen and testify that the Father has sent his Son to be the Savior of the world. Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. So we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God, and God abides in him. By this is love perfected with us, so that we may have confidence for the day of judgment, because as he is so also are we in this world. There is no fear in love, but perfect love casts out fear. For fear has to do with punishment, and whoever fears has not been perfected in love. We love because he first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever loves God **must** also love his brother. (ESV)
 
 When contrasting being "under law" to being "under grace", Paul is takling about people who "rely" on the "works" (the exterior stuff) of the law, the Mosaic Law (which came in after Abraham), who are under law. But the law of Christ which we are 'under' (abide in) **is** a different type of law, and the kind of law that it is is a law of faith. It's about the heart. And like Abraham, we should believe in, trust in, trust, agape love and obey Jesus. And just like Abraham's faith, our faith may be tested and a person may be justified by works, like Abraham's faith and that wasn't "works of the law of Moses" which came in later (to increase the trespass). But we don't "rely" on the justification by works of faith in Jesus, though that type of thing may happen.
 
@@ -22389,7 +22492,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org74483f8).
+I didn't know but it turned out to be the last day of my [sentence](#orga550060).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -46745,7 +46848,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org1f0267e)
+See: [33.4.1](#org0b4849b)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -68223,7 +68326,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org1f0267e)
+See: [33.4.1](#org0b4849b)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -70877,7 +70980,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orge9ec97d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org356fcaf) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -79095,7 +79198,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orge9ec97d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org356fcaf) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -80431,7 +80534,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgc18b642)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6ed10ff)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
