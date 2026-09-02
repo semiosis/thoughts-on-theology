@@ -282,6 +282,30 @@ When a person is forgiven, they are now someone who loves the truth, even the tr
 
 > **[Luke 7:40-50](https://www.biblegateway.com/passage/?search=Luke%207%3A40-50&version=ESV)** - And Jesus answering said to him, Simon, I have something to say to you. And he answered, Say it, Teacher. A certain moneylender had two debtors. One owed five hundred denarii, and the other fifty. When they could not pay, he cancelled the debt of both. Now which of them will love him more? Simon answered, The one, I suppose, for whom he cancelled the larger debt. And he said to him, You have judged rightly. Then turning toward the woman he said to Simon, Do you see this woman? I entered your house; you gave me no water for my feet, but she has wet my feet with her tears and wiped them with her hair. You gave me no kiss, but from the time I came in she has not ceased to kiss my feet. You did not anoint my head with oil, but she has anointed my feet with ointment. Therefore I tell you, her sins, which are many, are forgiven—for she loved much. But he who is forgiven little, loves little. And he said to her, Your sins are forgiven. Then those who were at table with him began to say among themselves, Who is this, who even forgives sins? And he said to the woman, Your faith has saved you; go in peace. (ESV)
 
+The Law points out sin, and for those who by walking by the flesh are "under the law", the law should convict them of sin:
+
+> **[Romans 7:7](https://www.biblegateway.com/passage/?search=Romans%207%3A7&version=ESV)** - What then shall we say? That the law is sin? By no means! Yet if it had not been for the law, I would not have known sin. I would not have known what it is to covet if the law had not said, You shall not covet. (ESV)
+
+> **[James 2:9](https://www.biblegateway.com/passage/?search=James%202%3A9&version=ESV)** - But if you show partiality, you are committing sin and are convicted by the law as transgressors. (ESV)
+
+Those who are "under the law" will be judged by the law, but there is no law against the fruit of the Spirit:
+
+> **[Romans 3:19](https://www.biblegateway.com/passage/?search=Romans%203%3A19&version=ESV)** - Now we know that whatever the law says it speaks to those who are under the law, so that every mouth may be stopped, and the whole world may be held accountable to God. (ESV)
+
+To be not "under the law" we need to be led by the Spirit. As we are having faith in Jesus, we should be producing the fruit of the Spirit (**[Romans 15:13](https://www.biblegateway.com/passage/?search=Romans%2015%3A13&version=ESV)**), and since there is no law against the fruit of the Spirit, that should protect us from from condemnation by the law.
+
+So it's faith in Jesus that produces the fruit of the Spirit which frees us from condemnation from the law:
+
+> **[Galatians 3:24](https://www.biblegateway.com/passage/?search=Galatians%203%3A24&version=ESV)** - So then, the law was our guardian until Christ came, in order that we might be justified by faith. (ESV)
+
+> **[Galatians 5:16-17](https://www.biblegateway.com/passage/?search=Galatians%205%3A16-17&version=ESV)** - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. (ESV)
+
+> **[Galatians 5:5-6](https://www.biblegateway.com/passage/?search=Galatians%205%3A5-6&version=ESV)** - For through the Spirit, by faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith working through love. (ESV)
+
+Even after we are born-again we must also walk by the spirit if we want to inherit the Kingdom of God:
+
+> **[Galatians 5:18-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A18-25&version=ESV)** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. And **those who belong to Christ Jesus have crucified the flesh with its passions and desires.** If we live by the Spirit, let us also walk by the Spirit. (ESV)
+
 To have the love of God completed in us we need to be those who love others as we have been loved by God, and God sends rain on both the just and the unjust. God is kind and merciful to the evil, so to have the love of God completed in us, also should we be kind and merciful to the evil. And we must love our family in Christ. To love God in a complete way involves not simply loving His word but loving His children. We should just do good to all as instructed:
 
 > **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
@@ -301,6 +325,10 @@ Loving our neighbour involves also loving those who hate us:
 > **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect [(G5046 teleioi; complete, mature)](G5046), as your heavenly Father is perfect. (ESV)
 
 > **[Luke 6:32-36](https://www.biblegateway.com/passage/?search=Luke%206%3A32-36&version=ESV)** - If you love those who love you, what benefit is that to you? For even sinners love those who love them. **And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same.** And if you lend to those from whom you expect to receive, what credit is that to you? **Even sinners lend to sinners, to get back the same amount.** But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be merciful, even as your Father is merciful. (ESV)
+
+The fruit of the Spirit is the fruit of believing:
+
+> **[Romans 15:13](https://www.biblegateway.com/passage/?search=Romans%2015%3A13&version=ESV)** - May the God of hope fill you with all joy and peace in believing, so that by the power of the Holy Spirit you may abound in hope. (ESV)
 
 If we are occupied with love towards God and our neighbour as commanded, by faith walking by the spirit, then we have fulfilled the commandment of righteousness and are not "under the law":
 
@@ -830,7 +858,12 @@ A person is born-again of the seed of the word of God, but the word is a seed un
 
 > **[I Peter 1:23](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A23&version=ESV)** - since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; (ESV)
 
-We need to be fruitful. The word of God planted in good soil grows up bears good fruit. The root matters. A person can't have genuine faith in Jesus and be committing sin at the same time (**[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**, **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)**, **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)**, **[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**, **[I Peter 4:1-5](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A1-5&version=ESV)**):
+We need to be fruitful. The word of God planted in good soil grows up bears good fruit.
+The fruit of the Spirit is the fruit of believing:
+
+> **[Romans 15:13](https://www.biblegateway.com/passage/?search=Romans%2015%3A13&version=ESV)** - May the God of hope fill you with all joy and peace in believing, so that by the power of the Holy Spirit you may abound in hope. (ESV)
+
+The root matters. A person can't have genuine faith in Jesus and be committing sin at the same time (**[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**, **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)**, **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)**, **[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**, **[I Peter 4:1-5](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A1-5&version=ESV)**):
 
 > **[Mark 4:14-20](https://www.biblegateway.com/passage/?search=Mark%204%3A14-20&version=ESV)** - The sower sows the word. And these are the ones along the path, where the word is sown: when they hear, Satan immediately comes and takes away the word that is sown in them. And these are the ones sown on rocky ground: the ones who, when they hear the word, immediately receive it with joy. **And they have no root in themselves, but endure for a while; then, when tribulation or persecution arises on account of the word, immediately they fall away.** And others are the ones sown among thorns. They are those who hear the word, but the cares of the world and the deceitfulness of riches and the desires for other things enter in and choke the word, and it proves unfruitful. But those that were sown on the good soil are the ones who hear the word and accept it and bear fruit, thirtyfold and sixtyfold and a hundredfold. (ESV)
 
@@ -847,6 +880,20 @@ We need to be fruitful. The word of God planted in good soil grows up bears good
 > **[Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah%2055%3A11&version=ESV)** - so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall accomplish that which I purpose, and shall succeed in the thing for which I sent it. (ESV)
 
 Jesus taught words from His Father, and so a person receiving Jesus and His words, or the words of God that have been spoken about Him, come to Jesus.
+
+We need to have the "love of God" in us:
+
+> **[John 5:37-42](https://www.biblegateway.com/passage/?search=John%205%3A37-42&version=ESV)** - And the Father who sent me has himself borne witness about me. His voice you have never heard, his form you have never seen, and you do not have his word abiding in you, for you do not believe the one whom he has sent. You search the Scriptures because you think that in them you have eternal life; and it is they that bear witness about me, yet you refuse to come to me that you may have life. I do not receive glory from people. But I know that you do not have the love of God within you. (ESV)
+
+It's not possible to come to Jesus by committing sin. We have to come to Jesus Christ is faith, and as it's by faith then it's not by committing sin. So we come to Jesus with sin, sure, but not by committing sin. It's not possible to believe unless drawn to Jesus by Father God but that isn't excuse not to "repent (change mind) and believe":
+
+> **[John 6:44-45](https://www.biblegateway.com/passage/?search=John%206%3A44-45&version=ESV),64-65** - No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— But there are some of you who do not believe. (For Jesus knew from the beginning who those were who did not believe, and who it was who would betray him.) And he said, This is why I told you that no one can come to me unless it is granted him by the Father. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+> **[I John 3:3-11](https://www.biblegateway.com/passage/?search=1%20John%203%3A3-11&version=ESV)** - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. (ESV)
+
+> **[Mark 1:14-15](https://www.biblegateway.com/passage/?search=Mark%201%3A14-15&version=ESV)** - Now after John was arrested, Jesus came into Galilee, proclaiming the gospel of God, and saying, The time is fulfilled, and the kingdom of God is at hand; repent and believe in the gospel. (ESV)
 
 We must have the love of God to receive Jesus. With the love of God in them, a person would love God's word and so they would love Jesus, and love Jesus' words:
 
@@ -4286,6 +4333,8 @@ This is what God's love looks like. So in imitating God's love, we should "do go
 
 > **[I Thessalonians 5:14-15](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A14-15&version=ESV)** - We urge you, brethren, admonish the unruly, encourage the fainthearted, help the weak, be patient with everyone. See that no one repays another with evil for evil, but always seek after that which is good for one another and for all people. (NASB)
 
+-   **Watch:** [youtube.com:  Christian Grandma Refuses to Back Down After Government Demands She Stop Feeding Community {@ CBNnewsonline }](https://www.youtube.com/watch?v=D9l8uFHJRj4)
+
 To bear with a person, hoping that they will repent, is not to "yoke" oneself to them.
 A Christian living "in the world" would live in obedience to Christ, with love for Christ,rather than with love for the world or for evil.
 
@@ -5765,6 +5814,7 @@ If there is a "3rd" birthday, then that would be the redemption of the body (**[
 
 -   First birthday: born of woman (Adamic flesh and spirit)
     -   **[Psalms 51:5](https://www.biblegateway.com/passage/?search=Psalms%2051%3A5&version=ESV)**
+    -   **[I Corinthians 11:11-12](https://www.biblegateway.com/passage/?search=1%20Corinthians%2011%3A11-12&version=ESV)**
 -   Second birthday: born of the spirt (new spirit, new creation)
     -   **[John 3:5-7](https://www.biblegateway.com/passage/?search=John%203%3A5-7&version=ESV)**
     -   **[II Corinthians 5:17](https://biblehub.com/interlinear/2_corinthians/5-17.htm)**
@@ -5777,6 +5827,8 @@ There is the part of the person that is sinful, that is the person born of woman
 > **[Psalms 51:5](https://www.biblegateway.com/passage/?search=Psalms%2051%3A5&version=ESV)** - Behold, I was brought forth in iniquity, and in sin did my mother conceive me. (ESV)
 
 > **[Romans 7:18](https://www.biblegateway.com/passage/?search=Romans%207%3A18&version=ESV)** - For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. (ESV)
+
+> **[I Corinthians 11:11-12](https://www.biblegateway.com/passage/?search=1%20Corinthians%2011%3A11-12&version=ESV)** - Nevertheless, in the Lord woman is not independent of man nor man of woman; for as woman was made from man, so man is now born of woman. And all things are from God. (ESV)
 
 Then there is the part of the person that is made right, that is the person born of God (from their 2nd birthday):
 
@@ -16731,7 +16783,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgaf8fed9) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org18db326) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -22492,7 +22544,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orga550060).
+I didn't know but it turned out to be the last day of my [sentence](#org3694cb9).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -46848,7 +46900,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org0b4849b)
+See: [33.4.1](#org68ee94f)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -68326,7 +68378,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org0b4849b)
+See: [33.4.1](#org68ee94f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -70980,7 +71032,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org356fcaf) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org50805bc) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -79198,7 +79250,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org356fcaf) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org50805bc) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -80534,7 +80586,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6ed10ff)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org79a4510)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

@@ -574,6 +574,48 @@ by God:
   began to say among themselves, Who is this, who even forgives sins? And he said to the woman, Your faith has
   saved you; go in peace. (ESV)
 
+The Law points out sin, and for those who by walking by the flesh are "under the law", the law should convict them
+of sin:
+
+  Romans 7:7 - What then shall we say? That the law is sin? By no means! Yet if it had not been for the law, I
+  would not have known sin. I would not have known what it is to covet if the law had not said, You shall not
+  covet. (ESV)
+
+  James 2:9 - But if you show partiality, you are committing sin and are convicted by the law as transgressors.
+  (ESV)
+
+Those who are "under the law" will be judged by the law, but there is no law against the fruit of the Spirit:
+
+  Romans 3:19 - Now we know that whatever the law says it speaks to those who are under the law, so that every
+  mouth may be stopped, and the whole world may be held accountable to God. (ESV)
+
+To be not "under the law" we need to be led by the Spirit. As we are having faith in Jesus, we should be producing
+the fruit of the Spirit (Romans 15:13), and since there is no law against the fruit of the Spirit, that should
+protect us from from condemnation by the law.
+
+So it's faith in Jesus that produces the fruit of the Spirit which frees us from condemnation from the law:
+
+  Galatians 3:24 - So then, the law was our guardian until Christ came, in order that we might be justified by
+  faith. (ESV)
+
+  Galatians 5:16-17 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the
+  desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are
+  opposed to each other, to keep you from doing the things you want to do. (ESV)
+
+  Galatians 5:5-6 - For through the Spirit, by faith, we ourselves eagerly wait for the hope of righteousness. For
+  in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith working through
+  love. (ESV)
+
+Even after we are born-again we must also walk by the spirit if we want to inherit the Kingdom of God:
+
+  Galatians 5:18-25 - But if you are led by the Spirit, you are not under the law. Now the works of the flesh are
+  evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger,
+  rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you
+  before, that those who do such things will not inherit the kingdom of God. But the fruit of the Spirit is love,
+  joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is
+  no law. And those who belong to Christ Jesus have crucified the flesh with its passions and desires. If we live
+  by the Spirit, let us also walk by the Spirit. (ESV)
+
 To have the love of God completed in us we need to be those who love others as we have been loved by God, and God
 sends rain on both the just and the unjust. God is kind and merciful to the evil, so to have the love of God
 completed in us, also should we be kind and merciful to the evil. And we must love our family in Christ. To love
@@ -616,6 +658,11 @@ Loving our neighbour involves also loving those who hate us:
   sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return,
   and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the
   evil. Be merciful, even as your Father is merciful. (ESV)
+
+The fruit of the Spirit is the fruit of believing:
+
+  Romans 15:13 - May the God of hope fill you with all joy and peace in believing, so that by the power of the
+  Holy Spirit you may abound in hope. (ESV)
 
 If we are occupied with love towards God and our neighbour as commanded, by faith walking by the spirit, then we
 have fulfilled the commandment of righteousness and are not "under the law":
@@ -1804,9 +1851,14 @@ that seed. So I guess that a person can be an "unborn" child of God until they g
   I Peter 1:23 - since you have been born again, not of perishable seed but of imperishable, through the living
   and abiding word of God; (ESV)
 
-We need to be fruitful. The word of God planted in good soil grows up bears good fruit. The root matters. A person
-can't have genuine faith in Jesus and be committing sin at the same time (Romans 14:23, Jeremiah 7:8-11, John
-10:1, I John 3:4, I Peter 4:1-5):
+We need to be fruitful. The word of God planted in good soil grows up bears good fruit. The fruit of the Spirit is
+the fruit of believing:
+
+  Romans 15:13 - May the God of hope fill you with all joy and peace in believing, so that by the power of the
+  Holy Spirit you may abound in hope. (ESV)
+
+The root matters. A person can't have genuine faith in Jesus and be committing sin at the same time (Romans 14:23,
+Jeremiah 7:8-11, John 10:1, I John 3:4, I Peter 4:1-5):
 
   Mark 4:14-20 - The sower sows the word. And these are the ones along the path, where the word is sown: when they
   hear, Satan immediately comes and takes away the word that is sown in them. And these are the ones sown on rocky
@@ -1855,6 +1907,42 @@ can't have genuine faith in Jesus and be committing sin at the same time (Romans
 
 Jesus taught words from His Father, and so a person receiving Jesus and His words, or the words of God that have
 been spoken about Him, come to Jesus.
+
+We need to have the "love of God" in us:
+
+  John 5:37-42 - And the Father who sent me has himself borne witness about me. His voice you have never heard,
+  his form you have never seen, and you do not have his word abiding in you, for you do not believe the one whom
+  he has sent. You search the Scriptures because you think that in them you have eternal life; and it is they that
+  bear witness about me, yet you refuse to come to me that you may have life. I do not receive glory from people.
+  But I know that you do not have the love of God within you. (ESV)
+
+It's not possible to come to Jesus by committing sin. We have to come to Jesus Christ is faith, and as it's by
+faith then it's not by committing sin. So we come to Jesus with sin, sure, but not by committing sin. It's not
+possible to believe unless drawn to Jesus by Father God but that isn't excuse not to "repent (change mind) and
+believe":
+
+  John 6:44-45,64-65 - No one can come to me unless the Father who sent me draws him. And I will raise him up on
+  the last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and
+  learned from the Father comes to me— But there are some of you who do not believe. (For Jesus knew from the
+  beginning who those were who did not believe, and who it was who would betray him.) And he said, This is why I
+  told you that no one can come to me unless it is granted him by the Father. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  I John 3:3-11 - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice
+  of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in
+  him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him
+  or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. (ESV)
+
+  Mark 1:14-15 - Now after John was arrested, Jesus came into Galilee, proclaiming the gospel of God, and saying,
+  The time is fulfilled, and the kingdom of God is at hand; repent and believe in the gospel. (ESV)
 
 We must have the love of God to receive Jesus. With the love of God in them, a person would love God's word and so
 they would love Jesus, and love Jesus' words:
@@ -8970,6 +9058,10 @@ discipline.
   be patient with everyone. See that no one repays another with evil for evil, but always seek after that which is
   good for one another and for all people. (NASB)
 
+Watch
+youtube.com: Christian Grandma Refuses to Back Down After Government Demands She Stop Feeding Community {@
+CBNnewsonline }
+
 To bear with a person, hoping that they will repent, is not to "yoke" oneself to them. A Christian living "in the
 world" would live in obedience to Christ, with love for Christ,rather than with love for the world or for evil.
 
@@ -11415,6 +11507,7 @@ If there is a "3rd" birthday, then that would be the redemption of the body (Rom
 
 • First birthday: born of woman (Adamic flesh and spirit)
 • Psalms 51:5
+• I Corinthians 11:11-12
 • Second birthday: born of the spirt (new spirit, new creation)
 • John 3:5-7
 • II Corinthians 5:17
@@ -11428,6 +11521,9 @@ There is the part of the person that is sinful, that is the person born of woman
 
   Romans 7:18 - For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what
   is right, but not the ability to carry it out. (ESV)
+
+  I Corinthians 11:11-12 - Nevertheless, in the Lord woman is not independent of man nor man of woman; for as
+  woman was made from man, so man is now born of woman. And all things are from God. (ESV)
 
 Then there is the part of the person that is made right, that is the person born of God (from their 2nd birthday):
 
@@ -135516,11 +135612,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-02 Wed 16:15
+Date: 2026-09-03 Thu 08:53
 
 Author: Shane Mulligan
 
-Created: 2026-09-02 Wed 16:20
+Created: 2026-09-03 Thu 08:57
 
 Validate
 
