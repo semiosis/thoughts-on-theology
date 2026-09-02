@@ -624,8 +624,8 @@ I Corinthians 11:32 (Interlinear)
 Being judged (G2919 krinomenoi) however by the Lord we are disciplined (G3811 paideuometha) that not with the
 world we should be condemned (G2632 katakrithōmen)
 
-So it's faith in Jesus that produces the fruit of the Spirit which frees us from sin and thus also from
-condemnation by the law:
+So it's faith in Jesus that produces the fruit of the Spirit which there is no law against. This faith frees us
+from committing sin and thus also from condemnation by the law:
 
   Galatians 3:24 - So then, the law was our guardian until Christ came, in order that we might be justified by
   faith. (ESV)
@@ -135654,7 +135654,7 @@ Date: 2026-09-03 Thu 08:53
 
 Author: Shane Mulligan
 
-Created: 2026-09-03 Thu 09:39
+Created: 2026-09-03 Thu 10:15
 
 Validate
 
