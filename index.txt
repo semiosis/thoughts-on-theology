@@ -574,8 +574,8 @@ by God:
   began to say among themselves, Who is this, who even forgives sins? And he said to the woman, Your faith has
   saved you; go in peace. (ESV)
 
-The Law points out sin, and for those who by walking by the flesh are "under the law", the law should convict them
-of sin:
+The Law points out sin, and for those who by walking by the flesh are "under the law" (Galatians 5:18), the law
+should convict them of sin:
 
   Romans 7:7 - What then shall we say? That the law is sin? By no means! Yet if it had not been for the law, I
   would not have known sin. I would not have known what it is to covet if the law had not said, You shall not
@@ -1847,7 +1847,15 @@ Being "from God", a person would have been "sent from God":
   John 13:20 - Truly, truly, I say to you, whoever receives the one I send receives me, and whoever receives me
   receives the one who sent me. (ESV)
 
+  John 3:34 - For he whom God has sent utters the words of God, for he gives the Spirit without measure. (ESV)
+
 A person who is being taught by God, comes to Jesus (John 6:45).
+
+Jesus Christ is our High Priest who we must come to:
+
+  Matthew 19:13-15 - Then children were brought to him that he might lay his hands on them and pray. The disciples
+  rebuked the people, but Jesus said, Let the little children come to me and do not hinder them, for to such
+  belongs the kingdom of heaven. And he laid his hands on them and went away. (ESV)
 
   Isaiah 53:6 - All we like sheep have gone astray; we have turned every one to his own way; and the LORD has laid
   on him the iniquity of us all. (ESV)
@@ -1856,10 +1864,11 @@ A person who is being taught by God, comes to Jesus (John 6:45).
   Psalm of David. The LORD has sworn and will not change his mind, You are a priest forever after the order of
   Melchizedek. (ESV)
 
-  John 3:34 - For he whom God has sent utters the words of God, for he gives the Spirit without measure. (ESV)
-
-  John 8:47 - Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of
-  God. (ESV)
+  Hebrews 4:14-16 - Since then we have a great high priest who has passed through the heavens, Jesus, the Son of
+  God, let us hold fast our confession. For we do not have a high priest who is unable to sympathize with our
+  weaknesses, but one who in every respect has been tempted as we are, yet without sin. Let us then with
+  confidence draw near to the throne of grace, that we may receive mercy and find grace to help in time of need.
+  (ESV)
 
 We need to love God's word to come to Jesus Christ the Son of God. We have faith in Jesus, learning from Him, to
 come to Him:
@@ -1876,6 +1885,12 @@ come to Him:
   things concerning himself. When he was at table with them, he took the bread and blessed and broke it and gave
   it to them. And their eyes were opened, and they recognized him. And he vanished from their sight. Then they
   told what had happened on the road, and how he was known to them in the breaking of the bread. (ESV)
+
+  I John 4:6 - We are from God. Whoever knows God listens to us; whoever is not from God does not listen to us. By
+  this we know the Spirit of truth and the spirit of error. (ESV)
+
+  John 8:47 - Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of
+  God. (ESV)
 
 They receive the seed of the word of God in them (Mark 4:14-20) which actually is the new person (I Peter
 1:22-25). That seed grows up (Matthew 13:37-42) and the person gets born again, born of the spirit.
@@ -135650,11 +135665,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-03 Thu 08:53
+Date: 2026-09-03 Thu 16:33
 
 Author: Shane Mulligan
 
-Created: 2026-09-03 Thu 10:15
+Created: 2026-09-03 Thu 16:39
 
 Validate
 
