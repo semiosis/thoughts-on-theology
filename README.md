@@ -288,13 +288,23 @@ The Law points out sin, and for those who by walking by the flesh are "under the
 
 > **[James 2:9](https://www.biblegateway.com/passage/?search=James%202%3A9&version=ESV)** - But if you show partiality, you are committing sin and are convicted by the law as transgressors. (ESV)
 
-Those who are "under the law" will be judged by the law, but there is no law against the fruit of the Spirit:
+Those who are "under the law" will be judged by the law, but there is no law against the fruit of the Spirit (**[Galatians 5:18-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A18-25&version=ESV)**):
 
 > **[Romans 3:19](https://www.biblegateway.com/passage/?search=Romans%203%3A19&version=ESV)** - Now we know that whatever the law says it speaks to those who are under the law, so that every mouth may be stopped, and the whole world may be held accountable to God. (ESV)
 
 To be not "under the law" we need to be led by the Spirit. As we are having faith in Jesus, we should be producing the fruit of the Spirit (**[Romans 15:13](https://www.biblegateway.com/passage/?search=Romans%2015%3A13&version=ESV)**), and since there is no law against the fruit of the Spirit (**[Galatians 5:22-23](https://www.biblegateway.com/passage/?search=Galatians%205%3A22-23&version=ESV)**), that should protect us from from condemnation by the law:
 
 > **[I John 3:3-11](https://www.biblegateway.com/passage/?search=1%20John%203%3A3-11&version=ESV)** - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. (ESV)
+
+God makes a believer born-again at some point as they are believing, and this is so that we can put to death the deeds of the flesh:
+
+> **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, and everyone who lives and believes in me shall never [(G3756 οὐ)](G3756) [(G3361 μή)](G3361) die. Do you believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
+
+> **[Ephesians 2:1-3](https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-3&version=ESV)** - And you were dead in the trespasses and sins in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind. (ESV)
+
+> **[Colossians 3:1-10](https://www.biblegateway.com/passage/?search=Colossians%203%3A1-10&version=ESV)** - If then you have been raised with Christ, seek the things that are above, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. **On account of these the wrath of God is coming.** In these you too once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge after the image of its creator. (ESV)
+
+> **[Romans 8:5-13](https://www.biblegateway.com/passage/?search=Romans%208%3A5-13&version=ESV)** - For those who live according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit set their minds on the things of the Spirit. To set the mind on the flesh is death, but to set the mind on the Spirit is life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot. Those who are in the flesh cannot please God. You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. But if Christ is in you, although the body is dead because of sin, the Spirit is life because of righteousness. If the Spirit of him who raised Jesus from the dead dwells in you, he who raised Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who dwells in you. So then, brothers, we are debtors, not to the flesh, to live according to the flesh. For if you live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will live. (ESV)
 
 God disciplines every son He receives:
 
@@ -318,7 +328,7 @@ Even after we are born-again we must also walk by the spirit if we want to inher
 
 > **[Galatians 5:18-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A18-25&version=ESV)** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. And **those who belong to Christ Jesus have crucified the flesh with its passions and desires.** If we live by the Spirit, let us also walk by the Spirit. (ESV)
 
-To have the love of God completed in us we need to be those who love others as we have been loved by God, and God sends rain on both the just and the unjust. God is kind and merciful to the evil, so to have the love of God completed in us, also should we be kind and merciful to the evil. And we must love our family in Christ. To love God in a complete way involves not simply loving His word but loving His children. We should just do good to all as instructed:
+To have the love of God completed in us we need to be those who love others as we have been loved by God, and God sends rain on both the just and the unjust. God is kind and merciful to the evil (**[Luke 6:32-36](https://www.biblegateway.com/passage/?search=Luke%206%3A32-36&version=ESV)**), so to have the love of God completed in us, also should we be kind and merciful to the evil. And we must love our family in Christ. To love God in a complete way involves not simply loving His word but loving His children. We should just do good to all as instructed:
 
 > **[I John 4:12](https://www.biblegateway.com/passage/?search=1%20John%204%3A12&version=ESV)** - No one has ever seen God; if we love one another, God abides in us and his love is perfected in us. (ESV)
 
@@ -11508,7 +11518,7 @@ When a the righteous comes before the throne of Jesus Christ, they won't be self
 
 > **[Matthew 25:44-45](https://www.biblegateway.com/passage/?search=Matthew%2025%3A44-45&version=ESV)** - Then they also will answer, saying, Lord, when did we see you hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to you? Then he will answer them, saying, Truly, I say to you, as you did not do it to one of the least of these, you did not do it to me. (ESV)
 
-Benig led by the Spirit, a person is not under the Law and sin has no dominion over them:
+Being led by the Spirit, a person is not under the Law and sin has no dominion over them:
 
 > **[Galatians 5:13-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A13-18&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not under the law. (ESV)
 
@@ -16803,7 +16813,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf5aa3e1) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org90fdecc) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -17380,7 +17390,7 @@ When a the righteous comes before the throne of Jesus Christ, they won't be self
 
 > **[Matthew 25:44-45](https://www.biblegateway.com/passage/?search=Matthew%2025%3A44-45&version=ESV)** - Then they also will answer, saying, Lord, when did we see you hungry or thirsty or a stranger or naked or sick or in prison, and did not minister to you? Then he will answer them, saying, Truly, I say to you, as you did not do it to one of the least of these, you did not do it to me. (ESV)
 
-Benig led by the Spirit, a person is not under the Law and sin has no dominion over them:
+Being led by the Spirit, a person is not under the Law and sin has no dominion over them:
 
 > **[Galatians 5:13-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A13-18&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not under the law. (ESV)
 
@@ -22564,7 +22574,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org5aaeb61).
+I didn't know but it turned out to be the last day of my [sentence](#orga473dc3).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -46920,7 +46930,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org9dd2d27)
+See: [33.4.1](#org2ccb26c)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -68398,7 +68408,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org9dd2d27)
+See: [33.4.1](#org2ccb26c)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -71052,7 +71062,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org4f419e2) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgd3e978d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -79270,7 +79280,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org4f419e2) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgd3e978d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -80606,7 +80616,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgc867228)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgc5b2d34)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

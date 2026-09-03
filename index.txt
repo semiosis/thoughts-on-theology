@@ -584,7 +584,8 @@ should convict them of sin:
   James 2:9 - But if you show partiality, you are committing sin and are convicted by the law as transgressors.
   (ESV)
 
-Those who are "under the law" will be judged by the law, but there is no law against the fruit of the Spirit:
+Those who are "under the law" will be judged by the law, but there is no law against the fruit of the Spirit
+(Galatians 5:18-25):
 
   Romans 3:19 - Now we know that whatever the law says it speaks to those who are under the law, so that every
   mouth may be stopped, and the whole world may be held accountable to God. (ESV)
@@ -603,6 +604,41 @@ the fruit of the Spirit (Romans 15:13), and since there is no law against the fr
   God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
   practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
   you have heard from the beginning, that we should love one another. (ESV)
+
+God makes a believer born-again at some point as they are believing, and this is so that we can put to death the
+deeds of the flesh:
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+  Ephesians 2:1-3 - And you were dead in the trespasses and sins in which you once walked, following the course of
+  this world, following the prince of the power of the air, the spirit that is now at work in the sons of
+  disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body
+  and the mind, and were by nature children of wrath, like the rest of mankind. (ESV)
+
+  Colossians 3:1-10 - If then you have been raised with Christ, seek the things that are above, where Christ is,
+  seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For
+  you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also
+  will appear with him in glory. Put to death therefore what is earthly in you: sexual immorality, impurity,
+  passion, evil desire, and covetousness, which is idolatry. On account of these the wrath of God is coming. In
+  these you too once walked, when you were living in them. But now you must put them all away: anger, wrath,
+  malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the
+  old self with its practices and have put on the new self, which is being renewed in knowledge after the image of
+  its creator. (ESV)
+
+  Romans 8:5-13 - For those who live according to the flesh set their minds on the things of the flesh, but those
+  who live according to the Spirit set their minds on the things of the Spirit. To set the mind on the flesh is
+  death, but to set the mind on the Spirit is life and peace. For the mind that is set on the flesh is hostile to
+  God, for it does not submit to God's law; indeed, it cannot. Those who are in the flesh cannot please God. You,
+  however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not
+  have the Spirit of Christ does not belong to him. But if Christ is in you, although the body is dead because of
+  sin, the Spirit is life because of righteousness. If the Spirit of him who raised Jesus from the dead dwells in
+  you, he who raised Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who
+  dwells in you. So then, brothers, we are debtors, not to the flesh, to live according to the flesh. For if you
+  live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will
+  live. (ESV)
 
 God disciplines every son He receives:
 
@@ -655,10 +691,10 @@ Even after we are born-again we must also walk by the spirit if we want to inher
   by the Spirit, let us also walk by the Spirit. (ESV)
 
 To have the love of God completed in us we need to be those who love others as we have been loved by God, and God
-sends rain on both the just and the unjust. God is kind and merciful to the evil, so to have the love of God
-completed in us, also should we be kind and merciful to the evil. And we must love our family in Christ. To love
-God in a complete way involves not simply loving His word but loving His children. We should just do good to all
-as instructed:
+sends rain on both the just and the unjust. God is kind and merciful to the evil (Luke 6:32-36), so to have the
+love of God completed in us, also should we be kind and merciful to the evil. And we must love our family in
+Christ. To love God in a complete way involves not simply loving His word but loving His children. We should just
+do good to all as instructed:
 
   I John 4:12 - No one has ever seen God; if we love one another, God abides in us and his love is perfected in
   us. (ESV)
@@ -22147,7 +22183,7 @@ let them know when they such things for Him:
   or naked or sick or in prison, and did not minister to you? Then he will answer them, saying, Truly, I say to
   you, as you did not do it to one of the least of these, you did not do it to me. (ESV)
 
-Benig led by the Spirit, a person is not under the Law and sin has no dominion over them:
+Being led by the Spirit, a person is not under the Law and sin has no dominion over them:
 
   Galatians 5:13-18 - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for
   the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your
@@ -31766,7 +31802,7 @@ let them know when they such things for Him:
   or naked or sick or in prison, and did not minister to you? Then he will answer them, saying, Truly, I say to
   you, as you did not do it to one of the least of these, you did not do it to me. (ESV)
 
-Benig led by the Spirit, a person is not under the Law and sin has no dominion over them:
+Being led by the Spirit, a person is not under the Law and sin has no dominion over them:
 
   Galatians 5:13-18 - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for
   the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your
@@ -135665,11 +135701,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-03 Thu 16:33
+Date: 2026-09-03 Thu 20:55
 
 Author: Shane Mulligan
 
-Created: 2026-09-03 Thu 16:39
+Created: 2026-09-03 Thu 21:23
 
 Validate
 
