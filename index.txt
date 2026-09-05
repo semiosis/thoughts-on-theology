@@ -12,6 +12,9 @@ Jesus Christ, please forgive me if I have spoken anything incorrectly and have m
   close watch on yourself and on the teaching. Persist in this, for by so doing you will save both yourself and
   your hearers. (ESV)
 
+  Luke 9:62 - Jesus said to him, No one who puts his hand to the plow and looks back is fit for the kingdom of
+  God. (ESV)
+
 In trusting Jesus and His words, we are led by Him. And it's very important that we are not led astray by a
 different voice, so we should be corrected and goaded and guided by Jesus. With soft hearts we should trust and
 obey Jesus' voice. He can see our hearts and knows who actually does follow Him. The knowing doesn't come first.
@@ -1643,8 +1646,9 @@ away from sin and has faith in Jesus will get born-again (Ezekiel 18:31, John 11
 
 When a person is "born-again", they are baptized into Jesus Christ's death, and so have died and been set free
 (aquitted) from sin, cleansed from former sin, and they are reborn, born of the Spirit. So all things have become
-new for them. But being born-again, we need to continue to do the will of God for us. We must continue abiding in
-Jesus Christ's commandments, in love for God and one's neighbour and practicing righteousness, not wickedness:
+new for them. But being born-again, we need to continue to do the will of God for us (I Thessalonians 5:18). We
+must continue abiding in Jesus Christ's commandments, in love for God and one's neighbour and practicing
+righteousness, not wickedness:
 
   Luke 3:16 - John answered them all, saying, I baptize you with water, but he who is mightier than I is coming,
   the strap of whose sandals I am not worthy to untie. He will baptize you with the Holy Spirit and with fire.
@@ -1656,6 +1660,9 @@ Jesus Christ's commandments, in love for God and one's neighbour and practicing 
   was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be
   enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe
   that we will also live with him. (ESV)
+
+  I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ Jesus for you.
+  (ESV)
 
 Polycarp 2:2
 Now He that raised Him from the dead will raise us also; if we do His will and walk in His commandments and love
@@ -2294,6 +2301,20 @@ Entering the Kingdom of God requires having faith in Jesus Christ, having stoppe
   righteousness than after knowing it to turn back from the holy commandment delivered to them. What the true
   proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns
   to wallow in the mire. (ESV)
+
+The requirement to "not be committing sin" in order to enter the Kingdom of God remains. But with God it is
+possible for a person who commits sin to "stop sinning and enter the Kingdom of God". A person must be
+"born-again" (i.e. have died to sin when baptised into Christ) and not be sinning to enter the Kingdom of God. And
+a born-again person can be someone who walks by faith without committing sin, and so enter the Kingdom of God:
+
+  Mark 10:21-27 - And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you
+  have and give to the poor, and you will have treasure in heaven; and come, follow me. Disheartened by the
+  saying, he went away sorrowful, for he had great possessions. And Jesus looked around and said to his disciples,
+  How difficult it will be for those who have wealth to enter the kingdom of God! And the disciples were amazed at
+  his words. But Jesus said to them again, Children, how difficult it is to enter the kingdom of God! It is easier
+  for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. And they were
+  exceedingly astonished, and said to him, Then who can be saved? Jesus looked at them and said, With man it is
+  impossible, but not with God. For all things are possible with God. (ESV)
 
 Journal <2026-08-30 Sun 14:50>
 
@@ -6346,6 +6367,326 @@ Christ who is the door.
   John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
   way, that man is a thief and a robber. (ESV)
 
+Entering and inheriting the Kingdom of God
+
+Those who have real faith practice righteousness:
+
+  Galatians 3:25-26 - But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are
+  all sons of God, through faith. (ESV)
+
+  I John 3:6-11 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or
+  known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. (ESV)
+
+To be "in Christ", a person needs to have the spirit of Jesus living inside of them through faith:
+
+  Colossians 1:27 - To them God chose to make known how great among the Gentiles are the riches of the glory of
+  this mystery, which is Christ in you, the hope of glory. (ESV)
+
+  Ephesians 3:14-19 - For this reason I bow my knees before the Father, from whom every family in heaven and on
+  earth is named, that according to the riches of his glory he may grant you to be strengthened with power through
+  his Spirit in your inner being, so that Christ may dwell in your hearts through faith — that you, being rooted
+  and grounded in love, may have strength to comprehend with all the saints what is the breadth and length and
+  height and depth, and to know the love of Christ that surpasses knowledge, that you may be filled with all the
+  fullness of God. (ESV)
+
+  Romans 8:6-11 - To set the mind on the flesh is death, but to set the mind on the Spirit is life and peace. For
+  the mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot.
+  Those who are in the flesh cannot please God. You, however, are not in the flesh but in the Spirit, if in fact
+  the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not belong to him. But if
+  Christ is in you, although the body is dead because of sin, the Spirit is life because of righteousness. If the
+  Spirit of him who raised Jesus from the dead dwells in you, he who raised Christ Jesus from the dead will also
+  give life to your mortal bodies through his Spirit who dwells in you. (ESV)
+
+To be "in Christ", a person needs to be keeping Jesus' commandments. And God gives them a new Spirit (i.e. they
+get born-again) that they might know that Jesus abides in them:
+
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+While they are "in Christ", a person gets born-again and has their heart of flesh circumcised to keep God's
+commandments so that they may live:
+
+  Colossians 2:11-12 - In him also you were circumcised with a circumcision made without hands, by putting off the
+  body of the flesh, by the circumcision of Christ, having been buried with him in baptism, in which you were also
+  raised with him through faith in the powerful working of God, who raised him from the dead. (ESV)
+
+  Deuteronomy 30:6 - And the LORD your God will circumcise your heart and the heart of your offspring, so that you
+  will love the LORD your God with all your heart and with all your soul, that you may live. (ESV)
+
+While "in Christ", a person stops committing sin. A person has to stop sinning in order to come to see or know
+Christ Jesus:
+
+  I John 3:6 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known
+  him. (ESV)
+
+  I John 3:3 - And everyone who thus hopes in him purifies himself as he is pure. (ESV)
+
+  Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
+  hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
+  blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
+
+I think that a person can be "in Christ" as a believer before having entered the Kingdom of God:
+
+  Acts 14:21-23 - When they had preached the gospel to that city and had made many disciples, they returned to
+  Lystra and to Iconium and to Antioch, strengthening the souls of the disciples, encouraging them to continue in
+  the faith, and saying that through many tribulations we must enter the kingdom of God. And when they had
+  appointed elders for them in every church, with prayer and fasting they committed them to the Lord in whom they
+  had believed. (ESV)
+
+  Romans 16:7-8 - Greet Andronicus and Junia, my kinsmen and my fellow prisoners. They are well known to the
+  apostles, and they were in Christ before me. Greet Ampliatus, my beloved in the Lord. (ESV)
+
+gotquestions.org when-was-Romans-written.html: When was Romans written ? | GotQuestions . org
+Details in the book of Acts provide insight into when Paul wrote Romans. Most scholars believe he composed the
+letter during his stay in Corinth, before he traveled to Jerusalem and eventually to Rome (cf. Acts 20:2–3). In
+Romans 15:23, Paul writes, “I have longed for many years to come to you,” indicating that he had not yet visited
+the city. His longing was finally fulfilled when he arrived in Rome as a prisoner, as described at the conclusion
+of Acts.
+
+And a person must remain "in Christ" as a believer:
+
+  John 15:1-2 - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear
+  fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. (ESV)
+
+  John 15:6 - If anyone does not abide in me he is thrown away like a branch and withers; and the branches are
+  gathered, thrown into the fire, and burned. (ESV)
+
+In Christ Jesus a person is not condemned, but is getting "cleaned up" through sanctifiction to "enter into the
+Kingdom of God". But we have to remain "in Christ Jesus", so must go on as believers:
+
+  Romans 8:1-2 - There is therefore now no condemnation for those who are in Christ Jesus. For the law of the
+  Spirit of life has set you free in Christ Jesus from the law of sin and death. (ESV)
+
+A person has to be abiding in Jesus' commandments, walking in the light, loving our family in Christ, in order to
+have sanctification (and be getting cleaned up):
+
+  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. (ESV)
+
+Someone holding faith in Jesus will eventually get born-again if they haven't already. Faith should be united with
+repentance (faith involves turning away from sin):
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+  Ezekiel 18:31-32 - Cast away from you all the transgressions that you have committed, and make yourselves a new
+  heart and a new spirit! Why will you die, O house of Israel? For I have no pleasure in the death of anyone,
+  declares the Lord GOD; so turn, and live. (ESV)
+
+  Acts 26:15-18 - And I said, Who are you, Lord? And the Lord said, I am Jesus whom you are persecuting. But rise
+  and stand upon your feet, for I have appeared to you for this purpose, to appoint you as a servant and witness
+  to the things in which you have seen me and to those in which I will appear to you, delivering you from your
+  people and from the Gentiles—to whom I am sending you to open their eyes, so that they may turn from darkness to
+  light and from the power of Satan to God, that they may receive forgiveness of sins and a place among those who
+  are sanctified by faith in me. (ESV)
+
+Getting born-again is not the only requirement to entering the Kingdom of God. We must also do the will of God
+even after being born-again:
+
+  Matthew 7:21 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does
+  the will of my Father who is in heaven. (ESV)
+
+  John 3:5 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
+  enter the kingdom of God. (ESV)
+
+Entering the Kingdom of God requires not committing sin from one's own judgement. So someone who believes that to
+eat pig is sin has to stop eating pig in order to enter the Kingdom of God:
+
+  Romans 14:12-23 - So then each of us will give an account of himself to God. Therefore let us not pass judgment
+  on one another any longer, but rather decide never to put a stumbling block or hindrance in the way of a
+  brother. I know and am persuaded in the Lord Jesus that nothing is unclean in itself, but it is unclean for
+  anyone who thinks it unclean. For if your brother is grieved by what you eat, you are no longer walking in love.
+  By what you eat, do not destroy the one for whom Christ died. So do not let what you regard as good be spoken of
+  as evil. For the kingdom of God is not a matter of eating and drinking but of righteousness and peace and joy in
+  the Holy Spirit. Whoever thus serves Christ is acceptable to God and approved by men. So then let us pursue what
+  makes for peace and for mutual upbuilding. Do not, for the sake of food, destroy the work of God. Everything is
+  indeed clean, but it is wrong for anyone to make another stumble by what he eats. It is good not to eat meat or
+  drink wine or do anything that causes your brother to stumble. The faith that you have, keep between yourself
+  and God. Blessed is the one who has no reason to pass judgment on himself for what he approves. But whoever has
+  doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith
+  is sin. (ESV)
+
+Entering the Kingdom of God requires not committing abomination including theft, murder, adultery, false-witness
+and idolatry. And the standard is from the heart, not merely the external actions:
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+  Matthew 5:20-32 - For I tell you, unless your righteousness exceeds that of the scribes and Pharisees, you will
+  never enter the kingdom of heaven. You have heard that it was said to those of old, You shall not murder; and
+  whoever murders will be liable to judgment. But I say to you that everyone who is angry with his brother will be
+  liable to judgment; whoever insults his brother will be liable to the council; and whoever says, You fool! will
+  be liable to the hell of fire. So if you are offering your gift at the altar and there remember that your
+  brother has something against you, leave your gift there before the altar and go. First be reconciled to your
+  brother, and then come and offer your gift. Come to terms quickly with your accuser while you are going with him
+  to court, lest your accuser hand you over to the judge, and the judge to the guard, and you be put in prison.
+  Truly, I say to you, you will never get out until you have paid the last penny. You have heard that it was said,
+  You shall not commit adultery. But I say to you that everyone who looks at a woman with lustful intent has
+  already committed adultery with her in his heart. If your right eye causes you to sin, tear it out and throw it
+  away. For it is better that you lose one of your members than that your whole body be thrown into hell. And if
+  your right hand causes you to sin, cut it off and throw it away. For it is better that you lose one of your
+  members than that your whole body go into hell. It was also said, Whoever divorces his wife, let him give her a
+  certificate of divorce. But I say to you that everyone who divorces his wife, except on the ground of sexual
+  immorality, makes her commit adultery. And whoever marries a divorced woman commits adultery. (ESV)
+
+Within the Kingdom of God, there is rank depending on the adherance to all of God's commandments:
+
+  Matthew 5:17-19 - Do not think that I have come to abolish the Law or the Prophets; I have not come to abolish
+  them but to fulfill them. For truly, I say to you, until heaven and earth pass away, not an iota, not a dot,
+  will pass from the Law until all is accomplished. Therefore whoever relaxes one of the least of these
+  commandments and teaches others to do the same will be called least in the kingdom of heaven, but whoever does
+  them and teaches them will be called great in the kingdom of heaven. (ESV)
+
+The good news is able to give an inheritance to those who are cleaned up (sanctified) by faith in Jesus Christ:
+
+  Acts 20:32 - And now I commend you to God and to the word of his grace, which is able to build you up and to
+  give you the inheritance among all those who are sanctified. (ESV)
+
+  Ephesians 5:2-6 - And walk in love, as Christ loved us and gave himself up for us, a fragrant offering and
+  sacrifice to God. But sexual immorality and all impurity or covetousness must not even be named among you, as is
+  proper among saints. Let there be no filthiness nor foolish talk nor crude joking, which are out of place, but
+  instead let there be thanksgiving. For you may be sure of this, that everyone who is sexually immoral or impure,
+  or who is covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one
+  deceive you with empty words, for because of these things the wrath of God comes upon the sons of disobedience.
+  (ESV)
+
+Inheriting the Kingdom of God depends also on being born-again:
+
+  Galatians 3:27 - For as many of you as were baptized into Christ have put on Christ. (ESV)
+
+  I Corinthians 15:50-56 - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor does
+  the perishable inherit the imperishable. Behold! I tell you a mystery. We shall not all sleep, but we shall all
+  be changed, in a moment, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, and the
+  dead will be raised imperishable, and we shall be changed. For this perishable body must put on the
+  imperishable, and this mortal body must put on immortality. When the perishable puts on the imperishable, and
+  the mortal puts on immortality, then shall come to pass the saying that is written: Death is swallowed up in
+  victory. O death, where is your victory? O death, where is your sting? The sting of death is sin, and the power
+  of sin is the law. (ESV)
+
+Inheriting the Kingdom of God also requires to not be practicing any such sexual immorality:
+
+  I Corinthians 6:9-20 - Do you not know that the unrighteous will not inherit the kingdom of God? Do not be
+  deceived: neither the sexually immoral, nor idolaters, nor adulterers, nor men who practice homosexuality, nor
+  thieves, nor the greedy, nor drunkards, nor revilers, nor swindlers will inherit the kingdom of God. And such
+  were some of you. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus
+  Christ and by the Spirit of our God. All things are lawful for me, but not all things are helpful. All things
+  are lawful for me, but I will not be enslaved by anything. Food is meant for the stomach and the stomach for
+  food—and God will destroy both one and the other. The body is not meant for sexual immorality, but for the Lord,
+  and the Lord for the body. And God raised the Lord and will also raise us up by his power. Do you not know that
+  your bodies are members of Christ? Shall I then take the members of Christ and make them members of a
+  prostitute? Never! Or do you not know that he who is joined to a prostitute becomes one body with her? For, as
+  it is written, The two will become one flesh. But he who is joined to the Lord becomes one spirit with him. Flee
+  from sexual immorality. Every other sin a person commits is outside the body, but the sexually immoral person
+  sins against his own body. Or do you not know that your body is a temple of the Holy Spirit within you, whom you
+  have from God? You are not your own, for you were bought with a price. So glorify God in your body. (ESV)
+
+  Leviticus 18:1-30 - And the LORD spoke to Moses, saying, Speak to the people of Israel and say to them, I am the
+  LORD your God. You shall not do as they do in the land of Egypt, where you lived, and you shall not do as they
+  do in the land of Canaan, to which I am bringing you. You shall not walk in their statutes. You shall follow my
+  rules and keep my statutes and walk in them. I am the LORD your God. You shall therefore keep my statutes and my
+  rules; if a person does them, he shall live by them: I am the LORD. None of you shall approach any one of his
+  close relatives to uncover nakedness. I am the LORD. You shall not uncover the nakedness of your father, which
+  is the nakedness of your mother; she is your mother, you shall not uncover her nakedness. You shall not uncover
+  the nakedness of your father's wife; it is your father's nakedness. You shall not uncover the nakedness of your
+  sister, your father's daughter or your mother's daughter, whether brought up in the family or in another home.
+  You shall not uncover the nakedness of your son's daughter or of your daughter's daughter, for their nakedness
+  is your own nakedness. You shall not uncover the nakedness of your father's wife's daughter, brought up in your
+  father's family, since she is your sister. You shall not uncover the nakedness of your father's sister; she is
+  your father's relative. You shall not uncover the nakedness of your mother's sister, for she is your mother's
+  relative. You shall not uncover the nakedness of your father's brother, that is, you shall not approach his
+  wife; she is your aunt. You shall not uncover the nakedness of your daughter-in-law; she is your son's wife, you
+  shall not uncover her nakedness. You shall not uncover the nakedness of your brother's wife; it is your
+  brother's nakedness. You shall not uncover the nakedness of a woman and of her daughter, and you shall not take
+  her son's daughter or her daughter's daughter to uncover her nakedness; they are relatives; it is depravity. And
+  you shall not take a woman as a rival wife to her sister, uncovering her nakedness while her sister is still
+  alive. You shall not approach a woman to uncover her nakedness while she is in her menstrual uncleanness. And
+  you shall not lie sexually with your neighbor's wife and so make yourself unclean with her. You shall not give
+  any of your children to offer them to Molech, and so profane the name of your God: I am the LORD. You shall not
+  lie with a male as with a woman; it is an abomination. And you shall not lie with any animal and so make
+  yourself unclean with it, neither shall any woman give herself to an animal to lie with it: it is perversion. Do
+  not make yourselves unclean by any of these things, for by all these the nations I am driving out before you
+  have become unclean, and the land became unclean, so that I punished its iniquity, and the land vomited out its
+  inhabitants. But you shall keep my statutes and my rules and do none of these abominations, either the native or
+  the stranger who sojourns among you (for the people of the land, who were before you, did all of these
+  abominations, so that the land became unclean), lest the land vomit you out when you make it unclean, as it
+  vomited out the nation that was before you. For everyone who does any of these abominations, the persons who do
+  them shall be cut off from among their people. So keep my charge never to practice any of these abominable
+  customs that were practiced before you, and never to make yourselves unclean by them: I am the LORD your God.
+  (ESV)
+
+So what do you think? Is there a difference between entering and inheriting the Kingdom of God? I think there is
+at least a varied inheritance that depends on sanctification.
+
+  II Corinthians 3:17-18 - Now the Lord is the Spirit, and where the Spirit of the Lord is, there is freedom. And
+  we all, with unveiled face, beholding the glory of the Lord, are being transformed into the same image from one
+  degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
+
+God is the righteous judge:
+
+  James 4:11-12 - Do not speak evil against one another, brothers. The one who speaks against a brother or judges
+  his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the
+  law but a judge. There is only one lawgiver and judge, he who is able to save and to destroy. But who are you to
+  judge your neighbor? (ESV)
+
+When God judges the world, the saints (Revelation of John 14:12) are involved. But surely they do not practice
+those sinful things that they do not approve of (Matthew 7:2, Romans 2:1-13, James 4:12), but they rather keep
+God's commandments for them (Revelation of John 14:12):
+
+enjoin
+Defintion: Giving an order or direction authoritatively and urgently and often with admonition or solicitude.
+
+Polycarp 11:2
+But he who cannot govern himself in these things, how doth he enjoin this upon another? If a man refrain not from
+covetousness, he shall be defiled by idolatry, and shall be judged as one of the Gentiles who know not the
+judgment of the Lord, Nay, know we not, that the saints shall judge the world, as Paul teacheth?
+
+Saints should not "directly" judge their neighbours (James 4:12). Admonishing and reproving your neigbour, calling
+out wickedness, we should do (Acts 8:22, Leviticus 19:17-18). It would be fine to say, I disapprove of this or
+that, and it's OK to affirm and even speak to others the truth of Scripture, for example that "all who are
+presently believing in Jesus Christ are presently not condemned and that all who are disbelieving in Jesus Christ
+are presently condemned", because it's the truth of Scripture, but it's not OK to turn to your neighbour and say
+with certainty to them that God has judged them because in the end it's God who judges, and also because in
+imitation of Christ who came to save the world, rather than judge, we should be speaking the truth of Scripture to
+others (warning people of coming judgement) but leaving that judgement to God. There's certainly an involvement
+from the saints, though when God does judge:
+
+It makes sense to not elect a known thief/adulterer/idolator/'sinner' for a position which involves taking care of
+people within Jesus' church. And so a person needs to be sanctified (cleaned up) in order to inherit the Kingdom
+of God.
+
+  II Timothy 2:21 - Therefore, if anyone cleanses himself from what is dishonorable, he will be a vessel for
+  honorable use, set apart as holy, useful to the master of the house, ready for every good work. (ESV)
+
+  I Timothy 3:1-13 - The saying is trustworthy: If anyone aspires to the office of overseer, he desires a noble
+  task. Therefore an overseer must be above reproach, the husband of one wife, sober-minded, self-controlled,
+  respectable, hospitable, able to teach, not a drunkard, not violent but gentle, not quarrelsome, not a lover of
+  money. He must manage his own household well, with all dignity keeping his children submissive, for if someone
+  does not know how to manage his own household, how will he care for God's church? He must not be a recent
+  convert, or he may become puffed up with conceit and fall into the condemnation of the devil. Moreover, he must
+  be well thought of by outsiders, so that he may not fall into disgrace, into a snare of the devil. Deacons
+  likewise must be dignified, not double-tongued, not addicted to much wine, not greedy for dishonest gain. They
+  must hold the mystery of the faith with a clear conscience. And let them also be tested first; then let them
+  serve as deacons if they prove themselves blameless. Their wives likewise must be dignified, not slanderers, but
+  sober-minded, faithful in all things. Let deacons each be the husband of one wife, managing their children and
+  their own households well. For those who serve well as deacons gain a good standing for themselves and also
+  great confidence in the faith that is in Christ Jesus. (ESV)
+
 Real faith still has the fear of God in it, so when a person comes to faith, they come to faith preferring God to
 evil. When a person comes to God in faith, they are, in having faith, by definition not committing sin from the
 love of evil, because they have faith (but God's the one who commends faith).
@@ -8750,21 +9091,21 @@ youtube.com: " Is It Biblical to Cut Off a Parent Who Won ' t Repent ?" {@ leave
 
 I commented:
 
-Being yoked primarily to Christ to follow Jesus primarily, we do the will of God for us, and we know that the will
-of God for is us our sanctification. But God not only has a will for us that is universal to all believers, but
-also He has a unique will for us individually. And being yoked to Christ means that Christ is our Master primarily
-rather than even one another. We have to be yoked to Christ first and foremost, even above religious leaders such
-as pastors. Obedience to other people must be "in the Lord" and "in the Lord" we abide in Christ's commandments.
-So even to one's previous father, or to their employer, or other earthly masters, the Christian's obedience has to
-be whilst abiding in Christ's teachings. For example, if one's previous father commanded, "Call me father." or if
-they, say, instructed you to "Abort your baby." when the disciple of Jesus is trying to obey Jesus Christ's
-commandment to call no man on earth father and to resist sin because to abort the baby would be sin, then, the
-disciple of Jesus is obligated to obey Jesus Christ rather than this person they previously called father, and to
-not abort the baby. Because the Christian's obedience must be "in the Lord" and thus ultimate duty is to Christ
-Himself rather than anyone else. We should just aim to follow Christ and that may lead us to do God's will for us
-individually but it's still in Christ. If there is a disagreement between two followers of Jesus, it may still be
-the case that both are "in Christ" but can't see the end of another's journey. But Jesus being Alpha and Omega can
-see the end of all of our journeys:
+Being yoked primarily to Christ to follow Jesus primarily, we do the will of God for us (I Thessalonians 5:18),
+and we know that the will of God for is us our sanctification. But God not only has a will for us that is
+universal to all believers, but also He has a unique will for us individually. And being yoked to Christ means
+that Christ is our Master primarily rather than even one another. We have to be yoked to Christ first and
+foremost, even above religious leaders such as pastors. Obedience to other people must be "in the Lord" and "in
+the Lord" we abide in Christ's commandments. So even to one's previous father, or to their employer, or other
+earthly masters, the Christian's obedience has to be whilst abiding in Christ's teachings. For example, if one's
+previous father commanded, "Call me father." or if they, say, instructed you to "Abort your baby." when the
+disciple of Jesus is trying to obey Jesus Christ's commandment to call no man on earth father and to resist sin
+because to abort the baby would be sin, then, the disciple of Jesus is obligated to obey Jesus Christ rather than
+this person they previously called father, and to not abort the baby. Because the Christian's obedience must be
+"in the Lord" and thus ultimate duty is to Christ Himself rather than anyone else. We should just aim to follow
+Christ and that may lead us to do God's will for us individually but it's still in Christ. If there is a
+disagreement between two followers of Jesus, it may still be the case that both are "in Christ" but can't see the
+end of another's journey. But Jesus being Alpha and Omega can see the end of all of our journeys:
 
   John 21:21-23 - When Peter saw him, he said to Jesus, Lord, what about this man? Jesus said to him, If it is my
   will that he remain until I come, what is that to you? You follow me! So the saying spread abroad among the
@@ -12078,6 +12419,9 @@ though I do see the name Yahweh (Jehovah/Yehovah) more as a surname for God rath
 On the topic of God's Proper Name, God being love, He can't simply have been only one Person and then at some
 stage created His Son, otherwise there would've been a point when God wasn't love. If God were only the Father
 then God wouldn't be love.
+
+  John 17:24 - Father, I desire that they also, whom you have given me, may be with me where I am, to see my glory
+  that you have given me because you loved me before the foundation of the world. (ESV)
 
 The "main" point of the "greater than"-ness, I believe is that it shows that Jesus Christ was "sent" by Father
 God:
@@ -26004,10 +26348,27 @@ another:
   overcome the world—our faith. (ESV)
 
 I also believe in the imputed righteousness which guarantees entry into God's Kingdom, and that is by being found
-in Christ. Being found in Christ qualifies entrance. So if we confess (G3670 homologeó) that Jesus is the Christ,
-the Son of God, God abides in us and us in God. I confess (G3670 homologeó) Jesus is the Christ, the Son of God
-and Jesus is Lord. I believe I have the right to call God my Father as someone who believes in Jesus Christ, Son
-of God. I believe God is my Father through Jesus and that Jesus is mediating this relationship for me.
+in Christ. Being found in Christ qualifies entrance, but not necessarily straight away. If a person dies while a
+genuine believer then they are guaranteed entrance into God's Kingdom:
+
+  Acts 14:21-23 - When they had preached the gospel to that city and had made many disciples, they returned to
+  Lystra and to Iconium and to Antioch, strengthening the souls of the disciples, encouraging them to continue in
+  the faith, and saying that through many tribulations we must enter the kingdom of God. And when they had
+  appointed elders for them in every church, with prayer and fasting they committed them to the Lord in whom they
+  had believed. (ESV)
+
+  Luke 23:40-43 - But the other answered, and rebuking him said, “Do you not even fear God, since you are under
+  the same sentence of condemnation? And we indeed are suffering justly, for we are receiving what we deserve for
+  our deeds; but this man has done nothing wrong.” And he was saying, “Jesus, remember me when You come in Your
+  kingdom!” And He said to him, “Truly I say to you, today you shall be with Me in Paradise.”
+
+  John 5:24 - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He
+  does not come into judgment, but has passed from death to life. (ESV)
+
+So if we confess (G3670 homologeó) that Jesus is the Christ, the Son of God, God abides in us and us in God. I
+confess (G3670 homologeó) Jesus is the Christ, the Son of God and Jesus is Lord. I believe I have the right to
+call God my Father as someone who believes in Jesus Christ, Son of God. I believe God is my Father through Jesus
+and that Jesus is mediating this relationship for me.
 
   Romans 8:14-23 - For all who are led by the Spirit of God are sons of God. For you did not receive the spirit of
   slavery to fall back into fear, but you have received the Spirit of adoption as sons, by whom we cry, Abba!
@@ -26805,7 +27166,8 @@ the Truth.
   with tax collectors and sinners? And Jesus answered them, Those who are well have no need of a physician, but
   those who are sick. I have not come to call the righteous but sinners to repentance. (ESV)
 
-This imputed righteousness enables us to be sanctified by faith in Jesus with his blood:
+This imputed righteousness enables us to be sanctified by faith in Jesus with his blood so that we can inherit in
+the Kingdom of God:
 
   John 1:11-13 - He came to his own, and his own people did not receive him. But to all who did receive him, who
   believed in his name, he gave the right to become children of God, who were born, not of blood nor of the will
@@ -44066,6 +44428,173 @@ Baptism saves:
 I believe that baptism also refers to being baptised into Jesus' death, spiritually, not merely the water baptism
 ritual.
 
+youtube.com: Poll from Ready to Harvest
+
+Poll:
+
+While Scripture teaches that all children born into this world are by nature sinful and unclean, God has provided
+a way (through Holy Baptism) for children to be cleansed from sin and forgiven." What do you think of this
+statement?
+
+1K votes:
+
+• Agree strongly
+• Agree more than disagree
+• Disagree more than agree
+• Disagree strongly
+
+I commented,
+
+@ShaneMulligan-n7h 10 minutes ago (edited) My thoughts.
+
+Water baptism saves as an appeal for a good conscience through the resurrection of Jesus Christ (i.e. to be
+born-again of the Spirit). Water baptism isn't the same thing as being born-again of the Spirit, but is an appeal
+to God to be born-again of the Spirit through the death and resurrection of Jesus Christ.
+
+  I Peter 3:21 - Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as
+  an appeal to God for a good conscience, through the resurrection of Jesus Christ, (ESV)
+
+  Colossians 2:11-12 - In him also you were circumcised with a circumcision made without hands, by putting off the
+  body of the flesh, by the circumcision of Christ, having been buried with him in baptism, in which you were also
+  raised with him through faith in the powerful working of God, who raised him from the dead. (ESV)
+
+Jesus here is saying that whoever is believing in Him, though they die will live (i.e. a believer dies and is
+raised from the dead). A person can be born-again, born of the Spirit while still in the flesh that is born of
+woman. But then they await to receive their resurrection flesh which comes after the old flesh dies, or when they
+are raptured.
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never die. Do you believe this? She said to
+  him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
+
+So what's crucial, I think, is that a person is baptised into Christ's death (i.e. born-again of the Spirit).
+
+When the word "believes" is used in an English translation of the New Testament, I think the true meaning is
+often, "is believing" (G4100 pisteuōn; a present belief, a present holding of faith), rather than "believed" (past
+tense). Annoyingly, in modern English, the phrase "whoever believes" could be read as "whoever believed" where it
+really means "whoever is believing". So it's important to look at the Greek to see the tense of the word to get to
+the meaning of the Scripture.
+
+So whoever is believing in Jesus will get born-again. Faith needs to continue.
+
+Jesus called the Jews here who had believed in him that they were not believers, but rather children of the devil.
+So a person needs to continue in faith.
+
+  John 8:31-47 - So Jesus said to the Jews who had believed (G4100 pepisteukotas: having believed 'V-RPA-AMP past
+  tense') in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth
+  will set you free. They answered him, We are offspring of Abraham and have never been enslaved to anyone. How is
+  it that you say, You will become free? Jesus answered them, Truly, truly, I say to you, everyone who commits sin
+  is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets
+  you free, you will be free indeed. I know that you are offspring of Abraham; yet you seek to kill me because my
+  word finds no place in you. I speak of what I have seen with my Father, and you do what you have heard from your
+  father. They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would
+  be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God.
+  This is not what Abraham did. You are doing what your father did. They said to him, We were not born of sexual
+  immorality. We have one Father—even God. Jesus said to them, If God were your Father, you would love me, for I
+  came from God and I am here. I came not of my own accord, but he sent me. Why do you not understand what I say?
+  It is because you cannot bear to hear my word. You are of your father the devil, and your will is to do your
+  father's desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is
+  no truth in him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. But
+  because I tell the truth, you do not believe me. Which one of you convicts me of sin? If I tell the truth, why
+  do you not believe me? Whoever is of God hears the words of God. The reason why you do not hear them is that you
+  are not of God. (ESV)
+
+My attempt to reconcile Mark 16:16 with Acts 8:13-23 is that a person who "has" believed and been baptised will be
+saved, but if they disbelieve (i.e. Mark 16:16 also speaks of disbelieving) then they will be condemned.
+
+I think that a person should be saved if they have believed and have been baptised but must continue on in faith
+and not "disbelieve":
+
+  Mark 16:16 (Interlinear) - He who having believed (G4100 pisteusas) and having been baptized (G907 baptistheis)
+  will be saved (G4982 sōthēsetai) the [one] however having disbelieved (G569 apistēsas) will be condemned (G2632
+  katakrithēsetai)
+
+  Mark 16:16 - Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
+  (ESV)
+
+Having believed at some point and getting baptised at some point isn't enough if a person then "disbelieves", I
+think:
+
+  Acts 8:13-23 - Even Simon himself believed, and after being baptized he continued with Philip. And seeing signs
+  and great miracles performed, he was amazed. Now when the apostles at Jerusalem heard that Samaria had received
+  the word of God, they sent to them Peter and John, who came down and prayed for them that they might receive the
+  Holy Spirit, for he had not yet fallen on any of them, but they had only been baptized in the name of the Lord
+  Jesus. Then they laid their hands on them and they received the Holy Spirit. Now when Simon saw that the Spirit
+  was given through the laying on of the apostles' hands, he offered them money, saying, Give me this power also,
+  so that anyone on whom I lay my hands may receive the Holy Spirit. But Peter said to him, May your silver perish
+  with you, because you thought you could obtain the gift of God with money! You have neither part nor lot in this
+  matter, for your heart is not right before God. Repent, therefore, of this wickedness of yours, and pray to the
+  Lord that, if possible, the intent of your heart may be forgiven you. For I see that you are in the gall of
+  bitterness and in the bond of iniquity. (ESV)
+
+A person also needs to continue in faith rather than be committing sin:
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+  John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
+  way, that man is a thief and a robber. (ESV)
+
+  Psalms 101:7 - He who practices deceit shall not dwell within my house; He who speaks falsehood shall not
+  maintain his position before me. (NASB)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  I John 3:6-18 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or
+  known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. We should not be like Cain, who was of the
+  evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's
+  righteous. Do not be surprised, brothers, that the world hates you. We know that we have passed out of death
+  into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother
+  is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid
+  down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods
+  and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little
+  children, let us not love in word or talk but in deed and in truth. (ESV)
+
+  Isaiah 48:22 - There is no peace, says the LORD, for the wicked. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  I John 5:18 - We know that whosoever is born of God sinneth not; but he that is begotten of God keepeth himself,
+  and that wicked one toucheth him not. (KJV)
+
+@ShaneMulligan-n7h 0 seconds ago To answer OP question:
+
+The baptism that sets free from sin is being baptised into Jesus Christ's death (i.e. getting born-again). Water
+baptism is an appeal for that.
+
+When a person is born-again through Christ's death and resurrection they are set free (acquitted) from sin. Born
+again means receiving a brand new heart of flesh (a soft heart, responsive to correction from God), and a new
+spirit, and so they are a new person. And through faith in Jesus Christ they should call upon God the father of
+Jesus Christ as their father:
+
+  Romans 6:3-8 - Do you not know that all of us who have been baptized into Christ Jesus were baptized into his
+  death? We were buried therefore with him by baptism into death, in order that, just as Christ was raised from
+  the dead by the glory of the Father, we too might walk in newness of life. For if we have been united with him
+  in a death like his, we shall certainly be united with him in a resurrection like his. We know that our old self
+  was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be
+  enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe
+  that we will also live with him. (ESV)
+
+And from there after getting born-again with the new heart of flesh, God writes His laws on the heart to walk in
+His rules, and that is the circumcision of the heart, and a person needs the brand new heart for that. A heart of
+stone can't be circumcised. And it is so that we will love God with our whole heart and live. And for example,
+honoring one's mother (of their family in Christ) and father (God). The true circumcision, as I hope I understand
+it correctly.
+
 newadvent.org: CHURCH FATHERS: The First Apology {St. Justin Martyr}
 I will also relate the manner in which we dedicated ourselves to God when we had been made new through Christ;
 lest, if we omit this, we seem to be unfair in the explanation we are making. As many as are persuaded and believe
@@ -48111,10 +48640,10 @@ religious kindness and deeds and prayers and candles to get them out of there an
 I think much closer to this way as John Barnett explains the protestant view, but I have a little bit different
 understanding regarding glorification because I think that glorification (doing the works of glory) happens while
 we are on earth and carrying out good works which have been set up for us, and done in Christ (I Peter 3:14-16) in
-obedience to Christ while holding faith in Christ / done in the will of God for us. Our work may burn up when they
-are tested by fire but we are still saved. That burning up of work I think definitely applies to work which me
-might do, say, in say, preaching the gospel, for example, as people often preach false doctrine, and I think that
-work burns up.
+obedience to Christ while holding faith in Christ / done in the will of God for us (I Thessalonians 5:18). Our
+work may burn up when they are tested by fire but we are still saved. That burning up of work I think definitely
+applies to work which me might do, say, in say, preaching the gospel, for example, as people often preach false
+doctrine, and I think that work burns up.
 
 God will uproot false teaching. I pray that if my Bible study writeup is not good in God's sight that He would
 uproot it. But I'm not trying to start a church or anything, and don't consider myself to be inerrant. I'm simply
@@ -50816,7 +51345,7 @@ And following Jesus' commandments we will love one another:
 
 3.25. Assurance of salvation
 
-For full assurance, do all the will of God for you.
+For full assurance, do all the will of God for you (I Thessalonians 5:18).
 
 The will of God:
 
@@ -89797,6 +90326,20 @@ convinced in that time of our unworthiness of attaining life through our own wor
 kindness of God, be vouchsafed to us; and having made it manifest that in ourselves we were unable to enter into
 the kingdom of God, we might through the power of God be made able.
 
+The requirement to "not be committing sin" in order to enter the Kingdom of God remains. But with God it is
+possible for a person who commits sin to "stop sinning and enter the Kingdom of God". A person must be
+"born-again" (i.e. have died to sin when baptised into Christ) and not be sinning to enter the Kingdom of God. And
+a born-again person can be someone who walks by faith without committing sin, and so enter the Kingdom of God:
+
+  Mark 10:21-27 - And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you
+  have and give to the poor, and you will have treasure in heaven; and come, follow me. Disheartened by the
+  saying, he went away sorrowful, for he had great possessions. And Jesus looked around and said to his disciples,
+  How difficult it will be for those who have wealth to enter the kingdom of God! And the disciples were amazed at
+  his words. But Jesus said to them again, Children, how difficult it is to enter the kingdom of God! It is easier
+  for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. And they were
+  exceedingly astonished, and said to him, Then who can be saved? Jesus looked at them and said, With man it is
+  impossible, but not with God. For all things are possible with God. (ESV)
+
 We seek the kingdom of God and His righteousness, trusting God, trusting Jesus, remaining faithful to Jesus as we
 keep His commandments, not trusting in the worldly stuff, but trusting Jesus:
 
@@ -104396,10 +104939,27 @@ practices, will not inherit the kingdom of God:
 What about entering?
 
 I also believe in the imputed righteousness which guarantees entry into God's Kingdom, and that is by being found
-in Christ. Being found in Christ qualifies entrance. So if we confess (G3670 homologeó) that Jesus is the Christ,
-the Son of God, God abides in us and us in God. I confess (G3670 homologeó) Jesus is the Christ, the Son of God
-and Jesus is Lord. I believe I have the right to call God my Father as someone who believes in Jesus Christ, Son
-of God. I believe God is my Father through Jesus and that Jesus is mediating this relationship for me.
+in Christ. Being found in Christ qualifies entrance, but not necessarily straight away. If a person dies while a
+genuine believer then they are guaranteed entrance into God's Kingdom:
+
+  Acts 14:21-23 - When they had preached the gospel to that city and had made many disciples, they returned to
+  Lystra and to Iconium and to Antioch, strengthening the souls of the disciples, encouraging them to continue in
+  the faith, and saying that through many tribulations we must enter the kingdom of God. And when they had
+  appointed elders for them in every church, with prayer and fasting they committed them to the Lord in whom they
+  had believed. (ESV)
+
+  Luke 23:40-43 - But the other answered, and rebuking him said, “Do you not even fear God, since you are under
+  the same sentence of condemnation? And we indeed are suffering justly, for we are receiving what we deserve for
+  our deeds; but this man has done nothing wrong.” And he was saying, “Jesus, remember me when You come in Your
+  kingdom!” And He said to him, “Truly I say to you, today you shall be with Me in Paradise.”
+
+  John 5:24 - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He
+  does not come into judgment, but has passed from death to life. (ESV)
+
+So if we confess (G3670 homologeó) that Jesus is the Christ, the Son of God, God abides in us and us in God. I
+confess (G3670 homologeó) Jesus is the Christ, the Son of God and Jesus is Lord. I believe I have the right to
+call God my Father as someone who believes in Jesus Christ, Son of God. I believe God is my Father through Jesus
+and that Jesus is mediating this relationship for me.
 
   Romans 8:14-23 - For all who are led by the Spirit of God are sons of God. For you did not receive the spirit of
   slavery to fall back into fear, but you have received the Spirit of adoption as sons, by whom we cry, Abba!
@@ -118040,7 +118600,7 @@ mind of Christ through obedience to Christ
 For the weapons of our warfare are not of the flesh but have divine power to destroy strongholds. We
 destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought
 captive to obey Christ, being ready to punish every disobedience, when your obedience is complete. (ESV)
-• Be fully assured in al the will of God. Do all the will of God for us
+• Be fully assured in al the will of God. Do all the will of God for us (I Thessalonians 5:18)
 • Colossians 4:12 - Epaphras, who is one of you, a servant of Christ Jesus, greets you, always struggling
 on your behalf in his prayers, that you may stand mature and fully assured in all the will of God. (ESV)
 • Bring holiness to completion - be on that path of killing sin
@@ -135701,11 +136261,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-03 Thu 20:55
+Date: 2026-09-05 Sat 18:20
 
 Author: Shane Mulligan
 
-Created: 2026-09-03 Thu 21:23
+Created: 2026-09-05 Sat 18:31
 
 Validate
 
