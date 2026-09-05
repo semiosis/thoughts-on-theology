@@ -1178,8 +1178,14 @@ Whoever is presently learning from Jesus (i.e. so being sanctified, corrected by
   of eternal life, and we have believed, and have come to know, that you are the Holy One of God. (ESV)
 
 Someone who is enslaved to sinful desires can't stay forever in house, and if someone commits sin then they become
-enslaved to that sin. There is an expectation to be cleaned up to no longer practice sin through faith in Jesus if
-someone wants to inherit in the Kingdom of God:
+enslaved to that sin. There is an expectation to be cleaned up through faith in Jesus to no longer practice sin if
+someone wants to inherit in the Kingdom of God. To inherit the Kingdom of God, a person must be cleaned up to no
+longer practice ungodliness. Where some English translation of Ephesians 5 use the word "associate", I think it
+should more accurately say "be partakers", as the KJV says. So if we want to be partakers in the divine nature (II
+Peter 1:4) rather than be partakers of the wrath of God, then we need to be conformed to no longer be doing those
+things which the sons of disobedience do, because due to such ungodliness they receive the wrath of God. But God
+saves a person who is hoping in Jesus Christ through faith and sanctification so that they no longer do such
+things for which the wrath of God comes:
 
   John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
   sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
@@ -1187,15 +1193,60 @@ someone wants to inherit in the Kingdom of God:
   am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
   will never see death. (ESV)
 
-  Ephesians 5:1-10 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
+  Ephesians 5:1-21 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
   gave himself up for us, a fragrant offering and sacrifice to God. But sexual immorality and all impurity or
   covetousness must not even be named among you, as is proper among saints. Let there be no filthiness nor foolish
   talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
   this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
   inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these
-  things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them; for at one
-  time you were darkness, but now you are light in the Lord. Walk as children of light (for the fruit of light is
-  found in all that is good and right and true), and try to discern what is pleasing to the Lord. (ESV)
+  things the wrath of God comes upon the sons of disobedience. Therefore do not associate (G1096 ginesthe; be)
+  (G4830 symmetochoi; partakers) with them; for at one time you were darkness, but now you are light in the Lord.
+  Walk as children of light (for the fruit of light is found in all that is good and right and true), and try to
+  discern what is pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them.
+  For it is shameful even to speak of the things that they do in secret. But when anything is exposed by the
+  light, it becomes visible, for anything that becomes visible is light. Therefore it says, Awake, O sleeper, and
+  arise from the dead, and Christ will shine on you. Look carefully then how you walk, not as unwise but as wise,
+  making the best use of the time, because the days are evil. Therefore do not be foolish, but understand what the
+  will of the Lord is. And do not get drunk with wine, for that is debauchery, but be filled with the Spirit,
+  addressing one another in psalms and hymns and spiritual songs, singing and making melody to the Lord with all
+  your heart, giving thanks always and for everything to God the Father in the name of our Lord Jesus Christ,
+  submitting to one another out of reverence for Christ. (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
+
+  I John 3:3 - And everyone who thus hopes in him purifies himself as he is pure. (ESV)
+
+  I Thessalonians 5:8-10 - But since we belong to the day, let us be sober, having put on the breastplate of faith
+  and love, and for a helmet the hope of salvation. For God has not destined us for wrath, but to obtain salvation
+  through our Lord Jesus Christ, who died for us so that whether we are awake or asleep we might live with him.
+  (ESV)
+
+  Galatians 5:19-25 - Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry,
+  sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies,
+  and things like these. I warn you, as I warned you before, that those who do such things will not inherit the
+  kingdom of God. But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness,
+  gentleness, self-control; against such things there is no law. And those who belong to Christ Jesus have
+  crucified the flesh with its passions and desires. If we live by the Spirit, let us also walk by the Spirit.
+  (ESV)
+
+  I Thessalonians 4:1-12 - Finally, then, brothers, we ask and urge you in the Lord Jesus, that as you received
+  from us how you ought to live and to please God, just as you are doing, that you do so more and more. For you
+  know what instructions we gave you through the Lord Jesus. For this is the will of God, your sanctification:
+  that you abstain from sexual immorality; that each one of you know how to control his own body in holiness and
+  honor, not in the passion of lust like the Gentiles who do not know God; that no one transgress and wrong his
+  brother in this matter, because the Lord is an avenger in all these things, as we told you beforehand and
+  solemnly warned you. For God has not called us for impurity, but in holiness. Therefore whoever disregards this,
+  disregards not man but God, who gives his Holy Spirit to you. Now concerning brotherly love you have no need for
+  anyone to write to you, for you yourselves have been taught by God to love one another, for that indeed is what
+  you are doing to all the brothers throughout Macedonia. But we urge you, brothers, to do this more and more, and
+  to aspire to live quietly, and to mind your own affairs, and to work with your hands, as we instructed you, so
+  that you may live properly before outsiders and be dependent on no one. (ESV)
+
+  Galatians 2:20 - I have been crucified with Christ. It is no longer I who live, but Christ who lives in me. And
+  the life I now live in the flesh I live by faith in the Son of God, who loved me and gave himself for me. (ESV)
+
+  Galatians 5:24 - And those who belong to Christ Jesus have crucified the flesh with its passions and desires.
+  (ESV)
 
 The promises are to those who love God, so we have to love God rather than sin:
 
@@ -1380,9 +1431,12 @@ Kingdom of God as we behold the glory of the Lord Jesus:
   talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
   this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
   inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these
-  things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them; for at one
-  time you were darkness, but now you are light in the Lord. Walk as children of light (for the fruit of light is
-  found in all that is good and right and true), and try to discern what is pleasing to the Lord. (ESV)
+  things the wrath of God comes upon the sons of disobedience. Therefore do not associate (G1096 ginesthe; be)
+  (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness, but now you are light in the Lord.
+  Walk as children of light (for the fruit of light is found in all that is good and right and true), and try to
+  discern what is pleasing to the Lord. (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   II Corinthians 3:18 - And we all, with unveiled face, beholding the glory of the Lord, are being transformed
   into the same image from one degree of glory to another. For this comes from the Lord who is the Spirit. (ESV)
@@ -7969,8 +8023,10 @@ heart:
   Ephesians 5:5-8 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   I John 2:3-6 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
   know him but does not keep his commandments is a liar, and the truth is not in him, but whoever keeps his word,
@@ -8404,8 +8460,10 @@ against us:
   Ephesians 5:5-8 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   I Thessalonians 5:8-10 - But since we belong to the day, let us be sober, having put on the breastplate of faith
   and love, and for a helmet the hope of salvation. For God has not destined us for wrath, but to obtain salvation
@@ -20684,8 +20742,10 @@ Yahweh) is shared by the persons of the Godhead. Father, Son and Holy Spirit are
   Ephesians 5:5-8 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   Acts 2:36 - Let all the house of Israel therefore know for certain that God has made him both Lord and Christ,
   this Jesus whom you crucified. (ESV)
@@ -22400,8 +22460,10 @@ heart:
   Ephesians 5:5-8 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   I John 2:3-6 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
   know him but does not keep his commandments is a liar, and the truth is not in him, but whoever keeps his word,
@@ -22476,8 +22538,10 @@ to come upon the sons of disobedience:
   Ephesians 5:5-8 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 When it comes to following the 10 commandments, we must be followers of them from the heart (the way Jesus
 commanded).
@@ -27993,10 +28057,13 @@ to God:
   Ephesians 5:5-12 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (for the fruit of light is found in all that is good and right and true), and try to discern what is
-  pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them. For it is
-  shameful even to speak of the things that they do in secret. (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (for the fruit of light is found in all that is
+  good and right and true), and try to discern what is pleasing to the Lord. Take no part in the unfruitful works
+  of darkness, but instead expose them. For it is shameful even to speak of the things that they do in secret.
+  (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
   And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
@@ -30435,7 +30502,9 @@ the living God and getting cleaned up through sanctification is necessary.
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them;
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them;
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   Romans 6:12-13 - Therefore do not let sin reign in your mortal body so that you obey its lusts, and do not go on
   presenting the members of your body to sin as instruments of unrighteousness; but present yourselves to God as
@@ -35331,9 +35400,12 @@ We are sanctified by, agree with and speak the truth:
   Ephesians 5:5-11 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (for the fruit of light is found in all that is good and right and true), and try to discern what is
-  pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them. (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (for the fruit of light is found in all that is
+  good and right and true), and try to discern what is pleasing to the Lord. Take no part in the unfruitful works
+  of darkness, but instead expose them. (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 We must have faith in God and not be rebellious, but we must be trusting obedient to God and it is God who works
 and does miracles through us. For example, God did amazing works amongst the Israelites as they were liberated
@@ -40994,8 +41066,10 @@ It's important to go on faithful to God after getting born-again:
   Ephesians 5:5-8 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 Journal <2026-05-10 Sun 11:14>
 
@@ -46754,7 +46828,9 @@ Jesus helps us to stop practicing sinful things:
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them;
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them;
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   Ephesians 2:3 - among whom we all once lived in the passions of our flesh, carrying out the desires of the body
   and the mind, and were by nature children of wrath, like the rest of mankind. (ESV)
@@ -46900,9 +46976,11 @@ Being saved by Him I think involves us becoming obedient, and faithfully obeying
   Ephesians 5:5-10 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (for the fruit of light is found in all that is good and right and true), and try to discern what is
-  pleasing to the Lord.
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (for the fruit of light is found in all that is
+  good and right and true), and try to discern what is pleasing to the Lord.
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 Eternal life is in Jesus:
 
@@ -52278,10 +52356,13 @@ Now we must put to death what is earthly in us:
   Ephesians 5:5-12 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (for the fruit of light is found in all that is good and right and true), and try to discern what is
-  pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them. For it is
-  shameful even to speak of the things that they do in secret. (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (for the fruit of light is found in all that is
+  good and right and true), and try to discern what is pleasing to the Lord. Take no part in the unfruitful works
+  of darkness, but instead expose them. For it is shameful even to speak of the things that they do in secret.
+  (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 4.2.3. God's kindness is meant to lead us to repentance from sin
 
@@ -54642,10 +54723,13 @@ the disobedient.
   talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
   this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
   inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these
-  things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them; for at one
-  time you were darkness, but now you are light in the Lord. Walk as children of light (for the fruit of light is
-  found in all that is good and right and true), and try to discern what is pleasing to the Lord. Take no part in
-  the unfruitful works of darkness, but instead expose them. (ESV)
+  things the wrath of God comes upon the sons of disobedience. Therefore do not associate (G1096 ginesthe; be)
+  (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness, but now you are light in the Lord.
+  Walk as children of light (for the fruit of light is found in all that is good and right and true), and try to
+  discern what is pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them.
+  (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 4.4. God endured the cross that we can carry our crosses without getting weary or fainthearted
 
@@ -54944,6 +55028,10 @@ God can give eternal life. Jesus can give eternal life. Jesus is God, the Son of
 
   Romans 9:5 - To them belong the patriarchs, and from their race, according to the flesh, is the Christ who is
   God over all, blessed forever. Amen. (ESV)
+
+  Psalms 49:7-9,15 - Truly no man can ransom another, or give to God the price of his life, for the ransom of
+  their life is costly and can never suffice, that he should live on forever and never see the pit. But God will
+  ransom my soul from the power of Sheol, for he will receive me. Selah (ESV)
 
 Jesus must be God because the Scripture says that salvation for man is impossible for man without God, and Jesus
 Christ is our Saviour. "God through Jesus Christ":
@@ -64310,7 +64398,11 @@ darkness:
   John 3:19 - And this is the judgment: the light has come into the world, and people loved the darkness rather
   than the light because their deeds were evil.
 
-Jesus is God's Son. Jesus is the Lamb of God.
+Jesus is God's Son. Jesus is the Lamb of God. Jesus is God the Son of God.
+
+  Psalms 49:7-9,15 - Truly no man can ransom another, or give to God the price of his life, for the ransom of
+  their life is costly and can never suffice, that he should live on forever and never see the pit. But God will
+  ransom my soul from the power of Sheol, for he will receive me. Selah (ESV)
 
 We must receive the redemption that is in Christ Jesus through faith:
 
@@ -66937,6 +67029,10 @@ Also, I have had as of 28 May '24 in my dreams:
 • A picture of "Jehovah 🌹" - Jehovah's name with a rose by it, and
 • A distinctly male voice which said, "Jesus is God"
 
+  Psalms 49:7-9,15 - Truly no man can ransom another, or give to God the price of his life, for the ransom of
+  their life is costly and can never suffice, that he should live on forever and never see the pit. But God will
+  ransom my soul from the power of Sheol, for he will receive me. Selah (ESV)
+
 star.net.nz: The Word for Today - The right balance - May 28th
 
 Interesting. It's not exactly what I'm still having faith for, but Jesus is indeed God the Son, and Jehovah is God
@@ -68092,7 +68188,9 @@ etc.
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them;
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them;
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 6.2.16. If we trust in the name of the Son of God, Jesus Christ, we have eternal life
 
@@ -68927,7 +69025,9 @@ much he will spare us nothing to to get out of us what he hates, namely sin.
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them;
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them;
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   John 3:36 - Whoever believes (G4100 pisteuo) in the Son has eternal life; whoever does not obey the Son shall
   not see life, but the wrath of God remains on him. (ESV)
@@ -70036,7 +70136,9 @@ greater or lesser degree.
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them;
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them;
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 6.7.1. All sin is lawlessness
 
@@ -70809,8 +70911,10 @@ There is certainly wrath to come for those who reject Jesus Christ:
   Ephesians 5:5-8 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 But we should seriously avoid saying "You fool" anyway because we may have a "log in our own eye", and God takes
 this very seriously:
@@ -72644,7 +72748,9 @@ The wrath of God comes upon the sons of disobedience:
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them;
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them;
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 That means that justifying faith involves obeying Jesus:
 
@@ -74141,7 +74247,9 @@ Doing the will of God from the heart means obedience, and integrity and seeking 
   Ephesians 5:5-7 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them;
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them;
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 12.3. Get to know Jesus by following His commandments
 
@@ -84007,9 +84115,11 @@ through Him who loved us:
   Ephesians 5:5-10 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (for the fruit of light is found in all that is good and right and true), and try to discern what is
-  pleasing to the Lord.
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (for the fruit of light is found in all that is
+  good and right and true), and try to discern what is pleasing to the Lord.
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 19.12.2. Illegitimate children are left without discipline and are not sons
 
@@ -85000,9 +85110,11 @@ doing the will of God!
   Ephesians 5:5-10 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (for the fruit of light is found in all that is good and right and true), and try to discern what is
-  pleasing to the Lord. (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (for the fruit of light is found in all that is
+  good and right and true), and try to discern what is pleasing to the Lord. (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 We must live in the spirit the way God does, not for human passions, but for the will of God:
 
@@ -86034,6 +86146,10 @@ Jesus is the Son of God. Father God is also God:
   beginning with God. All things were made through him, and without him was not any thing made that was made. In
   him was life, and the life was the light of men. The light shines in the darkness, and the darkness has not
   overcome it. (ESV)
+
+  Psalms 49:7-9,15 - Truly no man can ransom another, or give to God the price of his life, for the ransom of
+  their life is costly and can never suffice, that he should live on forever and never see the pit. But God will
+  ransom my soul from the power of Sheol, for he will receive me. Selah (ESV)
 
 Holy Spirit is God. Not merely an active force:
 
@@ -99105,14 +99221,17 @@ Walking in the light is walking righteously, in love and holiness and truth:
   talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
   this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
   inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these
-  things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them; for at one
-  time you were darkness, but now you are light in the Lord. Walk as children of light (for the fruit of light is
-  found in all that is good and right and true), and try to discern what is pleasing to the Lord. Take no part in
-  the unfruitful works of darkness, but instead expose them. For it is shameful even to speak of the things that
-  they do in secret. But when anything is exposed by the light, it becomes visible, for anything that becomes
-  visible is light. Therefore it says, Awake, O sleeper, and arise from the dead, and Christ will shine on you.
-  Look carefully then how you walk, not as unwise but as wise, making the best use of the time, because the days
-  are evil. Therefore do not be foolish, but understand what the will of the Lord is. (ESV)
+  things the wrath of God comes upon the sons of disobedience. Therefore do not associate (G1096 ginesthe; be)
+  (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness, but now you are light in the Lord.
+  Walk as children of light (for the fruit of light is found in all that is good and right and true), and try to
+  discern what is pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them.
+  For it is shameful even to speak of the things that they do in secret. But when anything is exposed by the
+  light, it becomes visible, for anything that becomes visible is light. Therefore it says, Awake, O sleeper, and
+  arise from the dead, and Christ will shine on you. Look carefully then how you walk, not as unwise but as wise,
+  making the best use of the time, because the days are evil. Therefore do not be foolish, but understand what the
+  will of the Lord is. (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 If someone walks in the day with the light in them, they will not stumble. With the light in them, they should not
 be concerned about such worries. They should put confidence in the light.
@@ -109303,14 +109422,17 @@ Walking in the light is walking righteously, in love and holiness and truth:
   talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
   this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
   inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these
-  things the wrath of God comes upon the sons of disobedience. Therefore do not associate with them; for at one
-  time you were darkness, but now you are light in the Lord. Walk as children of light (for the fruit of light is
-  found in all that is good and right and true), and try to discern what is pleasing to the Lord. Take no part in
-  the unfruitful works of darkness, but instead expose them. For it is shameful even to speak of the things that
-  they do in secret. But when anything is exposed by the light, it becomes visible, for anything that becomes
-  visible is light. Therefore it says, Awake, O sleeper, and arise from the dead, and Christ will shine on you.
-  Look carefully then how you walk, not as unwise but as wise, making the best use of the time, because the days
-  are evil. Therefore do not be foolish, but understand what the will of the Lord is. (ESV)
+  things the wrath of God comes upon the sons of disobedience. Therefore do not associate (G1096 ginesthe; be)
+  (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness, but now you are light in the Lord.
+  Walk as children of light (for the fruit of light is found in all that is good and right and true), and try to
+  discern what is pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them.
+  For it is shameful even to speak of the things that they do in secret. But when anything is exposed by the
+  light, it becomes visible, for anything that becomes visible is light. Therefore it says, Awake, O sleeper, and
+  arise from the dead, and Christ will shine on you. Look carefully then how you walk, not as unwise but as wise,
+  making the best use of the time, because the days are evil. Therefore do not be foolish, but understand what the
+  will of the Lord is. (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
 We are the light of the world. Yes, we must do good:
 
@@ -119976,10 +120098,13 @@ We want to walk in a way that is pleasing to God:
   Ephesians 5:5-12 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (for the fruit of light is found in all that is good and right and true), and try to discern what is
-  pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them. For it is
-  shameful even to speak of the things that they do in secret. (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (for the fruit of light is found in all that is
+  good and right and true), and try to discern what is pleasing to the Lord. Take no part in the unfruitful works
+  of darkness, but instead expose them. For it is shameful even to speak of the things that they do in secret.
+  (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   Colossians 1:9-10 - And so, from the day we heard, we have not ceased to pray for you, asking that you may be
   filled with the knowledge of his will in all spiritual wisdom and understanding, so as to walk in a manner
@@ -120006,14 +120131,16 @@ Putting on the Lord Jesus Christ certainly involves putting on love:
 Being light in the Lord Jesus, and everything being plainly exposed, we should put a stop to the deeds of
 darkness. Salvation is nearer to us now than when we first believed:
 
-  Ephesians 5:7-17 - Therefore do not associate with them; for at one time you were darkness, but now you are
-  light in the Lord. Walk as children of light (for the fruit of light is found in all that is good and right and
-  true), and try to discern what is pleasing to the Lord. Take no part in the unfruitful works of darkness, but
-  instead expose them. For it is shameful even to speak of the things that they do in secret. But when anything is
-  exposed by the light, it becomes visible, for anything that becomes visible is light. Therefore it says, Awake,
-  O sleeper, and arise from the dead, and Christ will shine on you. Look carefully then how you walk, not as
-  unwise but as wise, making the best use of the time, because the days are evil. Therefore do not be foolish, but
-  understand what the will of the Lord is. (ESV)
+  Ephesians 5:7-17 - Therefore do not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them;
+  for at one time you were darkness, but now you are light in the Lord. Walk as children of light (for the fruit
+  of light is found in all that is good and right and true), and try to discern what is pleasing to the Lord. Take
+  no part in the unfruitful works of darkness, but instead expose them. For it is shameful even to speak of the
+  things that they do in secret. But when anything is exposed by the light, it becomes visible, for anything that
+  becomes visible is light. Therefore it says, Awake, O sleeper, and arise from the dead, and Christ will shine on
+  you. Look carefully then how you walk, not as unwise but as wise, making the best use of the time, because the
+  days are evil. Therefore do not be foolish, but understand what the will of the Lord is. (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   Romans 13:11-12 - Besides this you know the time, that the hour has come for you to wake from sleep. For
   salvation is nearer to us now than when we first believed. The night is far gone; the day is at hand. So then
@@ -126304,6 +126431,10 @@ God. Jesus is God the Son:
 
   Jude 1:25 - to the only God, our Savior, through Jesus Christ our Lord, be glory, majesty, dominion, and
   authority, before all time and now and forever. Amen. (ESV)
+
+  Psalms 49:7-9,15 - Truly no man can ransom another, or give to God the price of his life, for the ransom of
+  their life is costly and can never suffice, that he should live on forever and never see the pit. But God will
+  ransom my soul from the power of Sheol, for he will receive me. Selah (ESV)
 
   John 3:33-34 - Whoever receives his testimony sets his seal to this, that God is true. For he whom God has sent
   utters the words of God, for he gives the Spirit without measure. (ESV)
@@ -134593,8 +134724,10 @@ down, God has seen me through my affliction:
   Ephesians 5:5-8 - For you may be sure of this, that everyone who is sexually immoral or impure, or who is
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. Therefore do
-  not associate with them; for at one time you were darkness, but now you are light in the Lord. Walk as children
-  of light (ESV)
+  not associate (G1096 ginesthe; be) (G4830 symmetochoi; partakers) wiith them; for at one time you were darkness,
+  but now you are light in the Lord. Walk as children of light (ESV)
+
+  Ephesians 5:7 - Be not ye therefore partakers with them. (KJV)
 
   I John 2:3-6 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
   know him but does not keep his commandments is a liar, and the truth is not in him, but whoever keeps his word,
@@ -136261,11 +136394,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-05 Sat 18:20
+Date: 2026-09-06 Sun 08:14
 
 Author: Shane Mulligan
 
-Created: 2026-09-05 Sat 18:31
+Created: 2026-09-06 Sun 10:24
 
 Validate
 
