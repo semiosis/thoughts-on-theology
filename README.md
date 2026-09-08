@@ -3089,6 +3089,29 @@ I believe that a person can still be (have sin) sinful and enter the Kingdom of 
     
     > **[Hebrews 4:7-12](https://www.biblegateway.com/passage/?search=Hebrews%204%3A7-12&version=ESV)** - again he appoints a **certain day, Today**, saying through David so long afterward, in the words already quoted, Today, **if you hear his voice, do not harden your hearts.** For if Joshua had given them rest, God would not have spoken of another day later on. So then, there remains a Sabbath rest for the people of God, for whoever has entered God's rest has also rested from his works as God did from his. **Let us therefore strive to enter that rest, so that no one may fall by the same sort of disobedience.** For the word of God is living and active, sharper than any two-edged sword, piercing to the division of soul and of spirit, of joints and of marrow, and discerning the thoughts and intentions of the heart. (ESV)
     
+    When a person starts having faith in Jesus Christ, they are sealed with the promised Holy Spirit.
+    
+    I think that "guarantee" might be too strong of a translation for [(G728 ἀρραβών)](G728) it makes it sound as though nothing could go wrong. But the Bible warns us that we must not "rebel", that rather we must continue in faith, not hardening our hearts (**[Hebrews 3:12-19](https://www.biblegateway.com/passage/?search=Hebrews%203%3A12-19&version=ESV)**, **[Ephesians 5:1-21](https://www.biblegateway.com/passage/?search=Ephesians%205%3A1-21&version=ESV)**), that we must not fall away by having an "evil, unbelieving heart". The Bible warns us that we must not practice the works of the flesh if we want to have an inheritance in the kingdom of Christ and God (**[Galatians 5:18-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A18-25&version=ESV)**):
+    
+    > **[Ephesians 1:13-14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13-14&version=ESV)** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, who is the guarantee [(G728 earnest, pledge, a token of what is to come)](G728) of our inheritance until we acquire possession of it, to the praise of his glory. (ESV)
+    
+    -   **[(G728 earnest, pledge, a token of what is to come)](G728):** 1  Original Word: ἀρραβών
+            2  Part of Speech: Noun, Masculine
+            3  Transliteration: arrabón
+            4  Pronunciation: ar-hrab-OWN
+            5  Phonetic Spelling: (ar-hrab-ohn')
+            6  KJV: earnest
+            7  NASB: pledge, given as a pledge
+            8  Word Origin: [of Hebrew origin (H6162 (עֲרָבוֹן - pledge))]
+    
+    The Gospel is **able** to build a person up to give them an inheritance among all those who are sanctified (as in, those who have **been** sanctified, who **have been** cleaned up that they no longer practice ungodliness, and love in the way God requires):
+    
+    > **[Ephesians 5:2-6](https://www.biblegateway.com/passage/?search=Ephesians%205%3A2-6&version=ESV)** - And walk in love, as Christ loved us and gave himself up for us, a fragrant offering and sacrifice to God. But sexual immorality and all impurity or covetousness must not even be named among you, as is proper among saints. Let there be no filthiness nor foolish talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these things the wrath of God comes upon the sons of disobedience. (ESV)
+    
+    > **[Acts 20:32](https://www.biblegateway.com/passage/?search=Acts%2020%3A32&version=ESV)** - And now I commend you to God and to the word of his grace, which is able [(G1410 dynamenō; being able)](G1410) to build you up [(G3618 oikodomēsai; to build up)](G3618) and to give you the inheritance among all those who are sanctified [(G37 hēgiasmenois; having been sanctified)](G37). (ESV)
+    
+    > **[Galatians 5:18-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A18-25&version=ESV)** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. And **those who belong to Christ Jesus have crucified the flesh with its passions and desires.** If we live by the Spirit, let us also walk by the Spirit. (ESV)
+    
     If somebody is "born of God" then they agree with the person ([I John 5:1](https://www.biblegateway.com/passage/?search=1%20John%205%3A1&version=ESV)) and work of Jesus Christ, abiding in His commandments (they love God and the children of God as commanded; [I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)) and they do not make a practice of sinning as they are doing faith (I John 3:9; I John 5:4; I John 5:18; \*Romans 14:23).
     
     If a person truly believes that Jesus is the Christ then they are "born of God" and that person who believes that Jesus is the Christ also loves as commanded and also does not make a practice of sinning as they are holding faith which leads to them overcoming the world:
@@ -17141,7 +17164,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9bce08c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org2839d43) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -22906,7 +22929,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org57e03f5).
+I didn't know but it turned out to be the last day of my [sentence](#orgcefbccc).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -24322,6 +24345,8 @@ In trusting in Jesus Christ, we may receive the Holy Spirit:
 > **[Ephesians 1:13-14](https://www.biblegateway.com/passage/?search=Ephesians%201%3A13-14&version=ESV)** - In him you also, when you heard the word of truth, the gospel of your salvation, and believed in him, were sealed with the promised Holy Spirit, **who is the guarantee of our inheritance until we acquire possession of it, to the praise of his glory**. (ESV)
 
 > **[John 3:5](https://www.biblegateway.com/passage/?search=John%203%3A5&version=ESV)** - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. (ESV)
+
+> **[Ephesians 3:14-19](https://www.biblegateway.com/passage/?search=Ephesians%203%3A14-19&version=ESV)** - For this reason I bow my knees before the Father, from whom every family in heaven and on earth is named, that according to the riches of his glory he may grant you to be strengthened with power through his Spirit in your inner being, so that **Christ may dwell in your hearts through faith** — that you, being rooted and grounded in love, may have strength to comprehend with all the saints what is the breadth and length and height and depth, and to know the love of Christ that surpasses knowledge, that you may be filled with all the fullness of God. (ESV)
 
 
 ### The living water, the Holy Spirit of promise is the seal of our inheritance, and received through faith in Jesus
@@ -47370,7 +47395,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgbb5cdae)
+See: [33.4.1](#org0b575e9)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -68876,7 +68901,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgbb5cdae)
+See: [33.4.1](#org0b575e9)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -71530,7 +71555,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgcce3fc5) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org6862c9a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -79752,7 +79777,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgcce3fc5) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org6862c9a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -81090,7 +81115,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org8ce3176)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org7105527)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
