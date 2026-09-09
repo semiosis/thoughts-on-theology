@@ -3208,16 +3208,24 @@ I believe that a person can still be (have sin) sinful and enter the Kingdom of 
     
     > **[John 15:6](https://www.biblegateway.com/passage/?search=John%2015%3A6&version=ESV)** - If anyone does not abide in me he is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned. (ESV)
     
-    Getting born-again of the spirit for me was contemporaneous with a realisation that I needed help from God to be able to stop sinning because I was compulsively sinning. I was attempting to keep God's commandments for a year or two leading up to the 2 April 2022 (when I was born-again) but I was also struggling with sin for years and it felt I was being actively prevented for a very long time from forming and maintaining relationships, and I could only hold hope that I would see this person again and that was keeping me going back then, but after over a year waiting as further pressure was put on me to "die" I guess to the hope that I had of seeing her again, I was feeling like everything was impossible and futile, and confused that even what is real is treated as garbage. As I had been trying to overcome anxiety and be truthful and sincere and even resist sin back then, yet my efforts back then could not solve my problems, and I called out to God in tears for help. Even before I was born-again I was asking God to deliver me, and He made me born-again, and I didn't know what happened at the time, but going forward I have been seeking to be a good steward of that grace:
+    -   **Personl note:** I can't hold any unforgiveness for anyone who I perceive had wronged me before I was born-again, because I have died and are a new person now, and also for Jesus' sake, and also it's truly my desire to move on. I share my testimony not from unforgiveness, but in an effort to explain as best as I can about how I see myself having been saved (from that old life which was neither working out for me, nor bearing good fruit for God), as I'm trying to explain theology as best as I can, and resist bad doctrine floating through the churches.
+    
+    There's no other name under heaven among men by which we must be saved other than the name of Jesus Christ (**[Acts 4:8-12](https://www.biblegateway.com/passage/?search=Acts%204%3A8-12&version=ESV)**):
+    
+    > **[Luke 13:3](https://www.biblegateway.com/passage/?search=Luke%2013%3A3&version=ESV)** - No, I tell you; but unless you repent ([3340. metanoeó](https://biblehub.com/greek/3340.htm)), you will all likewise perish. (ESV)
+    
+    Getting born-again of the spirit for me was contemporaneous with a realisation that I needed help from God to be able to stop sinning because I was compulsively sinning. I was attempting to keep God's commandments for a year or two leading up to the 2 April 2022 (when I was born-again) but I was also struggling with sin for years and it felt I was being actively prevented for a very long time from forming and maintaining relationships, and I could only hold hope that I would see this person again and that was keeping me going back then, but after over a year waiting as further pressure was put on me to die, I guess, to the hope that I had of seeing this person again, I was feeling like everything was impossible and futile, and confused that even what is real is treated as garbage. As I had been trying to overcome anxiety and be truthful and sincere and even resist sin back then, yet my efforts back then could not solve my problems, and I called out to God in tears for help. Even before I was born-again I was asking God to deliver me, and He made me born-again, and I didn't know what happened at the time, but going forward I have been seeking to be a good steward of that grace. All things are now new, and I forgive and move on, but I say these things not out of unforgiveness, but only to explain how being born-again has happened for me:
     
     > **[Romans 7:9-13](https://www.biblegateway.com/passage/?search=Romans%207%3A9-13&version=ESV)** - I was once alive apart from the law, but when the commandment came, sin came alive and I died. The very commandment that promised life proved to be death to me. For sin, seizing an opportunity through the commandment, deceived me and through it killed me. So the law is holy, and the commandment is holy and righteous and good. Did that which is good, then, bring death to me? By no means! It was sin, producing death in me through what is good, in order that sin might be shown to be sin, and through the commandment might become sinful beyond measure. (ESV)
     
     So the way I see it is that seed of the word of God inside me became the new person who is the true me now.
     That's what I presently believe. However, claiming to be the person "born of God" is still a "big call",
-    and is practically synonymous with saying that I presently in claiming to be born of God
-    claim to be pleasing to God, where if I were to make that testimony alone, my testimony wouldn't be credible.
+    and is practically synonymous with saying that "I have faith", "I am not committing sin", "I claim to be pleasing to God presently",
+    because the one born of God doesn't sin, and agrees with the person and work of Jesus Christ and loves as commanded,
+    so if I were to make that testimony alone, my testimony wouldn't be credible.
     I would need God's testimony about me, as Jesus Christ had about Him, in order to make it credible.
-    Nonetheless, that is the way I currently believe it works:
+    
+    Nevertheless, I have attempted to explain how getting born-again works, but I'm not infallible. God help me if I'm wrong. I do not want to mislead anyone, but I'm constantly being confronted by absolutely terrible doctrine, and so I'm doing my best to resist bad docrine and be in agreement with the truth of what Scripture says:
     
     > **[John 5:31-32](https://www.biblegateway.com/passage/?search=John%205%3A31-32&version=ESV)** - If I alone bear witness about myself, my testimony is not deemed true. There is another who bears witness about me, and I know that the testimony that he bears about me is true. (ESV)
     
@@ -17406,7 +17414,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf1f251a) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb48acea) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -23171,7 +23179,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgb6f640c).
+I didn't know but it turned out to be the last day of my [sentence](#org7b19a7b).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -47637,7 +47645,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org4cbd766)
+See: [33.4.1](#org0c1cc04)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -69143,7 +69151,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org4cbd766)
+See: [33.4.1](#org0c1cc04)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -71797,7 +71805,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgbae8526) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org43477f6) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -80019,7 +80027,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgbae8526) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org43477f6) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -81357,7 +81365,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org5372cf8)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org829ca19)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
