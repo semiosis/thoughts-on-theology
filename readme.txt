@@ -6670,14 +6670,15 @@ other things to protect that word that it grows up and bears fruit. Bearing good
 believer is not "cast out" of the vine who is Jesus Christ. So even before being born-again, it's important to not
 fall away. For a person who has the seed of the word of God in them (albeit before they have been "born again"),
 the person is still by nature a child of wrath with indwelling sin in their body, spirit and soul, as this comes
-from Adam's genaeology. The word of God in them means that they will stop sinning (I John 3:9), so long as the
+from Adam's genaeology. The word of God in them means that they will stop sinning (I John 3:9), so long as they
 hold fast (I Corinthians 15:1-2). But until this person person is born-again of that seed (i.e. baptised into
-Christ's death, regenerated) they are still a slave to sin (John 8:31-47), as the natural man and does not submit
-to God's law (I Corinthians 2:11-16, Romans 8:6-11), and upon trying to observe and keep the law, sin comes alive
-and the struggle against sin is a losing battle. If that struggle isn't apparent to them then it will be when they
-are made aware of the law of God (Romans 7:9-13). A believer is required abide in God's commandments for us, and
+Christ's death, regenerated) they are still a slave to sin (John 8:31-47), as the natural man does not submit to
+God's law (I Corinthians 2:11-16, Romans 8:6-11), and upon trying to observe and keep the law, sin comes alive and
+the struggle against sin is a losing battle. If that struggle isn't apparent to them then it will be when they are
+made aware of the law of God (Romans 7:9-13). A believer is required to abide in God's commandments for them, and
 the one born of God doesn't sin as the Scripture says. On top of this Jesus Christ says that the person having
-faith in Him will do the deeds He does (John 14:12). And so sin comes alive and the person dies, the seed dies (I
+faith in Him will do the deeds He does (John 14:12). And so sin comes alive because they walk by the flesh nature
+which puts them under the law (Galatians 5:16-26) and the person dies (Romans 7:9-13), the seed dies (I
 Corinthians 15:36) but rather than that seed perishing (I Peter 1:23) it becomes the new person. The person is
 born-again as promised (John 11:25-27). Being born-again, having been given the Spirit who is from God, they might
 now understand the things which have freely been given by God (even coming to understand what has happened to
@@ -29174,9 +29175,10 @@ I believe that it's important to not reject key facts about Jesus Christ:
   of Man? He answered, And who is he, sir, that I may believe in him? Jesus said to him, You have seen him, and it
   is he who is speaking to you. (ESV)
 
-youtube.com: False Teachings of Jehovah Witness ! { Jehovah Witness and the Resurrection } {@
+• youtube.com: After a Lifetime as a Jehovah ' s Witness , the Trinity Finally Clicks {@ Godlogicclips2 }
+• youtube.com: False Teachings of Jehovah Witness ! { Jehovah Witness and the Resurrection } {@
 CatholicTruthOfficial }
-I commmented, "Oh dear, yes those are some very serious errors from historical JW theology. I pray they are
+">I commmented, "Oh dear, yes those are some very serious errors from historical JW theology. I pray they are
 corrected by the truth. Jesus Christ certainly was raised from the dead having flesh and blood. It's right there
 in the Scripture. If Christ were not raised from the dead, then there would be no power in the gospel."
 
@@ -137328,11 +137330,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-10 Thu 08:52
+Date: 2026-09-10 Thu 10:40
 
 Author: Shane Mulligan
 
-Created: 2026-09-10 Thu 08:56
+Created: 2026-09-10 Thu 10:44
 
 Validate
 
