@@ -6614,25 +6614,439 @@ way God requires):
   no law. And those who belong to Christ Jesus have crucified the flesh with its passions and desires. If we live
   by the Spirit, let us also walk by the Spirit. (ESV)
 
-If somebody is "born of God" then they agree with the person (I John 5:1) and work of Jesus Christ, abiding in His
-commandments (they love God and the children of God as commanded; I John 4:7) and they do not make a practice of
-sinning as they are doing faith (I John 3:9; I John 5:4; I John 5:18; *Romans 14:23).
+I guess that a person can be an "unborn" child of God until they get born. But that seed in the heart is a person
+(Jesus said the good seed are the children of the Kingdom), and so when the person "born of God" is described, it
+is talking about a person who is/was this seed. The "seed of the word of God" is "in Christ", and the person who
+is born of the spirit (regenerated, baptised into Christ's death) is also "in Christ" so long as going on they are
+continuing walking by faith in Jesus Christ, abiding in His commandments.
 
-If a person truly believes that Jesus is the Christ then they are "born of God" and that person who believes that
-Jesus is the Christ also loves as commanded and also does not make a practice of sinning as they are holding faith
-which leads to them overcoming the world:
+  Matthew 13:38 - The field is the world, and the good seed is the children of the kingdom. The weeds are the sons
+  of the evil one, (ESV)
+
+  I Peter 1:23 - since you have been born again, not of perishable seed but of imperishable, through the living
+  and abiding word of God; (ESV)
+
+That seed of the word of God must be treasured (loved) in the good soil of a person's heart:
+
+  Mark 4:14-20 - The sower sows the word. And these are the ones along the path, where the word is sown: when they
+  hear, Satan immediately comes and takes away the word that is sown in them. And these are the ones sown on rocky
+  ground: the ones who, when they hear the word, immediately receive it with joy. And they have no root in
+  themselves, but endure for a while; then, when tribulation or persecution arises on account of the word,
+  immediately they fall away. And others are the ones sown among thorns. They are those who hear the word, but the
+  cares of the world and the deceitfulness of riches and the desires for other things enter in and choke the word,
+  and it proves unfruitful. But those that were sown on the good soil are the ones who hear the word and accept it
+  and bear fruit, thirtyfold and sixtyfold and a hundredfold. (ESV)
+
+The seed planted in good soil needs to die in order to bear good fruit. And so a person needs to be born-again:
+
+  I Corinthians 15:36 - You foolish person! What you sow does not come to life unless it dies. (ESV)
+
+So a person is born-again of the seed of the word of God, but the word is a seed until the person is born-again by
+that seed, and even after being born-again, it's important to go on by faith in Jesus Christ, abiding in Him,
+abiding in His teachings and commandments. Whoever means whoever, and so even the person who has been born-again
+of the spirit must go on in the teaching of Christ abiding in His commandments. If abiding in Jesus Christ's
+teachings and commandments then that person is in Christ. If someone who is in Christ then stops abiding in Him
+then they are cast out by Father God (John 15:1-6). God is able, though, to put a person back in if they return to
+faith:
+
+  II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, (ESV)
+
+  Romans 11:20-25 - That is true. They were broken off because of their unbelief, but you stand fast through
+  faith. So do not become proud, but stand in awe. For if God did not spare the natural branches, neither will he
+  spare you. Note then the kindness and the severity of God: severity toward those who have fallen, but God's
+  kindness to you, provided you continue in his kindness. Otherwise you too will be cut off. And even they, if
+  they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. For if
+  you were cut from what is by nature a wild olive tree, and grafted, contrary to nature, into a cultivated olive
+  tree, how much more will these, the natural branches, be grafted back into their own olive tree. Lest you be
+  wise in your own conceits, I want you to understand this mystery, brothers: a partial hardening has come upon
+  Israel, until the fullness of the Gentiles has come in. (ESV)
+
+I hope this is correct. I'm trying to understand:
+
+In the parable of the sower (Mark 4:14-20) it shows that it's important to treasure the word and desire it above
+other things to protect that word that it grows up and bears fruit. Bearing good fruit is important that the
+believer is not "cast out" of the vine who is Jesus Christ. So even before being born-again, it's important to not
+fall away. For a person who has the seed of the word of God in them (albeit before they have been "born again"),
+the person is still by nature a child of wrath with indwelling sin in their body, spirit and soul, as this comes
+from Adam's genaeology. The word of God in them means that they will stop sinning (I John 3:9), so long as the
+hold fast (I Corinthians 15:1-2). But until this person person is born-again of that seed (i.e. baptised into
+Christ's death, regenerated) they are still a slave to sin (John 8:31-47), as the natural man and does not submit
+to God's law (I Corinthians 2:11-16, Romans 8:6-11), and upon trying to observe and keep the law, sin comes alive
+and the struggle against sin is a losing battle. If that struggle isn't apparent to them then it will be when they
+are made aware of the law of God (Romans 7:9-13). A believer is required abide in God's commandments for us, and
+the one born of God doesn't sin as the Scripture says. On top of this Jesus Christ says that the person having
+faith in Him will do the deeds He does (John 14:12). And so sin comes alive and the person dies, the seed dies (I
+Corinthians 15:36) but rather than that seed perishing (I Peter 1:23) it becomes the new person. The person is
+born-again as promised (John 11:25-27). Being born-again, having been given the Spirit who is from God, they might
+now understand the things which have freely been given by God (even coming to understand what has happened to
+them). Having the the Spirit who is from God, the person who has been born-again of the spirit also is able to
+know that the spirit of Jesus Christ abides in them:
+
+  I Corinthians 2:11-16 - For who knows a person's thoughts except the spirit of that person, which is in him? So
+  also no one comprehends the thoughts of God except the Spirit of God. Now we have received not the spirit of the
+  world, but the Spirit who is from God, that we might understand the things freely given us by God. And we impart
+  this in words not taught by human wisdom but taught by the Spirit, interpreting spiritual truths to those who
+  are spiritual. The natural person does not accept the things of the Spirit of God, for they are folly to him,
+  and he is not able to understand them because they are spiritually discerned. The spiritual person judges all
+  things, but is himself to be judged by no one. For who has understood the mind of the Lord so as to instruct
+  him? But we have the mind of Christ. (ESV)
+
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
+
+Sin empowered by the law kills a believer (who is not yet born-again) at some point because they can't keep the
+law, yet though they die they will live because they have faith in Jesus Christ (John 11:25-27). The person who
+still has the seed of the word of God inside their heart "of good soil", treasuring the word, will get born-again
+of the spirit by the word that is in their heart, in order for them to be able to be able to fulfill the
+requirement of the law (Romans 6:16-18), which they must do (I John 3:13-16*, Deuteronomy 30:6). There is a load
+which each believer must come to bear (Galatians 6:2-6).
+
+Whoever is "born of God" is "in Christ".
+
+A person who truly believes that Jesus is the Christ is "born of God" and that person also loves as commanded and
+also does not make a practice of sinning as they are holding faith which leads to them overcoming the world. If a
+person truly confesses that Jesus Christ is the Son of God, or if they "love" then that person is born of God:
 
   I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
   Father loves whoever has been born of him. (ESV)
 
-What about being born-again of the Spirit? I believe this is different to getting "born of God" for a few reasons:
-Firstly, it happens somewhat mysteriously. Does this mean that the people themselves who are born of the Spirit
-move unpredictably? Or that when someone gets born of the Spirit is itself an unpredictable event?
+  I John 3:9 - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on
+  sinning because he has been born of God. (ESV)
+
+  I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
+  knows God. (ESV)
+
+If somebody is "born of God" then they agree with the person (I John 5:1) and work of Jesus Christ, abiding in His
+commandments (they love God and the children of God as commanded; I John 4:7) and they do not make a practice of
+sinning as they are doing faith (I John 3:9; I John 5:4; I John 5:18; Romans 14:23). They follow God's
+commandments for us from the heart. That is the person who is born of God.
+
+But when the saving word of God is sown in the heart, there may be desires for other things that compete, and so a
+believer must continue to treasure that word. That word must be well-rooted:
+
+  Mark 4:14-20 - The sower sows the word. And these are the ones along the path, where the word is sown: when they
+  hear, Satan immediately comes and takes away the word that is sown in them. And these are the ones sown on rocky
+  ground: the ones who, when they hear the word, immediately receive it with joy. And they have no root in
+  themselves, but endure for a while; then, when tribulation or persecution arises on account of the word,
+  immediately they fall away. And others are the ones sown among thorns. They are those who hear the word, but the
+  cares of the world and the deceitfulness of riches and the desires for other things enter in and choke the word,
+  and it proves unfruitful. But those that were sown on the good soil are the ones who hear the word and accept it
+  and bear fruit, thirtyfold and sixtyfold and a hundredfold. (ESV)
+
+But there is also a sinful flesh nature as well who's deeds must be put to death (Romans 8:12-15), and a person
+born of God still carries this around frustrating the believer who wants to do God's will. This is an issue before
+and after getting born-again of the spirit. The battle is not winnable before being born-again of the spirit:
+
+  Romans 7:16-20 - Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I
+  who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I
+  have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but
+  the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but
+  sin that dwells within me. (ESV)
+
+Our old self is crucified only if we belong to Christ Jesus (Galatians 5:18-25). Jesus' words are spirit and life
+and Jesus comes to dwell inside of a person by faith. So the seed of the saving word of God of the gospel of Jesus
+Christ needs to be well rooted in the good soil of a person's heart. This person treasures this word, and at some
+stage they get born-again of the Spirit (John 11:25-27):
+
+  Romans 8:7-9 - For the mind that is set on the flesh is hostile to God, for it does not submit to God's law;
+  indeed, it cannot. Those who are in the flesh cannot please God. You, however, are not in the flesh but in the
+  Spirit, if in fact the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not
+  belong to him. (ESV)
+
+  John 6:63 - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are
+  spirit and life. (ESV)
+
+  Ephesians 3:14-19 - For this reason I bow my knees before the Father, from whom every family in heaven and on
+  earth is named, that according to the riches of his glory he may grant you to be strengthened with power through
+  his Spirit in your inner being, so that Christ may dwell in your hearts through faith — that you, being rooted
+  and grounded in love, may have strength to comprehend with all the saints what is the breadth and length and
+  height and depth, and to know the love of Christ that surpasses knowledge, that you may be filled with all the
+  fullness of God. (ESV)
+
+Jesus knows His sheep before they know Him, but His sheep still at some point come to know Him and in order to do
+so they have got to have stopped sinning, and at which point they are keeping His commandments as they are in Him.
+God makes us born-again of the spirit so that we can know that Jesus abides in us (I John 3:24), but I believe
+that Jesus, living inside a person's heart by faith (Ephesians 3:14-19), is there before we even know, perhaps
+even before we are born-again of the spirit:
+
+  John 10:27 - My sheep hear my voice, and I know them, and they follow me. (ESV)
+
+  I John 2:3-6 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, but whoever keeps his word,
+  in him truly the love of God is perfected. By this we may be sure that we are in him: whoever says he abides in
+  him ought to walk in the same way in which he walked. (ESV)
+
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
+
+If a person has parked their car, they have stopped driving. In a similar way, we need to "stop committing sin" in
+order to enter the Kingdom of God.
+
+If it's possible to have faith then it's possible to stop sinning. Indeed, whatever is not done in faith (or
+proceed from faith) is sin:
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+When I use the phrase "stop committing sin" or "stop sinning" I'm not using it to mean "stop sinning forever and
+never sin again". I'm meaning it to say "not presently committing sin". It's necessary to not be committing sin in
+order to enter the Kingdom of God.
+
+And to stop committing sin ongoingly seemed to be a losing battle for my old self, and I believe it's a losing
+battle for everyone until they are born-again (baptised into Christ's death and set free from sin). Before I was
+born-again, I was committig more and more sin (it seemed to be getting worse).
+
+God makes it possible to stop sinning for good, and what's needed is to be born-again.
+
+But before and after being born-again of the spirit (baptised into Jesus Christ's death), we need to continue
+abiding in Jesus Christ's commandments in order to remain in Him:
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+  II Peter 2:17-22 - These are waterless springs and mists driven by a storm. For them the gloom of utter darkness
+  has been reserved. For, speaking loud boasts of folly, they entice by sensual passions of the flesh those who
+  are barely escaping from those who live in error. They promise them freedom, but they themselves are slaves of
+  corruption. For whatever overcomes a person, to that he is enslaved. For if, after they have escaped the
+  defilements of the world through the knowledge of our Lord and Savior Jesus Christ, they are again entangled in
+  them and overcome, the last state has become worse for them than the first. For it would have been better for
+  them never to have known the way of righteousness than after knowing it to turn back from the holy commandment
+  delivered to them. What the true proverb says has happened to them: The dog returns to its own vomit, and the
+  sow, after washing herself, returns to wallow in the mire. (ESV)
+
+  II Peter 2:4-9 - For if God did not spare angels when they sinned, but cast them into hell and committed them to
+  chains of gloomy darkness to be kept until the judgment; if he did not spare the ancient world, but preserved
+  Noah, a herald of righteousness, with seven others, when he brought a flood upon the world of the ungodly; if by
+  turning the cities of Sodom and Gomorrah to ashes he condemned them to extinction, making them an example of
+  what is going to happen to the ungodly; and if he rescued righteous Lot, greatly distressed by the sensual
+  conduct of the wicked (for as that righteous man lived among them day after day, he was tormenting his righteous
+  soul over their lawless deeds that he saw and heard); then the Lord knows how to rescue the godly from trials,
+  and to keep the unrighteous under punishment until the day of judgment, (ESV)
+
+  John 15:1-2 - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear
+  fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. (ESV)
+
+  John 15:6 - If anyone does not abide in me he is thrown away like a branch and withers; and the branches are
+  gathered, thrown into the fire, and burned. (ESV)
+
+Getting born-again of the spirit for me was contemporaneous with a realisation that I needed help from God to be
+able to stop sinning because I was compulsively sinning. I was attempting to keep God's commandments for a year or
+two leading up to the 2 April 2022 (when I was born-again) but I was also struggling with sin for years and it
+felt I was being actively prevented for a very long time from forming and maintaining relationships, and I could
+only hold hope that I would see this person again and that was keeping me going back then, but after over a year
+waiting as further pressure was put on me to "die" I guess to the hope that I had of seeing her again, I was
+feeling like everything was impossible and futile, and confused that even what is real is treated as garbage. As I
+had been trying to overcome anxiety and be truthful and sincere and even resist sin back then, yet my efforts back
+then could not solve my problems, and I called out to God in tears for help. Even before I was born-again I was
+asking God to deliver me, and He made me born-again, and I didn't know what happened at the time, but going
+forward I have been seeking to be a good steward of that grace:
+
+  Romans 7:9-13 - I was once alive apart from the law, but when the commandment came, sin came alive and I died.
+  The very commandment that promised life proved to be death to me. For sin, seizing an opportunity through the
+  commandment, deceived me and through it killed me. So the law is holy, and the commandment is holy and righteous
+  and good. Did that which is good, then, bring death to me? By no means! It was sin, producing death in me
+  through what is good, in order that sin might be shown to be sin, and through the commandment might become
+  sinful beyond measure. (ESV)
+
+So the way I see it is that seed of the word of God inside me became the new person who is the true me now. That's
+what I presently believe. However, claiming to be the person "born of God" is still a "big call", and is
+practically synonymous with saying that I presently in claiming to be born of God claim to be pleasing to God,
+where if I were to make that testimony alone, my testimony wouldn't be credible. I would need God's testimony
+about me, as Jesus Christ had about Him, in order to make it credible. Nonetheless, that is the way I currently
+believe it works:
+
+  John 5:31-32 - If I alone bear witness about myself, my testimony is not deemed true. There is another who bears
+  witness about me, and I know that the testimony that he bears about me is true. (ESV)
+
+  Luke 9:35 - And a voice came out of the cloud, saying, This is my Son, my Chosen One; listen to him! (ESV)
+
+Even though a person may have the seed of the word of God in them, that seed being "in Christ", born of God, the
+person still needs to be "born-again" of the spirit (baptised into Christ's death), so that by the grace of God
+the body of sin (which the person born of God carries around) may be brought to nothing (Romans 6:6-8), and thay
+they may "enter the Kingdom of God":
+
+  Romans 8:12-15 - So then, brothers, we are debtors, not to the flesh, to live according to the flesh. For if you
+  live according to the flesh you will die, but if by the Spirit you put to death (G2289 thanatoute) the deeds of
+  the body (G4983 sōmatos), you will live. For all who are led by the Spirit of God are sons of God. For you did
+  not receive the spirit of slavery to fall back into fear, but you have received the Spirit of adoption as sons,
+  by whom we cry, Abba! Father! (ESV)
+
+  John 3:5 - Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot
+  enter the kingdom of God. (ESV)
+
+Being born again of the spirit, a person still needs to do the will of God in order to enter the Kingdom of God.
+They still must go on in faith in Jesus Christ in order to enter the Kingdom of God. They still need to not go
+back to sinning, and so have stopped committing sin (I Thessalonians 4:3-8) in order to enter the Kingdom of God .
+Even after being born again of the spirit, there is still a journey of striving (Luke 13:23-30) to enter the
+Kingdom of God. This journey I truly believe involves "walking by the spirit" and not by the flesh. And this is
+utterly essential for entering the Kingdom of God:
+
+  Acts 14:21-23 - When they had preached the gospel to that city and had made many disciples, they returned to
+  Lystra and to Iconium and to Antioch, strengthening the souls of the disciples, encouraging them to continue in
+  the faith, and saying that through many tribulations we must enter the kingdom of God. And when they had
+  appointed elders for them in every church, with prayer and fasting they committed them to the Lord in whom they
+  had believed. (ESV)
+
+  II Timothy 4:18 - The Lord will rescue me from every evil deed and bring me safely into his heavenly kingdom. To
+  him be the glory forever and ever. Amen. (ESV)
+
+  Galatians 5:24 - And those who belong to Christ Jesus have crucified the flesh with its passions and desires.
+  (ESV)
+
+  John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
+  way, that man is a thief and a robber. (ESV)
+
+Both being born again of the Spirit and also doing the will of God (our sanctification, to cease committing sin,
+remaining in Christ Jesus, abiding in His commandments) are needed in order to enter the Kingdom of God:
+
+  I John 3:6-11 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or
+  known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. (ESV)
+
+The flesh carries out evil deeds from bad desire (Galatians 5:13-18). We are born-again in order that the deeds of
+the flesh might die, and so that starts with desire. Someone who is born-again still has the sinful flesh, though,
+and so there is still a battle with the flesh, but now a winning battle. But although the flesh fails us,
+inwardly, we are still endeavouring to be obedient to Jesus Christ:
+
+  Romans 7:18 - For I know that nothing good dwells in me, that is, in my flesh (G4561 sarki). For I have the
+  desire to do what is right, but not the ability to carry it out. (ESV)
+
+  Romans 6:11-23 - So you also must consider yourselves dead to sin and alive to God in Christ Jesus. Let not sin
+  therefore reign in your mortal bodies, to make you obey their passions. Do not present your members to sin as
+  instruments for unrighteousness, but present yourselves to God as those who have been brought from death to
+  life, and your members to God as instruments for righteousness. For sin will have no dominion over you, since
+  you are not under law but under grace. What then? Are we to sin because we are not under law but under grace? By
+  no means! Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one
+  whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be
+  to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to
+  which you were committed, and, having been set free from sin, have become slaves of righteousness. I am speaking
+  in human terms, because of your natural limitations. For just as you once presented your members as slaves to
+  impurity and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness
+  leading to sanctification. When you were slaves of sin, you were free in regard to righteousness. But what fruit
+  were you getting at that time from the things of which you are now ashamed? The end of those things is death.
+  But now that you have been set free from sin and have become slaves of God, the fruit you get leads to
+  sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal
+  life in Christ Jesus our Lord. (ESV)
+
+By the seed of the word of God in a person, when that seed dies, the seed doesn't perish (I Peter 1:23) but rather
+the person is born-again of the Spirit by that seed, by the living and abiding word of God. But the flesh is
+redeemed only after that. The flesh must also die that it may also be redeemed (or the born-again person is
+raptured alive):
+
+  Romans 8:23 - And not only the creation, but we ourselves, who have the firstfruits of the Spirit, groan
+  inwardly as we wait eagerly for adoption as sons, the redemption of our bodies (G4983 sōmatos). (ESV)
+
+  I Thessalonians 4:17 - Then we who are alive, who are left, will be caught up together with them in the clouds
+  to meet the Lord in the air, and so we will always be with the Lord. (ESV)
+
+In my experience, as I have observed people loving others at times, practicing righteousness and have heard them
+confess faith in Jesus Christ, but have also seen the same people speak and act against the truth from my
+perspective, refrain from doing good when it seems to me they should, and since I've experienced this also in
+myself also sometimes, especially before being born-again of the spririt, I can only conclude that what we might
+observe as a person may be somebody who is both born of God while also sometimes speaking and acting from the
+sinful flesh, as described by Paul.
+
+If we see people who profess to be Christians not actually doing as Christ commanded then we should reprove them
+and seek to correct them with what Scripture teaches but with grace, in the imitation of Jesus Christ and how He
+dealt with such issues:
+
+  John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
+  And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
+  may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not
+  come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge;
+  the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the
+  Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his
+  commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+
+  Matthew 18:15 - If your brother sins against you, go and tell him his fault, between you and him alone. If he
+  listens to you, you have gained your brother. (ESV)
+
+  Luke 17:3-4 - Pay attention to yourselves! If your brother sins, rebuke him, and if he repents, forgive him, and
+  if he sins against you seven times in the day, and turns to you seven times, saying, I repent, you must forgive
+  him. (ESV)
+
+But inwardly, the person born of God in them hopes in Jesus (Romans 8:23) and does not sin (I John 5:18) but loves
+God's law (Romans 7:22-23), but is abiding in Jesus' commandments. The flesh is weak, but there still might be
+somebody "born of God" inside of that sinful flesh:
+
+  Romans 7:17-23 - So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good
+  dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it
+  out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do
+  not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want
+  to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my
+  members another law waging war against the law of my mind and making me captive to the law of sin that dwells in
+  my members. (ESV)
+
+The Adamic flesh is the "old creature" inclusive of both the literal biological flesh and the mind of the person
+from before they are born-again of the spirit. A person gets born-again of the spirit, but is still inside the
+Adamic flesh, and retains some memory of the flesh, but they await to receive the redemption of their flesh, (i.e.
+await to receive the resurrection body).
+
+If there is a "3rd" birthday, then that would be the redemption of the body (Romans 8:23-25):
+
+• First birthday: born of woman (Adamic flesh and spirit)
+• Psalms 51:5
+• I Corinthians 11:11-12
+• Second birthday: born of the spirt (new spirit, new creation)
+• John 3:5-7
+• II Corinthians 5:17
+• Colossians 3:8-10
+• Third birthday ?: redeption of body (resurrection body)
+• Romans 8:23-25
+
+There is the part of the person that is sinful, that is the person born of woman (from their 1st birthday):
+
+Psalms 51:5, Romans 7:18, I Corinthians 11:11-12
+
+This outer nature (the flesh) is wasting away:
+
+II Corinthians 4:16
+
+Then there is the part of the person that is made right, that is the person born of God. The person born of God is
+also God's seed, even before they are born again of the Spirit. That person born of God is "in Christ". But that
+seed dies (I Corinthians 15:36) and comes alive and that person is born-again of the Spirit and that person is
+"alive" (II Corinthians 4:11-15) and is dead to sin (from their 2nd birthday), for they have died with Christ
+(Romans 6:3-8):
+
+II Corinthians 5:17, Colossians 3:8-10, I John 3:9, I Peter 1:23, John 3:5-7, Ezekiel 18:31, Isaiah 1:16-17
+
+The person who has been "born-again" of the spirit, has died and become a new person.
+
+I believe that "born of God" should not be used to mean precisely the same thing as to be "born again of the
+spirit" for several reasons.
+
+Firstly, getting born-again of the spirit (born again) happens somewhat mysteriously, but those who have faith in
+Jesus Christ (which is truly faith in Father God) are promised to get born-again (John 11:25-27, John 12:44), as
+are those who turn from all their transgressions (Ezekiel 18:26-32). Does John 3:8 mean that the people themselves
+who are born of the Spirit are unpredictable to the natural man's understanding? Or does it mean that when someone
+gets born of the Spirit is itself an unpredictable event? I'm unsure, possibly both:
 
   John 3:8 - The wind blows where it wishes, and you hear its sound, but you do not know where it comes from or
   where it goes. So it is with everyone who is born of the Spirit. (ESV)
 
-Secondly, the Apostle Paul describes being "alive" and being handed over to death for the sake of other believers:
+  Ezekiel 18:26-32 - When a righteous person turns away from his righteousness and does injustice, he shall die
+  for it; for the injustice that he has done he shall die. Again, when a wicked person turns away from the
+  wickedness he has committed and does what is just and right, he shall save his life. Because he considered and
+  turned away from all the transgressions that he had committed, he shall surely live; he shall not die. Yet the
+  house of Israel says, The way of the Lord is not just. O house of Israel, are my ways not just? Is it not your
+  ways that are not just? Therefore I will judge you, O house of Israel, every one according to his ways, declares
+  the Lord GOD. Repent and turn from all your transgressions, lest iniquity be your ruin. Cast away from you all
+  the transgressions that you have committed, and make yourselves a new heart and a new spirit! Why will you die,
+  O house of Israel? For I have no pleasure in the death of anyone, declares the Lord GOD; so turn, and live.
+  (ESV)
+
+Secondly, the Apostle Paul describes being "alive" and being handed over to death for the sake of other believers,
+and I consider that God's seed does not sin, even before the person is "born-again of the Spirit" which requires
+the seed to die for the person to be born of the spirit (I Corinthians 15:36):
 
   II Corinthians 4:11-15 - For we who live are always being given over to death for Jesus' sake, so that the life
   of Jesus also may be manifested in our mortal flesh. So death is at work in us, but life in you. Since we have
@@ -6640,6 +7054,22 @@ Secondly, the Apostle Paul describes being "alive" and being handed over to deat
   we also speak, knowing that he who raised the Lord Jesus will raise us also with Jesus and bring us with you
   into his presence. For it is all for your sake, so that as grace extends to more and more people it may increase
   thanksgiving, to the glory of God. (ESV)
+
+  I John 3:9 - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on
+  sinning because he has been born of God. (ESV)
+
+A person is born-again of the seed of the word of God, but the word is a seed until the person is born-again by
+that seed. So I guess that a person can be an "unborn" child of God until they get born. The seed dies and the
+person is "born-again". And I think that happens because sin in the person kills them because they are unable to
+keep God's law (Romans 7:9-13):
+
+  Matthew 13:38 - The field is the world, and the good seed is the children of the kingdom. The weeds are the sons
+  of the evil one, (ESV)
+
+  I Peter 1:23 - since you have been born again, not of perishable seed but of imperishable, through the living
+  and abiding word of God; (ESV)
+
+  I Corinthians 15:36 - You foolish person! What you sow does not come to life unless it dies. (ESV)
 
 Thirdly, Jesus Himself says that a believer, though they die, yet they will live:
 
@@ -6665,7 +7095,15 @@ that person, being a believer, will get "born-again" of the Spirit at some stage
   give life to your mortal bodies through his Spirit who dwells in you. (ESV)
 
 Those who have real faith practice righteousness. Someone born of God who has faith in Jesus may be regarded as a
-son of God, I believe. But a person needs to be "born-again" (born of the Spirit) to enter the Kingdom of God:
+son of God, I believe. But a person needs to be "born-again" (born of the Spirit) to enter the Kingdom of God.
+Though faith in Jesus Christ, they might start claiming to be a son of God, and that is the correct thing to do,
+but at some point they are going to have to get born-again so that they can fulfill the requirement of the law and
+love God with their whole heart and soul and mind and strength and live (not just with the seed of the word of God
+in their heart but with their whole heart), and abide in Jesus Christ's commandments, including the commandment,
+to call not man on earth 'father', for example. Whoever does not continue abiding in Jesus Christ's commandments
+is cast out like a branch and withers (John 15:1-6), and at the end of the age such branches are burned. So we
+need to abide in Jesus Christ's commandments, and be overcome by practicing righteousness (II Peter 2:19), and so
+we need to be born-again in order to be able to do this successfully and perpetually:
 
   Galatians 3:25-26 - But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are
   all sons of God, through faith. (ESV)
@@ -6738,7 +7176,8 @@ they get born-again) that they might know that Jesus abides in them:
   believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
   the world. (ESV)
 
-If a person is "in Christ", new creation. The old has passed away the new has come:
+If a person is "in Christ", new creation. The old has passed away the new has come. When a person gets born-again,
+they will experience this forcefully because the seed of the word of God that died gave birth to the new person:
 
   II Corinthians 5:17 - Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold,
   the new has come. (ESV)
@@ -6764,7 +7203,9 @@ Christ Jesus:
   hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
   blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
 
-I think that a person can be "in Christ" as a believer before having entered the Kingdom of God:
+I think that a person can be "in Christ" as the believing seed of the word of God in a person's heart before being
+born-again and before having entered the Kingdom of God. But that certainly the person who has the seed of the
+word of God in them must treasure that word in their heart:
 
   Acts 14:21-23 - When they had preached the gospel to that city and had made many disciples, they returned to
   Lystra and to Iconium and to Antioch, strengthening the souls of the disciples, encouraging them to continue in
@@ -12430,7 +12871,11 @@ This outer nature (the flesh) is wasting away:
   II Corinthians 4:16 - So we do not lose heart. Though our outer nature is wasting away, our inner nature is
   being renewed day by day. (ESV)
 
-Then there is the part of the person that is made right, that is the person born of God (from their 2nd birthday):
+Then there is the part of the person that is made right, that is the person born of God. The person born of God is
+also God's seed, even before they are born again of the Spirit. That person born of God is "in Christ". But that
+seed dies (I Corinthians 15:36) and comes alive and that person is born-again of the Spirit and that person is
+"alive" (II Corinthians 4:11-15) and is dead to sin (from their 2nd birthday), for they have died with Christ
+(Romans 6:3-8):
 
   II Corinthians 5:17 - Therefore if anyone [is] in Christ [he is] a new creation (G2537 kainē; new) (G2937
   ktisis; creation) The old things have passed away behold has come into being [the] new (Interlinear)
@@ -136866,11 +137311,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-09 Wed 13:32
+Date: 2026-09-09 Wed 20:15
 
 Author: Shane Mulligan
 
-Created: 2026-09-09 Wed 14:53
+Created: 2026-09-09 Wed 20:54
 
 Validate
 
