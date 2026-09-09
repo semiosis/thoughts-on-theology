@@ -736,6 +736,13 @@ Loving our neighbour involves also loving those who hate us:
   and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the
   evil. Be merciful, even as your Father is merciful. (ESV)
 
+Loving our neighbour involves also loving those who are our fellow countryman also (loving in the way we are
+commanded to):
+
+  Leviticus 19:17-18 - ‘You shall not hate your fellow countryman in your heart; you may surely reprove your
+  neighbor, but shall not incur sin because of him. You shall not take vengeance, nor bear any grudge against the
+  sons of your people, but you shall love your neighbor as yourself; I am the LORD. (NASB)
+
 The fruit of the Spirit is the fruit of believing:
 
   Romans 15:13 - May the God of hope fill you with all joy and peace in believing, so that by the power of the
@@ -6844,8 +6851,8 @@ eat pig is sin has to stop eating pig in order to enter the Kingdom of God:
   doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith
   is sin. (ESV)
 
-Entering the Kingdom of God requires not committing abomination including theft, murder, adultery, false-witness
-and idolatry. And the standard is from the heart, not merely the external actions:
+Entering the Kingdom of God requires having ceased from committing abomination including theft, murder, adultery,
+false-witness and idolatry. And the standard is from the heart, not merely the external actions:
 
   Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
   adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
@@ -6869,6 +6876,132 @@ and idolatry. And the standard is from the heart, not merely the external action
   members than that your whole body go into hell. It was also said, Whoever divorces his wife, let him give her a
   certificate of divorce. But I say to you that everyone who divorces his wife, except on the ground of sexual
   immorality, makes her commit adultery. And whoever marries a divorced woman commits adultery. (ESV)
+
+  Luke 13:23-30 - And someone said to him, Lord, will those who are saved be few? And he said to them, Strive to
+  enter through the narrow door. For many, I tell you, will seek to enter and will not be able. When once the
+  master of the house has risen and shut the door, and you begin to stand outside and to knock at the door,
+  saying, Lord, open to us, then he will answer you, I do not know where you come from. Then you will begin to
+  say, We ate and drank in your presence, and you taught in our streets. But he will say, I tell you, I do not
+  know where you come from. Depart from me, all you workers of evil! In that place there will be weeping and
+  gnashing of teeth, when you see Abraham and Isaac and Jacob and all the prophets in the kingdom of God but you
+  yourselves cast out. And people will come from east and west, and from north and south, and recline at table in
+  the kingdom of God. And behold, some are last who will be first, and some are first who will be last. (ESV)
+
+  John 10:7-10 - So Jesus again said to them, Truly, truly, I say to you, I am the door of the sheep. All who came
+  before me are thieves and robbers, but the sheep did not listen to them. I am the door. If anyone enters by me,
+  he will be saved and will go in and out and find pasture. The thief comes only to steal and kill and destroy. I
+  came that they may have life and have it abundantly. (ESV)
+
+  Isaiah 1:4-5 - Ah, sinful nation, a people laden with iniquity, offspring of evildoers, children who deal
+  corruptly! They have forsaken the LORD, they have despised the Holy One of Israel, they are utterly estranged.
+  Why will you still be struck down? Why will you continue to rebel? The whole head is sick, and the whole heart
+  faint. (ESV)
+
+Basically, we must "cease to do evil" and "learn to do good". So, consider, if we "cease to do evil", that's
+simply stopping doing evil. Is that relying on one's own works? I don't think so. But, rather, still ready to do
+good now that have ceased to do evil:
+
+  Isaiah 1:16-20 - Wash ye, make ye pure, Turn aside the evil of your doings, from before Mine eyes, Cease to do
+  evil, learn to do good. Seek judgment, make happy the oppressed, Judge the fatherless, strive for the widow.
+  Come, I pray you, and we reason, saith Jehovah, If your sins are as scarlet, as snow they shall be white, If
+  they are red as crimson, as wool they shall be! If ye are willing, and have hearkened, The good of the land ye
+  consume, And if ye refuse, and have rebelled, By the sword ye are consumed, For the mouth of Jehovah hath
+  spoken. (YLT)
+
+The way of cain is the way of not having faith. The way of cain is from the love of darkness doing evil deeds. But
+we must not walk in the way of Cain. Rather, we should walk in the way of Abel, which is to walk by faith:
+
+  Hebrews 11:4 - By faith Abel offered to God a more acceptable sacrifice than Cain, through which he was
+  commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he
+  still speaks. (ESV)
+
+  END[QUOTE]
+
+  #+BEGIN[QUOTE] Jude 1:11 - Woe to them! For they walked in the way of Cain and abandoned themselves for the sake
+  of gain to Balaam's error and perished in Korah's rebellion. (ESV)
+
+  Hebrews 3:7-12 - Therefore, as the Holy Spirit says, Today, if you hear his voice, do not harden your hearts as
+  in the rebellion, on the day of testing in the wilderness, where your fathers put me to the test and saw my
+  works for forty years. Therefore I was provoked with that generation, and said, They always go astray in their
+  heart; they have not known my ways. As I swore in my wrath, They shall not enter my rest. Take care, brothers,
+  lest there be in any of you an evil, unbelieving heart, leading you to fall away from the living God. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 3:19-21 - And this is the judgment: the light has come into the world, and people loved the darkness rather
+  than the light because their deeds were evil. For everyone who does wicked things hates the light and does not
+  come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that
+  it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+This striving is endeavouring to walk by faith in Jesus Christ rather than committing sin, enduring the resistance
+from people who appear to not be, and from the flesh, the world and the devil:
+
+  Proverbs 28:4 - Those who forsake the law praise the wicked, But those who keep the law strive with them. (NASB)
+
+  Psalms 103:9 - He will not always strive with us, Nor will He keep His anger forever. (NASB)
+
+To enter the Kingdom of God, one must do the will of God, and the will of God involves doing good rather than
+evil. So must we be those who good in order to enter the Kingdom of God? Yes we must. And it's by the grace of
+God. Jesus Christ bore our sins in His body on the tree, that we might die to sin and live to righteousness, and
+this dying to sin is necessary in order to enter the Kingdom of God:
+
+  I Peter 2:15-25 - For this is the will of God, that by doing good you should put to silence the ignorance of
+  foolish people. Live as people who are free, not using your freedom as a cover-up for evil, but living as
+  servants of God. Honor everyone. Love the brotherhood. Fear God. Honor the emperor. Servants, be subject to your
+  masters with all respect, not only to the good and gentle but also to the unjust. For this is a gracious thing,
+  when, mindful of God, one endures sorrows while suffering unjustly. For what credit is it if, when you sin and
+  are beaten for it, you endure? But if when you do good and suffer for it you endure, this is a gracious thing in
+  the sight of God. For to this you have been called, because Christ also suffered for you, leaving you an
+  example, so that you might follow in his steps. He committed no sin, neither was deceit found in his mouth. When
+  he was reviled, he did not revile in return; when he suffered, he did not threaten, but continued entrusting
+  himself to him who judges justly. He himself bore our sins in his body on the tree, that we might die to sin and
+  live to righteousness. By his wounds you have been healed. For you were straying like sheep, but have now
+  returned to the Shepherd and Overseer of your souls. (ESV)
+
+So by the grace of God we must be healed to do good rather than evil, but there is still a striving to enter into
+the Kingdom of God, even as someone who has been born-again of the spirit, as being born-again of the spirit is
+one requirement for entering the Kingdom of God, but doing the will of God is also a requirement for entering the
+Kingdom of God. In order to enter the Kingdom of God a person must not still be someone who makes a practice of
+sinning, but they also must be "born-again" of the spirit, and we are born-again of the spirit in order that we
+can "put to death the deeds of the sinful body":
+
+  Romans 6:6-8 - We know that our old self was crucified with him in order that the body of sin might be brought
+  to nothing, so that we would no longer be enslaved to sin. For one who has died has been set free from sin. Now
+  if we have died with Christ, we believe that we will also live with him. (ESV)
+
+  Romans 2:1-13 - Therefore you have no excuse, O man, every one of you who judges. For in passing judgment on
+  another you condemn yourself, because you, the judge, practice the very same things. We know that the judgment
+  of God rightly falls on those who do such things. Do you suppose, O man—you who judge those who do such things
+  and yet do them yourself—that you will escape the judgment of God? Or do you presume on the riches of his
+  kindness and forbearance and patience, not knowing that God's kindness is meant to lead you to repentance? But
+  because of your hard and impenitent heart you are storing up wrath for yourself on the day of wrath when God's
+  righteous judgment will be revealed. He will render to each one according to his works: to those who by patience
+  in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are
+  self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be
+  tribulation and distress for every human being who does evil, the Jew first and also the Greek, but glory and
+  honor and peace for everyone who does good, the Jew first and also the Greek. For God shows no partiality. For
+  all who have sinned without the law will also perish without the law, and all who have sinned under the law will
+  be judged by the law. For it is not the hearers of the law who are righteous before God, but the doers of the
+  law who will be justified. (ESV)
+
+If someone does a good deed from faith then by definition they ceased doing evil deeds. So we must have died to
+sin, and be walking by faith in Jesus Christ. So it makes sense to consider how to stir up one-another to lve and
+good works:
+
+  Hebrews 10:23-29 - Let us hold fast the confession of our hope without wavering, for he who promised is
+  faithful. And let us consider how to stir up one another to love and good works, not neglecting to meet
+  together, as is the habit of some, but encouraging one another, and all the more as you see the Day drawing
+  near. For if we go on sinning deliberately after receiving the knowledge of the truth, there no longer remains a
+  sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume the adversaries.
+  Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three witnesses. How much
+  worse punishment, do you think, will be deserved by the one who has spurned the Son of God, and has profaned the
+  blood of the covenant by which he was sanctified, and has outraged the Spirit of grace? (ESV)
+
+  Romans 8:12-15 - So then, brothers, we are debtors, not to the flesh, to live according to the flesh. For if you
+  live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will
+  live. For all who are led by the Spirit of God are sons of God. For you did not receive the spirit of slavery to
+  fall back into fear, but you have received the Spirit of adoption as sons, by whom we cry, Abba! Father! (ESV)
 
 Within the Kingdom of God, there is rank depending on the adherance to all of God's commandments:
 
@@ -136733,11 +136866,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-08 Tue 17:34
+Date: 2026-09-09 Wed 13:32
 
 Author: Shane Mulligan
 
-Created: 2026-09-08 Tue 17:41
+Created: 2026-09-09 Wed 14:53
 
 Validate
 
