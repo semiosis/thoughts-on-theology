@@ -299,6 +299,93 @@ grace when I was born-again:
   Jude 1:20-21 - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep
   yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
 
+I am not the same person as the person who died in baptism on 2 April 2022. 2 April 2022 is the death day of my
+previous self. It's very important then to walk in faith, love, holiness and truth. The former manner of life is
+corrupt and must be put off. Rather, we must put on the new self:
+
+  Romans 6:6 - We know that our old self was crucified with him in order that the body of sin might be brought to
+  nothing, so that we would no longer be enslaved to sin. (ESV)
+
+  Colossians 3:9-10 - Do not lie to one another, seeing that you have put off the old self with its practices and
+  have put on the new self, which is being renewed in knowledge after the image of its creator. (ESV)
+
+  Ephesians 4:17-24 - Now this I say and testify in the Lord, that you must no longer walk as the Gentiles do, in
+  the futility of their minds. They are darkened in their understanding, alienated from the life of God because of
+  the ignorance that is in them, due to their hardness of heart. They have become callous and have given
+  themselves up to sensuality, greedy to practice every kind of impurity. But that is not the way you learned
+  Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, to put off
+  your old self, which belongs to your former manner of life and is corrupt through deceitful desires, and to be
+  renewed in the spirit of your minds, and to put on the new self, created after the likeness of God in true
+  righteousness and holiness. (ESV)
+
+If a person does good from faith in Jesus Christ and His words and commandments then when they are doing good they
+are not doing evil.
+
+  Galatians 5:16-17 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the
+  desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are
+  opposed to each other, to keep you from doing the things you want to do. (ESV)
+
+  Galatians 3:24 - So then, the law was our guardian until Christ came, in order that we might be justified by
+  faith. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  Hebrews 3:12-13 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. (ESV)
+
+The faith which a person is justified by is counted distinctly from (G5565 chōris) any corresponding external
+actions and distinctly from any corresponding law. This is very clearly not implying that a person doesn't have
+corresponding works (e.g. Abel's offering was done in faith), and very clearly not implying that a person does not
+seek to keep some law as they exercise their faith. But it's the faith which is counted distinctly from any
+corresponding external action or law:
+
+  Romans 3:20-25 - For by works of the law no human being will be justified in his sight, since through the law
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+  (G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in
+  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
+  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
+  forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
+  in his divine forbearance he had passed over former sins. (ESV)
+
+This is what is truly justification by faith 'alone', rather than what an antinomian / disobedient / faithless
+person might think faith alone is.
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  I John 3:3-11 - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice
+  of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in
+  him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him
+  or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. (ESV)
+
+So we should "do good". Putting on the new self, and be renewed in mind, and truly love in the way which God
+requires:
+
+  Luke 6:32-36 - If you love those who love you, what benefit is that to you? For even sinners love those who love
+  them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same.
+  And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to
+  sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return,
+  and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the
+  evil. Be merciful, even as your Father is merciful. (ESV)
+
+  Isaiah 1:16-17 - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes;
+  cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the
+  widow's cause. (ESV)
+
 All things being new from my perspective, I believe God's will for me is to go on bearing with my family in Christ
 in love and forgiveness (Colossians 3:12-13) towards them. As for my neighbour generally, I forgive any offences
 against me personally. I'll endeavour in the imitation of Jesus to preach the gospel of God, and not be quick to
@@ -509,6 +596,28 @@ glorifies Father God (John 15:8).
   blessed in his doing. (ESV)
 
   John 15:8 - By this my Father is glorified, that you bear much fruit and so prove to be my disciples. (ESV)
+
+Be a doer of the word even when people around you (including those who profess to have faith in Jesus) do not
+appear to be doing the word:
+
+  Matthew 23:2-4 - The scribes and the Pharisees sit on Moses' seat, so practice and observe whatever they tell
+  you—but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay
+  them on people's shoulders, but they themselves are not willing to move them with their finger. (ESV)
+
+  James 1:23 - For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his
+  natural face in a mirror. (ESV)
+
+  James 4:11 - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his
+  brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law
+  but a judge. (ESV)
+
+  John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
+  And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
+  may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not
+  come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge;
+  the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the
+  Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his
+  commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
 
 When Jesus says that He has made "known", it's implied that the people that Jesus has made known what He heard
 from His Father "do" what He commands. So there is a knowing that comes not just from hearing but from doing:
@@ -1709,7 +1818,7 @@ away from sin and has faith in Jesus will get born-again (Ezekiel 18:31, John 11
   will never see death. (ESV)
 
 When a person is "born-again", they are baptized into Jesus Christ's death, and so have died and been set free
-(aquitted) from sin, cleansed from former sin, and they are reborn, born of the Spirit. So all things have become
+(acquitted) from sin, cleansed from former sin, and they are reborn, born of the Spirit. So all things have become
 new for them. But being born-again, we need to continue to do the will of God for us (I Thessalonians 5:18). We
 must continue abiding in Jesus Christ's commandments, in love for God and one's neighbour and practicing
 righteousness, not wickedness:
@@ -3784,6 +3893,8 @@ this commandment in reality. The good soil would not fall away:
   John 5:18 - This was why the Jews were seeking all the more to kill him, because not only was he breaking the
   Sabbath, but he was even calling God his own Father, making himself equal with God. (ESV)
 
+  II Timothy 4:7 - I have fought the good fight, I have finished the race, I have kept the faith. (ESV)
+
 It's wise to receive Jesus and His words and do as Jesus commands:
 
   Mark 4:17 - And they have no root in themselves, but endure for a while; then, when tribulation or persecution
@@ -4782,11 +4893,11 @@ and love for the truth (John 14:15, John 8:31-47, Romans 14:23):
   some have died. But if we judged ourselves truly, we would not be judged. But when we are judged by the Lord, we
   are disciplined so that we may not be condemned along with the world. (ESV)
 
-What faith choris law means is that it's the faith that is counted distinctly from any corresponding works or law,
-the way in which you could count a person's heart attitude as distinct from any external action or commandment.
-God looks at the faith, the heart posture to Him, rather than His commendation resting solely on external actions
-(For example, "managing to confess sin verbally to another follower of Christ", or "managing to use exactly bread
-and wine when taking communion").
+What faith chōris (G5565 chōris) law means is that it's the faith that is counted distinctly from any
+corresponding works or law, the way in which you could count a person's heart attitude as distinct from any
+external action or commandment. God looks at the faith, the heart posture to Him, rather than His commendation
+resting solely on external actions (For example, "managing to confess sin verbally to another follower of Christ",
+or "managing to use exactly bread and wine when taking communion").
 
 Salvation involves both justification and sanctification, though, justification being God's righteousness given to
 the person who has a heart attitude of loving faith in Jesus Christ and sanctification which is a process of being
@@ -4806,16 +4917,16 @@ Justification clearly does not mean the same thing as salvation as Romans 10:10 
 justified for having faith in Jesus Christ in their heart then they can be saved (they then may call out to God
 for deliverance saying, for example, "Please save me, LORD Jesus Christ, Yahweh, Son of God."):
 
-  Romans 3:21,9:31,10:4-10 - But now the righteousness of God has been manifested apart from the law, although the
-  Law and the Prophets bear witness to it— but that Israel who pursued a law that would lead to righteousness did
-  not succeed in reaching that law. For Christ is the end of the law for righteousness to everyone who believes.
-  For Moses writes about the righteousness that is based on the law, that the person who does the commandments
-  shall live by them. But the righteousness based on faith says, Do not say in your heart, Who will ascend into
-  heaven? (that is, to bring Christ down) or Who will descend into the abyss? (that is, to bring Christ up from
-  the dead). But what does it say? The word is near you, in your mouth and in your heart (that is, the word of
-  faith that we proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart
-  that God raised him from the dead, you will be saved. For with the heart one believes and is justified, and with
-  the mouth one confesses and is saved. (ESV)
+  Romans 3:21,9:31,10:4-10 - But now the righteousness of God has been manifested apart from (G5565 chōris) the
+  law (G3551 nomou), although the Law and the Prophets bear witness to it— but that Israel who pursued a law that
+  would lead to righteousness did not succeed in reaching that law. For Christ is the end of the law for
+  righteousness to everyone who believes. For Moses writes about the righteousness that is based on the law, that
+  the person who does the commandments shall live by them. But the righteousness based on faith says, Do not say
+  in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the abyss?
+  (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth and in
+  your heart (that is, the word of faith that we proclaim); because, if you confess with your mouth that Jesus is
+  Lord and believe in your heart that God raised him from the dead, you will be saved. For with the heart one
+  believes and is justified, and with the mouth one confesses and is saved. (ESV)
 
   Romans 10:14-21 - But how are they to call on him in whom they have not believed? And how are they to believe in
   him of whom they have never heard? And how are they to hear without someone preaching? And how are they to
@@ -4846,15 +4957,19 @@ the third day and has ascended into heaven":
   Mark 16:16 - Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
   (ESV)
 
-So faith is counted distinctly from (G5565 chōris) any corresponding external actions:
+The faith which a person is justified by is counted distinctly from (G5565 chōris) any corresponding external
+actions and distinctly from any corresponding law. This is very clearly not implying that a person doesn't have
+corresponding works (e.g. Abel's offering was done in faith), and very clearly not implying that a person does not
+seek to keep some law as they exercise their faith. But it's the faith which is counted distinctly from any
+corresponding external action or law:
 
   Romans 3:20-25 - For by works of the law no human being will be justified in his sight, since through the law
-  comes knowledge of sin. But now the righteousness of God has been manifested apart from the law, although the
-  Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who
-  believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified
-  by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation
-  by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance
-  he had passed over former sins. (ESV)
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+  (G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in
+  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
+  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
+  forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
+  in his divine forbearance he had passed over former sins. (ESV)
 
 So, for example, we should never 'rely' merely (Mark 16:15-16) on "having been baptised" (Acts 8:13-23) or on
 merely, say, being physically circumcised (Galatians 5:1-7). But we must have a circumcised heart (Romans 2:29).
@@ -6600,6 +6715,8 @@ inheritance in the kingdom of Christ and God (Galatians 5:18-25):
   believed in him, were sealed with the promised Holy Spirit, who is the guarantee (G728 earnest, pledge, a token
   of what is to come) of our inheritance until we acquire possession of it, to the praise of his glory. (ESV)
 
+  II Timothy 4:7 - I have fought the good fight, I have finished the race, I have kept the faith. (ESV)
+
 (G728 earnest, pledge, a token of what is to come)
 
  | Original Word: ἀρραβών
@@ -6668,27 +6785,27 @@ soil (the good soil is the one who hears the word and understands it). And so th
 
 But the good soil is of the field which is the world and their nature is the flesh. God softens the heart to
 receive the word, and when they get born-again of the spirit their old self dies and they receive a new heart and
-spirit. Then their old self dies, the seed also dies, I believer, but the person is reborn. If that person then
+spirit. Then their old self dies, the seed also dies, I believe, but the person is reborn. If that person then
 goes on believing in Jesus Christ they are "in Christ" and "born of God".
 
 The seed that is in the "person's heart", even before they are born-again, that seed is "in Christ" and born of
 God. Getting born-again, a person can put to death the "deeds" of the body (which means going on walking by the
-spirit as they live by the spirit from a desire for the truth rather than for evil). A deed comes from some heart
-attitute (from faith or not from faith, from love for the truth or love for evil). So getting born-again of the
-spirit, we should walk by the spirit as we live by the spirit.
+spirit rather than the lusts of the flesh) from a desire for the truth rather than for evil. A deed comes from
+some heart attitude (from faith or not from faith, from love for the truth or love for evil). So getting
+born-again of the spirit, we should walk by the spirit as we live by the spirit.
 
 Being born-again, they are a new spirit (redeemed spirit) but inside old flesh that still has indwelling sin, and
 they await the redemption of their body (Romans 8:23-25).
 
 I guess that after getting born-again of the spirit there is still a battle with the old flesh. Before getting
 born-again, there is no clear conflict as the person is a child of wrath by nature. Getting born-again, a person
-has died and been set free (aquitted) from sin. After getting born-again, the sinful flesh rebels against the
+has died and been set free (acquitted) from sin. After getting born-again, the sinful flesh rebels against the
 person's new nature. And so there is still a very real battle as we strive to walk by the spirit rather than by
 the flesh.
 
 There is no condemnation for those who are "in Christ". Those who are "in Christ" do not sin, and love as
 commanded and agree with the person and work of Jesus Christ. They confess that He is the Son of God, for
-instance.
+instance. But the sinful flesh is not in Christ but is rather condemned (Romans 8:3-4).
 
 And that person who is "in Christ", they are led by the spirit, and desire to do what is right, and there is no
 condemnation for them.
@@ -6801,6 +6918,8 @@ know that the spirit of Jesus Christ abides in them:
 
   I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
   in us, by the Spirit whom he has given us. (ESV)
+
+  II Timothy 4:7 - I have fought the good fight, I have finished the race, I have kept the faith. (ESV)
 
 Sin empowered by the law kills a believer (who is not yet born-again) at some point because they can't keep the
 law, yet though they die they will live because they have faith in Jesus Christ (John 11:25-27). The person who
@@ -8548,6 +8667,34 @@ with faith.
   their covetousness. And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can
   play well on an instrument: for they hear thy words, but they do them not. (KJV)
 
+The gospel is to bring us into relationship with the Father and with Jesus Christ and with one-another in Christ.
+
+  Revelation of John 3:20 - Behold, I stand at the door and knock. If anyone hears my voice and opens the door, I
+  will come in to him and eat with him, and he with me. (ESV)
+
+  John 17:3 - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent.
+  (ESV)
+
+  I John 1:3 - that which we have seen and heard we proclaim also to you, so that you too may have fellowship with
+  us; and indeed our fellowship is with the Father and with his Son Jesus Christ. (ESV)
+
+How do we get there? By keeping His commandments. Real fellowship is with one-another spiritually:
+
+  I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+  I John 1:6-7 - If we say we have fellowship with him while we walk in darkness, we lie and do not practice the
+  truth. But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of
+  Jesus his Son cleanses us from all sin. (ESV)
+
+  I John 3:23-24 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
+  another, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this
+  we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+  I John 2:11-12 - But whoever hates his brother is in the darkness and walks in the darkness, and does not know
+  where he is going, because the darkness has blinded his eyes. I am writing to you, little children, because your
+  sins are forgiven for his name's sake. (ESV)
+
 Journal <2026-06-25 Thu 13:03>
 
 Firstly, I've been born-again of the spirit. God has indeed done a work in me to give me a heart that fears Him
@@ -9524,14 +9671,14 @@ entails hatred of evil, and hatred of evil entails having faith in God:
 God is just when He justifies. God is right when He declares someone is walking rightly. When God justifies a
 person, then they have His righteousness:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified (G1344
-  dikaioumenoi; being justified) by his grace as a gift, through the redemption that is in Christ Jesus, whom God
-  put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness,
-  because in his divine forbearance he had passed over former sins. It was to show his righteousness at the
-  present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344 dikaiounta; justifying)
-  of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified (G1344 dikaioumenoi; being justified) by his grace as a gift, through the redemption that is
+  in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his
+  righteousness at the present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344
+  dikaiounta; justifying) of the one who has faith in Jesus. (ESV)
 
   Psalms 103:17-18 - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him,
   and his righteousness to children's children, to those who keep his covenant and remember to do his
@@ -11361,6 +11508,8 @@ Clearly we must continue in the faith:
   confidence and our boasting in our hope. (ESV)
 
   Hebrews 3:14 - For we share in Christ, if indeed we hold our original confidence firm to the end. (ESV)
+
+  II Timothy 4:7 - I have fought the good fight, I have finished the race, I have kept the faith. (ESV)
 
 Maintain faith in Jesus. Remain in Him:
 
@@ -14469,11 +14618,12 @@ the law fulfilled in us in reality, in light of the facts about Jesus.
   Romans 3:19-25 - Now we know that whatever the law says it speaks to those who are under the law, so that every
   mouth may be stopped, and the whole world may be held accountable to God. For by works of the law no human being
   will be justified in his sight, since through the law comes knowledge of sin. But now the righteousness of God
-  has been manifested apart from the law, although the Law and the Prophets bear witness to it— the righteousness
-  of God through faith in Jesus Christ for all who believe. For there is no distinction: for all have sinned and
-  fall short of the glory of God, and are justified by his grace as a gift, through the redemption that is in
-  Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show
-  God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
+  has been manifested apart from (G5565 chōris) the law (G3551 nomou), although the Law and the Prophets bear
+  witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For there is no
+  distinction: for all have sinned and fall short of the glory of God, and are justified by his grace as a gift,
+  through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood, to be
+  received by faith. This was to show God's righteousness, because in his divine forbearance he had passed over
+  former sins. (ESV)
 
 So a person has to have "died" with Christ that they might belong to Christ. When a person is judged by the law
 (Romans 7:9-13), their "body" is "dead/killed" because of sin in the body because they are unable to keep the
@@ -14663,12 +14813,12 @@ God. A person who has the love of Jesus Christ in them is justified by that fact
 justified by being good but only in that the good that justifies them is the love for Jesus Christ that they have
 in their heart:
 
-  Romans 3:21-25 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. (ESV)
+  Romans 3:21-25 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. (ESV)
 
 False obedience is where there is no love for God in the heart:
 
@@ -16177,13 +16327,13 @@ gift, though the redemption that is in Christ Jesus:
 Justification and propitiation are received by faith in Jesus Christ (by trusting and obeying Jesus Christ). The
 reason why faith in Jesus Christ is effective for propitiation is because of Jesus Christ's blood:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 The power of God to salvation is by God's grace. In the Lord (i.e. abiding in Jesus' commandments, holding faith
 in Jesus Christ and having love for one-another as commanded, one's work is not in vain because it's empowered by
@@ -16302,14 +16452,14 @@ love for one-another), God declares us to be walking rightly, and we are freed f
 God is just when He justifies. God is right when He declares someone is walking rightly. When God justifies a
 person, then they have His righteousness:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified (G1344
-  dikaioumenoi; being justified) by his grace as a gift, through the redemption that is in Christ Jesus, whom God
-  put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness,
-  because in his divine forbearance he had passed over former sins. It was to show his righteousness at the
-  present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344 dikaiounta; justifying)
-  of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified (G1344 dikaioumenoi; being justified) by his grace as a gift, through the redemption that is
+  in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his
+  righteousness at the present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344
+  dikaiounta; justifying) of the one who has faith in Jesus. (ESV)
 
   Psalms 103:17-18 - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him,
   and his righteousness to children's children, to those who keep his covenant and remember to do his
@@ -16956,17 +17106,17 @@ Jesus' perfect soul was made an offering for sin:
 
 The faith we must have is still law, but it's not a law of works:
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 It's "by the 'works', specifically, of the law", the Mosaic Law, that no mere human being will be justified in
 God's sight and in Romans 3:20 Paul is referring to what came in through Moses to increase the trespass. Paul is
@@ -17036,10 +17186,10 @@ Truth, and so the other sense of the word "alḗtheia" which is "reality" is use
   last days he has spoken to us by his Son, whom he appointed the heir of all things, through whom also he created
   the world. (ESV)
 
-  Romans 3:21-24 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, (ESV)
+  Romans 3:21-24 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, (ESV)
 
   Isaiah 45:19 - I did not speak in secret, in a land of darkness; I did not say to the offspring of Jacob, Seek
   me in vain. I the LORD speak the truth; I declare what is right. (ESV)
@@ -19194,17 +19344,17 @@ Jesus Christ. That propitiation for sin is available to all people to be receive
 There is a righteousness that we can have through faith (imputed righteousness) and there is propitiation for sin
 that we might commit even after coming to faith:
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 When a person receives Jesus Christ, they are in agreement with God that Jesus Christ is His good Son with whom
 Father God is well pleased.
@@ -19237,14 +19387,14 @@ having faith in Him.
 God is just when He justifies. God is right when He declares someone is walking rightly. When God justifies a
 person, then they have His righteousness:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified (G1344
-  dikaioumenoi; being justified) by his grace as a gift, through the redemption that is in Christ Jesus, whom God
-  put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness,
-  because in his divine forbearance he had passed over former sins. It was to show his righteousness at the
-  present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344 dikaiounta; justifying)
-  of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified (G1344 dikaioumenoi; being justified) by his grace as a gift, through the redemption that is
+  in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his
+  righteousness at the present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344
+  dikaiounta; justifying) of the one who has faith in Jesus. (ESV)
 
   Psalms 103:17-18 - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him,
   and his righteousness to children's children, to those who keep his covenant and remember to do his
@@ -19403,13 +19553,13 @@ gift, though the redemption that is in Christ Jesus:
 Justification and propitiation are received by faith in Jesus Christ (by trusting and obeying Jesus Christ). The
 reason why faith in Jesus Christ is effective for propitiation is because of Jesus Christ's blood:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 Our faith in Jesus Christ, hoping in Jesus Christ, is not in vain if Jesus Christ was raised from the dead.
 Believing that Jesus was raised from the dead, we are motivated to follow Him. Jesus is the Way, so we follow Him
@@ -24241,17 +24391,17 @@ want to rebel against God's law. Perfect compliance to the law is no longer the 
 seek to not break the law. One of Paul's points here is that the Gentiles did not have the Law given through
 Moses. So the works of the Law that Paul is talking about are the works of the Mosaic Law:
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 We can have and should have a faith that loves the truth, loves Jesus, even if we haven't seen Him yet:
 
@@ -24313,15 +24463,15 @@ in Him, and to put faith in Him and His blood is obedient to the commandment of 
   we say? That God is unrighteous to inflict wrath on us? (I speak in a human way.) By no means! For then how
   could God judge the world? (ESV)
 
-  Romans 3:21-28 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it — the righteousness of God through faith in Jesus Christ for all who believe.
-  For there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his
-  grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his
-  blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance he had
-  passed over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. (ESV)
+  Romans 3:21-28 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it — the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. (ESV)
 
 This is a short preview of where I'm at with my theology. I don't claim to know everything or to have perfect
 theology:
@@ -27131,17 +27281,17 @@ We must love one another the way God has commanded us:
 
 The faith we must have is still law, but it's not a law of works:
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
   I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. (ESV)
@@ -29342,6 +29492,11 @@ God.
   his ministers a flame of fire. But of the Son he says, Your throne, O God, is forever and ever, the scepter of
   uprightness is the scepter of your kingdom. You have loved righteousness and hated wickedness; therefore God,
   your God, has anointed you with the oil of gladness beyond your companions. (ESV)
+
+  Zechariah 2:8-10 - For thus says JEHOVAH of hosts: 'For honor he has sent me to the nations which plundered you;
+  for he who touches you touches the apple of his eye. For, behold, I will shake my hand over them, and they will
+  be a spoil to those who served them; and you will know that JEHOVAH of hosts has sent me. Sing and rejoice,
+  daughter of Zion; for, behold, I come, and I will dwell in the midst of you,' says JEHOVAH. (NHEBJE)
 
 Jesus is the Word of God made flesh and all His words are spirit and life
 
@@ -31678,13 +31833,13 @@ ourselves. Faith continues. I think it's really important to believe, trust in a
 Abraham's faith was like - it was believing, trusting and obedient:
 
   Romans 3:20-26 - For by works of the law no human being will be justified in his sight, since through the law
-  comes knowledge of sin. But now the righteousness of God has been manifested apart from the law, although the
-  Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who
-  believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified
-  by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation
-  by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance
-  he had passed over former sins. It was to show his righteousness at the present time, so that he might be just
-  and the justifier of the one who has faith in Jesus. (ESV)
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+  (G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in
+  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
+  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
+  forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
+  in his divine forbearance he had passed over former sins. It was to show his righteousness at the present time,
+  so that he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 Those in the kingdom of God hold faith in Jesus and serve Jesus:
 
@@ -33447,13 +33602,13 @@ Jesus is stronger than anything:
 
 The redemption is a gift that is received through faith in Jesus, faith in His blood:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 Faith is commanded so is inseparable from obedience. It's the real gospel, the one that calls people to obedience
 by word and deed. Obedience which leads to righteousness. The elementary doctrine/teachings/commandments of
@@ -47321,12 +47476,12 @@ Justification comes through through the righteousness of living by faith:
 We are justified by His grace as a free gift through the redemption that is in Christ Jesus, received by [living
 by] faith:
 
-  Romans 3:21-25 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. (ESV)
+  Romans 3:21-25 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. (ESV)
 
 It's faith in God through faith in Jesus Christ, the same Jesus Christ who atoned for our sin. We go from serving
 sin to serving God through serving Jesus:
@@ -47353,10 +47508,10 @@ that is in Christ which we are partakers of:
   Romans 10:10 - For with the heart one believes and is justified, and with the mouth one confesses and is saved.
   (ESV)
 
-  Romans 3:21-24 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, (ESV)
+  Romans 3:21-24 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, (ESV)
 
   Romans 4:20-25 - No distrust made him waver concerning the promise of God, but he grew strong in his faith as he
   gave glory to God, fully convinced that God was able to do what he had promised. That is why his faith was
@@ -48612,16 +48767,16 @@ The redemption is received through faith in Jesus' atoning blood (in His passion
 resurrection):
 
   Romans 3:20-28 - For by works of the law no human being will be justified in his sight, since through the law
-  comes knowledge of sin. But now the righteousness of God has been manifested apart from the law, although the
-  Law and the Prophets bear witness to it — the righteousness of God through faith in Jesus Christ for all who
-  believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified
-  by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation
-  by his blood, to be received by faith [through (G2435 dia) faith (G4102 pisteōs) in His (G846 autou) blood (G129
-  haimati)]. This was to show God's righteousness, because in his divine forbearance he had passed over former
-  sins. It was to show his righteousness at the present time, so that he might be just and the justifier of the
-  one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of law? By a law of
-  works? No, but by the law of faith. For we hold that one is justified by faith apart from works of the law.
-  (ESV)
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+  (G3551 nomou), although the Law and the Prophets bear witness to it — the righteousness of God through faith in
+  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
+  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
+  forward as a propitiation by his blood, to be received by faith [through (G2435 dia) faith (G4102 pisteōs) in
+  His (G846 autou) blood (G129 haimati)]. This was to show God's righteousness, because in his divine forbearance
+  he had passed over former sins. It was to show his righteousness at the present time, so that he might be just
+  and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what
+  kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart
+  from works of the law. (ESV)
 
   Romans 3:25 - whom set forth as - God a propitiation through (G2435 dia) faith (G4102 pisteōs) in His (G846
   autou) blood (G129 haimati) for a showing forth of the righteousness of Him because of the forbearance (G3929
@@ -49561,14 +49716,14 @@ Christ has commanded us, and if a person is doing that then they are in-Christ.
 God is just when He justifies. God is right when He declares someone is walking rightly. When God justifies a
 person, then they have His righteousness:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified (G1344
-  dikaioumenoi; being justified) by his grace as a gift, through the redemption that is in Christ Jesus, whom God
-  put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness,
-  because in his divine forbearance he had passed over former sins. It was to show his righteousness at the
-  present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344 dikaiounta; justifying)
-  of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified (G1344 dikaioumenoi; being justified) by his grace as a gift, through the redemption that is
+  in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his
+  righteousness at the present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344
+  dikaiounta; justifying) of the one who has faith in Jesus. (ESV)
 
   Psalms 103:17-18 - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him,
   and his righteousness to children's children, to those who keep his covenant and remember to do his
@@ -49674,14 +49829,14 @@ God just wants us to take to the plough (Matthew 21:24-32) and not look back:
 God is just when He justifies. God is right when He declares someone is walking rightly. When God justifies a
 person, then they have His righteousness:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified (G1344
-  dikaioumenoi; being justified) by his grace as a gift, through the redemption that is in Christ Jesus, whom God
-  put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness,
-  because in his divine forbearance he had passed over former sins. It was to show his righteousness at the
-  present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344 dikaiounta; justifying)
-  of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified (G1344 dikaioumenoi; being justified) by his grace as a gift, through the redemption that is
+  in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his
+  righteousness at the present time, so that he might be just (G1342 dikaion; δίκαιον) and the justifier (G1344
+  dikaiounta; justifying) of the one who has faith in Jesus. (ESV)
 
   Psalms 103:17-18 - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him,
   and his righteousness to children's children, to those who keep his covenant and remember to do his
@@ -55919,17 +56074,17 @@ the Truth in them:
 
 The faith we must have is still law, but it's not a law of works:
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
   I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. (ESV)
@@ -58909,12 +59064,12 @@ It's faith in Jesus' name that is powerful, and it's with faith in Jesus' name t
 We are granted repentance to life; being a slave to righteousness leading to sanctification and at its end,
 eternal life. We expect to receive salvation as we have faith in Jesus Christ:
 
-  Romans 3:21-25 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins.
+  Romans 3:21-25 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins.
 
 AMEN!!
 
@@ -65518,13 +65673,13 @@ We should be sanctified by the Truth, as we trust in God, trust in Jesus, trust 
 We're not being justified by our works - we've already been redeemed, and we are justified by faith in Jesus, but
 we are also sanctified by faith in Jesus Christ. God is the one who justifies:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 We must be obedient to God, we must be obedient to Jesus, repenting and following His commandments to share His
 holiness:
@@ -66047,13 +66202,13 @@ When I read Jeremiah 17:9 or Romans 3:3-20, I only think of it as "falling short
 believe people can do good and evil. But without the atonement we can't be made perfect. This is the way I believe
 that Paul the Apostle also viewed it:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 We must do good. Christians must do good. Those who are self-seeking and do not obey the Truth, who do not obey
 Jesus, there will be wrath and fury:
@@ -69509,17 +69664,17 @@ Jesus Christ. That propitiation for sin is available to all people to be receive
 There is a righteousness that we can have through faith (imputed righteousness) and there is propitiation for sin
 that we might commit even after coming to faith:
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 We are sanctified through faith and obedience to Jesus Christ.
 
@@ -69662,13 +69817,13 @@ gift, though the redemption that is in Christ Jesus:
 Justification and propitiation are received by faith in Jesus Christ (by trusting and obeying Jesus Christ). The
 reason why faith in Jesus Christ is effective for propitiation is because of Jesus Christ's blood:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 Our faith in Jesus Christ, hoping in Jesus Christ, is not in vain if Jesus Christ was raised from the dead.
 Believing that Jesus was raised from the dead, we are motivated to follow Him. Jesus is the Way, so we follow Him
@@ -72177,17 +72332,17 @@ basis of our justification but we seek to not break the law. One of Paul's point
 not have the Law given through Moses. So the works of the Law that Paul is talking about are the works of the
 Mosaic Law:
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 #          Bible reference                     Verses to show these commandments are still important
@@ -73908,12 +74063,12 @@ Jesus, and it's the heart that matters most, because all the work may be burned 
 it's not the work that saves, it's faith, but I believe that faith necessitates love/obedience to Jesus, as one of
 His sheep.
 
-  Romans 3:21-25 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. (ESV)
+  Romans 3:21-25 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. (ESV)
 
 11.8.3. Believing the Word of Truth - sealed with the promised Holy Spirit
 
@@ -78238,13 +78393,13 @@ obedient to God and out of that obedient heart, they did what God had instructed
 
 Justification and redemption are a total gift:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 The redemption (ongoing sanctification) is granted as a gift through faith in Jesus:
 
@@ -79741,13 +79896,13 @@ faith in Jesus:
 
 God justifies the person who has faith in Jesus:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 Before accepting God's forgiveness yourself, submitting to the righteousness of God, believing that you were in
 need of God's forgiveness and accepting that Jesus' blood has atoned for our sin and placing our faith in Jesus so
@@ -82045,13 +82200,13 @@ story should be taken to see how Good God is, but also taken as a warning agains
 
 17.7.10. Justification and redemption are a total gift
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
   II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of God, and
   take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is
@@ -82157,13 +82312,13 @@ faith.
 
 Justification and redemption are a total gift:
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 Justification by works/obedience and justification by so-called 'faith alone' is, in my opinion, not a dichotomy,
 because all the good works we do as a consequence of being redeemed are a gift to us - us being in Him.
@@ -84570,14 +84725,14 @@ Faith is how we receive the propitiation by His blood. God justifies the one who
 Jesus. The law of faith is what we keep:
 
   Romans 3:20-27 - For by works of the law no human being will be justified in his sight, since through the law
-  comes knowledge of sin. But now the righteousness of God has been manifested apart from the law, although the
-  Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who
-  believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified
-  by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation
-  by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance
-  he had passed over former sins. It was to show his righteousness at the present time, so that he might be just
-  and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what
-  kind of law? By a law of works? No, but by the law of faith.
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+  (G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in
+  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
+  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
+  forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
+  in his divine forbearance he had passed over former sins. It was to show his righteousness at the present time,
+  so that he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting?
+  It is excluded. By what kind of law? By a law of works? No, but by the law of faith.
 
 Yes, the requirement of the law might be fulfilled in us, who do something i.e. walk according to the spirit.
 
@@ -88189,17 +88344,17 @@ forgiveness, etc., we can be justified by our faith in Jesus. As we go on living
 faith in Jesus, and no longer want to rebel against God's law. Perfect compliance to the law is no longer the
 basis of our justification but we seek to not break the law:
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 21.3. The law of the Spirit of life vs law of sin and death
 
@@ -89088,6 +89243,8 @@ A person must receive the word:
   cares of the world and the deceitfulness of riches and the desires for other things enter in and choke the word,
   and it proves unfruitful. But those that were sown on the good soil are the ones who hear the word and accept it
   and bear fruit, thirtyfold and sixtyfold and a hundredfold.
+
+  II Timothy 4:7 - I have fought the good fight, I have finished the race, I have kept the faith. (ESV)
 
 Because we keep His commandments, we receive from him whatever we ask. And our heart does not condemn us. And we
 have confidence before God.
@@ -101237,17 +101394,17 @@ for mercy, asking God to have mercy on us because Jesus died for our sins and th
 those who have faith in His blood. And God is just when He grants us mercy for a good conscience. But God is both
 just and the justifier.
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
 "Please save me from my sin because Jesus Christ, Son of God, died for me to rescue me from sin - I believe it."
 
@@ -107939,13 +108096,13 @@ ourselves. Faith continues. I think it's really important to believe, trust in a
 Abraham's faith was like - it was believing, trusting and obedient:
 
   Romans 3:20-26 - For by works of the law no human being will be justified in his sight, since through the law
-  comes knowledge of sin. But now the righteousness of God has been manifested apart from the law, although the
-  Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who
-  believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified
-  by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation
-  by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance
-  he had passed over former sins. It was to show his righteousness at the present time, so that he might be just
-  and the justifier of the one who has faith in Jesus. (ESV)
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+  (G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in
+  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
+  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
+  forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
+  in his divine forbearance he had passed over former sins. It was to show his righteousness at the present time,
+  so that he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
 If followed flawlessly then the law justifies. By faith in Jesus we await the hope of justification by God.
 
@@ -111213,17 +111370,17 @@ the Truth in them:
 
 The faith we must have is still law, but it's not a law of works:
 
-  Romans 3:21-31 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God
-  is one. He will justify the circumcised by faith and the uncircumcised through faith. Do we then overthrow the
-  law by this faith? By no means! On the contrary, we uphold the law. (ESV)
+  Romans 3:21-31 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. Or is God the God of Jews only? Is he not the God of Gentiles also? Yes,
+  of Gentiles also, since God is one. He will justify the circumcised by faith and the uncircumcised through
+  faith. Do we then overthrow the law by this faith? By no means! On the contrary, we uphold the law. (ESV)
 
   I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. (ESV)
@@ -119784,13 +119941,14 @@ empower us to do His will (*Hebrews 13:20-21), and to make pleasing spiritual sa
 How to get there?
 
 • Have faith in Jesus Christ Himself to receive the propitiation by His blood
-• Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the
-Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all
-who believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are
-justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as
-a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in
-his divine forbearance he had passed over former sins. It was to show his righteousness at the present
-time, so that he might be just and the justifier of the one who has faith in Jesus. (ESV)
+• Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+(G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through
+faith in Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall
+short of the glory of God, and are justified by his grace as a gift, through the redemption that is in
+Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to
+show God's righteousness, because in his divine forbearance he had passed over former sins. It was to
+show his righteousness at the present time, so that he might be just and the justifier of the one who has
+faith in Jesus. (ESV)
 • Practice the commandments of Christ in the Truth
 • I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and
 the blood of Jesus his Son cleanses us from all sin. (ESV)
@@ -121377,14 +121535,14 @@ how Jesus forgave the thief on the cross. Not by being above the Law, but by bea
 This is the Good News!!
 
   Romans 3:20-26,31 - For by works of the law no human being will be justified in his sight, since through the law
-  comes knowledge of sin. But now the righteousness of God has been manifested apart from the law, although the
-  Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who
-  believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified
-  by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation
-  by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance
-  he had passed over former sins. It was to show his righteousness at the present time, so that he might be just
-  and the justifier of the one who has faith in Jesus. Do we then overthrow the law by this faith? By no means! On
-  the contrary, we uphold the law. (ESV)
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+  (G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in
+  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
+  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
+  forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
+  in his divine forbearance he had passed over former sins. It was to show his righteousness at the present time,
+  so that he might be just and the justifier of the one who has faith in Jesus. Do we then overthrow the law by
+  this faith? By no means! On the contrary, we uphold the law. (ESV)
 
   Colossians 2:9-15 - For in him the whole fullness of deity dwells bodily, and you have been filled in him, who
   is the head of all rule and authority. In him also you were circumcised with a circumcision made without hands,
@@ -123723,8 +123881,9 @@ In my situation I obviously needed to hold faith in Jesus:
   Romans 3:19-22 - Now we know that whatever the law says it speaks to those who are under the law, so that every
   mouth may be stopped, and the whole world may be held accountable to God. For by works of the law no human being
   will be justified in his sight, since through the law comes knowledge of sin. But now the righteousness of God
-  has been manifested apart from the law, although the Law and the Prophets bear witness to it— the righteousness
-  of God through faith in Jesus Christ for all who believe. For there is no distinction: (ESV)
+  has been manifested apart from (G5565 chōris) the law (G3551 nomou), although the Law and the Prophets bear
+  witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For there is no
+  distinction: (ESV)
 
 And it means pleading guilty:
 
@@ -124880,15 +125039,15 @@ with God with regard to His commands and promises and maintaining faithfulness w
 
 We are justified through holding faith in Jesus:
 
-  Romans 3:21-28 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is excluded. By what kind of
-  law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works
-  of the law. (ESV)
+  Romans 3:21-28 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. Then what becomes of our boasting? It is
+  excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified
+  by faith apart from works of the law. (ESV)
 
 There is a way of following the commandments of God that is by faith, compatible with keeping faith in Jesus, and
 that is in seeking praise from God, not from men - it's not about trying to keep a good conscience by justifying
@@ -132315,10 +132474,10 @@ We should still love like the good Samaritan, but recognise that despite our bes
 short of the glory of God, and need God's grace so are justified by our faith in Jesus Christ, not works, but in
 faith we obey Jesus and in faith we love God and our neighbour and hope in God:
 
-  Romans 3:21-24 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, (ESV)
+  Romans 3:21-24 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, (ESV)
 
 We should not be the person who hides Jesus' money in the ground. But have a changed heart to desire to love in
 deed. After all Jesus purifies for Himself a people who are zealous for good works:
@@ -137455,13 +137614,13 @@ today.
  | In Jesus Christ's name I pray,
  |  AMEN!!
 
-  Romans 3:21-26 - But now the righteousness of God has been manifested apart from the law, although the Law and
-  the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For
-  there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace
-  as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood,
-  to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed
-  over former sins. It was to show his righteousness at the present time, so that he might be just and the
-  justifier of the one who has faith in Jesus. (ESV)
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
   Colossians 2:13-14 - And you, who were dead in your trespasses and the uncircumcision of your flesh, God made
   alive together with him, having forgiven us all our trespasses, by canceling the record of debt that stood
@@ -137485,11 +137644,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-10 Thu 19:59
+Date: 2026-09-11 Fri 09:37
 
 Author: Shane Mulligan
 
-Created: 2026-09-10 Thu 20:04
+Created: 2026-09-11 Fri 10:09
 
 Validate
 
