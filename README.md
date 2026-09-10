@@ -466,7 +466,9 @@ But as long as a person is able to be saved and brought back to faith in God, Go
 
 > **[Luke 22:31-32](https://www.biblegateway.com/passage/?search=Luke%2022%3A31-32&version=ESV)** - Simon, Simon, behold, Satan demanded to have you, that he might sift you like wheat, but I have prayed for you that your faith may not fail. And when you have turned again, strengthen your brothers. (ESV)
 
-A person can't just appeal to God for mercy to only go back to sinning, and think they still have justification (**[Ezekiel 18:20-24](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A20-24&version=ESV)**). A deed is some outward action coming from a heart attitude. Evil deeds come from a lack of faith:
+A person can't just appeal to God for mercy to only go back to sinning, and think they still have justification (**[Ezekiel 18:20-24](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A20-24&version=ESV)**, **[II Chronicles 7:14](https://www.biblegateway.com/passage/?search=2%20Chronicles%207%3A14&version=ESV)**). A deed is some outward action coming from a heart attitude. Evil deeds come from a lack of faith:
+
+> **[II Chronicles 7:14](https://www.biblegateway.com/passage/?search=2%20Chronicles%207%3A14&version=ESV)** - if my people who are called by my name humble themselves, and pray and seek my face and turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
 
 > **[II Timothy 2:12](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A12&version=ESV)** - if we endure, we will also reign with him; if we deny him, he also will deny us; (ESV)
 
@@ -1323,6 +1325,14 @@ We don't want to be children of wrath by choice (rather than by nature) after ge
 > **[Jude 1:14-18](https://www.biblegateway.com/passage/?search=Jude%201%3A14-18&version=ESV)** - It was also about these that Enoch, the seventh from Adam, prophesied, saying, Behold, the Lord came with ten thousands of his holy ones, to execute judgment on all and to convict all the ungodly of all their deeds of ungodliness that they have committed in such an ungodly way, and of all the harsh things that ungodly sinners have spoken against him. These are grumblers, malcontents, following their own sinful desires; they are loud-mouthed boasters, showing favoritism to gain advantage. But you must remember, beloved, the predictions of the apostles of our Lord Jesus Christ. They said to you, In the last time there will be scoffers, following their own ungodly passions. (ESV)
 
 People perish for lack of knowledge, knowledge that necessitates love for the truth:
+
+> **[Deuteronomy 30:17](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A17&version=ESV)** - But if your heart turns away, and you will not hear, but are drawn away to worship other gods and serve them, (ESV)
+
+> **[Jeremiah 7:24-26](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A24-26&version=ESV)** - And they have not hearkened, nor inclined their ear, And they walk in the counsels, In the stubbornness, of their evil heart, And are for backward, and not for forward. Even from the day when your fathers Went out of the land of Egypt till this day, I send to you all my servants the prophets, Daily rising early and sending, And they have not hearkened unto Me, Nor inclined their ear, and harden their neck, They have done evil above their fathers. (YLT)
+
+> **[Jeremiah 13:10](https://www.biblegateway.com/passage/?search=Jeremiah%2013%3A10&version=ESV)** - This evil people, who refuse to hear my words, who stubbornly follow their own heart and have gone after other gods to serve them and worship them, shall be like this loincloth, which is good for nothing. (ESV)
+
+> **[Ezekiel 33:31-32](https://www.biblegateway.com/passage/?search=Ezekiel%2033%3A31-32&version=ESV)** - And they come unto thee as the people cometh, and they sit before thee as my people, and they hear thy words, but they will not do them: for with their mouth they shew much love, but their heart goeth after their covetousness. And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can play well on an instrument: for they hear thy words, but they do them not. (KJV)
 
 > **[Hosea 4:6](https://www.biblegateway.com/passage/?search=Hosea%204%3A6&version=ESV)** - My people are destroyed for lack of knowledge; because you have rejected knowledge, I reject you from being a priest to me. And since you have forgotten the law of your God, I also will forget your children. (ESV)
 
@@ -3116,17 +3126,72 @@ I believe that a person can still be (have sin) sinful and enter the Kingdom of 
     
     > **[Galatians 5:18-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A18-25&version=ESV)** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. And **those who belong to Christ Jesus have crucified the flesh with its passions and desires.** If we live by the Spirit, let us also walk by the Spirit. (ESV)
     
-    I guess that a person can be an "unborn" child of God until they get born. But that seed in the heart is a person (Jesus said the good seed are the children of the Kingdom), and so when the person "born of God" is described, it is talking about a person who is/was this seed. The "seed of the word of God" is "in Christ", and the person who is born of the spirit (regenerated, baptised into Christ's death) is also "in Christ" so long as going on they are continuing walking by faith in Jesus Christ, abiding in His commandments.
+    There are two parables in Matthew 13 about "seed".
+    
+    This "good seed" here in **[Matthew 13:24-30](https://www.biblegateway.com/passage/?search=Matthew%2013%3A24-30&version=ESV)** refers to the children of the Kingdom and the field they are sown in is the world:
+    
+    > **[Matthew 13:24-30](https://www.biblegateway.com/passage/?search=Matthew%2013%3A24-30&version=ESV)** - He put another parable before them, saying, The kingdom of heaven may be compared to a man who sowed good seed in his field, but while his men were sleeping, his enemy came and sowed weeds among the wheat and went away. So when the plants came up and bore grain, then the weeds appeared also. And the servants of the master of the house came and said to him, Master, did you not sow good seed in your field? How then does it have weeds? He said to them, An enemy has done this. So the servants said to him, Then do you want us to go and gather them? But he said, No, lest in gathering the weeds you root up the wheat along with them. Let both grow together until the harvest, and at harvest time I will tell the reapers, Gather the weeds first and bind them in bundles to be burned, but gather the wheat into my barn. (ESV)
     
     > **[Matthew 13:38](https://www.biblegateway.com/passage/?search=Matthew%2013%3A38&version=ESV)** - The field is the world, and the good seed is the children of the kingdom. The weeds are the sons of the evil one, (ESV)
     
+    Here in **[Matthew 13:23](https://www.biblegateway.com/passage/?search=Matthew%2013%3A23&version=ESV)** the "good soil" which receives the seed of the word of God is the one who hears the word and underestands it and bears fruit.
+    So the "good soil" in this case is the believer, and if a person is a believer and they die (say, from sin empowered by the law, or whenever it happens, **[Romans 7:9-13](https://www.biblegateway.com/passage/?search=Romans%207%3A9-13&version=ESV)**, **[John 3:8](https://www.biblegateway.com/passage/?search=John%203%3A8&version=ESV), \*[Ezekiel 18:26-32](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A26-32&version=ESV)**), then they are born again (**[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)**, **[Romans 6:3-8](https://www.biblegateway.com/passage/?search=Romans%206%3A3-8&version=ESV)**).
+    
+    So I guess that a person can be an "unborn" child of God until they get born, but that child of God is the seed, and the good soil is the believer.
+    Positionally, for the good soil person (the believer), all things are new.
+    But that is made forcefully clear when they are born-again of the spirit.
+    
+    That seed in the heart is a person (Jesus said the good seed are the children of the Kingdom),
+    and so when the person "born of God" is described, it is talking about a person who is/was this seed who has been sown in good soil (the good soil is the one who hears the word and understands it).
+    And so there is the child of the Kingdom (seed) sown in the heart of someone who hears the word and understands it.
+    
+    But the good soil is of the field which is the world and their nature is the flesh.
+    God softens the heart to receive the word, and when they get born-again of the spirit their old self dies and they receive a new heart and spirit.
+    Then their old self dies, the seed also dies, I believer, but the person is reborn. If that person then goes on believing in Jesus Christ they are "in Christ" and "born of God".
+    
+    The seed that is in the "person's heart", even before they are born-again, that seed is "in Christ" and born of God.
+    Getting born-again, a person can put to death the "deeds" of the body (which means going on walking by the spirit as they live by the spirit from a desire for the truth rather than for evil).
+    A deed comes from some heart attitute (from faith or not from faith, from love for the truth or love for evil).
+    So getting born-again of the spirit, we should walk by the spirit as we live by the spirit.
+    
+    Being born-again, they are a new spirit (redeemed spirit) but inside old flesh that still has indwelling sin, and they await the redemption of their body (**[Romans 8:23-25](https://www.biblegateway.com/passage/?search=Romans%208%3A23-25&version=ESV)**).
+    
+    I guess that after getting born-again of the spirit there is still a battle with the old flesh.
+    Before getting born-again, there is no clear conflict as the person is a child of wrath by nature.
+    Getting born-again, a person has died and been set free (aquitted) from sin.
+    After getting born-again, the sinful flesh rebels against the person's new nature.
+    And so there is still a very real battle as we strive to walk by the spirit rather than by the flesh.
+    
+    There is no condemnation for those who are "in Christ".
+    Those who are "in Christ" do not sin, and love as commanded and agree with the person and work of Jesus Christ.
+    They confess that He is the Son of God, for instance.
+    
+    And that person who is "in Christ", they are led by the spirit, and desire to do what is right,
+    and there is no condemnation for them.
+    
+    > **[Romans 7:18](https://read.lsbible.org/?q=Romans+7)** - For I know that nothing good dwells in me, that is, in my flesh; for the willing is present in me, but the working out of the good is not. (LSB)
+    
+    The "seed of the word of God" is the child of the Kingdom and is "in Christ" and is "born of God", and the person who is born of the spirit (regenerated, baptised into Christ's death, born again of that seed) is also "in Christ", and if that person goes on walking by faith in Jesus Christ, abiding in His commandments then they are also "in Christ", "born of God", so long as they continue on abiding in Jesus and don't get grafted out.
+    
+    > **[Matthew 13:23](https://www.biblegateway.com/passage/?search=Matthew%2013%3A23&version=ESV)** - As for what was sown on good soil, this is the one who hears the word and understands it. He indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
+    
     > **[I Peter 1:23](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A23&version=ESV)** - since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; (ESV)
+    
+    > **[Matthew 13:8](https://www.biblegateway.com/passage/?search=Matthew%2013%3A8&version=ESV)** - Other seeds fell on good soil and produced grain, some a hundredfold, some sixty, some thirty. (ESV)
+    
+    > **[Matthew 13:37-43](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-43&version=ESV)** - He answered, The one who sows the good seed is the Son of Man. The field is the world, and the good seed is the children of the kingdom. The weeds are the sons of the evil one, and the enemy who sowed them is the devil. The harvest is the close of the age, and the reapers are angels. Just as the weeds are gathered and burned with fire, so will it be at the close of the age. The Son of Man will send his angels, and they will gather out of his kingdom all causes of sin and all law-breakers, and throw them into the fiery furnace. In that place there will be weeping and gnashing of teeth. Then the righteous will shine like the sun in the kingdom of their Father. He who has ears, let him hear. (ESV)
+    
+    > **[Matthew 13:23](https://www.biblegateway.com/passage/?search=Matthew%2013%3A23&version=ESV)** - As for what was sown on good soil, this is the one who hears the word and understands it. He indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
     
     That seed of the word of God must be treasured (loved) in the good soil of a person's heart:
     
     > **[Mark 4:14-20](https://www.biblegateway.com/passage/?search=Mark%204%3A14-20&version=ESV)** - The sower sows the word. And these are the ones along the path, where the word is sown: when they hear, Satan immediately comes and takes away the word that is sown in them. And these are the ones sown on rocky ground: the ones who, when they hear the word, immediately receive it with joy. **And they have no root in themselves, but endure for a while; then, when tribulation or persecution arises on account of the word, immediately they fall away.** And others are the ones sown among thorns. They are those who hear the word, but the cares of the world and the deceitfulness of riches and the desires for other things enter in and choke the word, and it proves unfruitful. But those that were sown on the good soil are the ones who hear the word and accept it and bear fruit, thirtyfold and sixtyfold and a hundredfold. (ESV)
     
-    The seed planted in good soil needs to die in order to bear good fruit. And so a person needs to be born-again:
+    So the person who is the "good seed in the good soil" is a believer (hearing and understanding, trusting and treasuring Jesus Christ and His word). That person at some stage on their walk dies, and is reborn (born-again of the Spirit):
+    
+    > **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, and everyone who lives and believes in me shall never [(G3756 οὐ)](G3756) [(G3361 μή)](G3361) die. Do you believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
+    
+    The good seed planted in good soil needs to die in order to bear good fruit. And so a person needs to be born-again:
     
     > **[I Corinthians 15:36](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A36&version=ESV)** - You foolish person! What you sow does not come to life unless it dies. (ESV)
     
@@ -3292,7 +3357,7 @@ I believe that a person can still be (have sin) sinful and enter the Kingdom of 
         -   **[John 3:5-7](https://www.biblegateway.com/passage/?search=John%203%3A5-7&version=ESV)**
         -   **[II Corinthians 5:17](https://biblehub.com/interlinear/2_corinthians/5-17.htm)**
         -   **[Colossians 3:8-10](https://www.biblegateway.com/passage/?search=Colossians%203%3A8-10&version=ESV)**
-    -   Third birthday ?: redeption of body (resurrection body)
+    -   Third birthday ?: redemption of body (resurrection body)
         -   **[Romans 8:23-25](https://www.biblegateway.com/passage/?search=Romans%208%3A23-25&version=ESV)**
     
     There is the part of the person that is sinful, that is the person born of woman (from their 1st birthday):
@@ -3424,6 +3489,8 @@ I believe that a person can still be (have sin) sinful and enter the Kingdom of 
     
     > **[Ezekiel 18:31-32](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A31-32&version=ESV)** - Cast away from you all the transgressions that you have committed, and make yourselves a new heart and a new spirit! Why will you die, O house of Israel? For I have no pleasure in the death of anyone, declares the Lord GOD; so turn, and live. (ESV)
     
+    > **[II Chronicles 7:14](https://www.biblegateway.com/passage/?search=2%20Chronicles%207%3A14&version=ESV)** - if my people who are called by my name humble themselves, and pray and seek my face and turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
+    
     > **[Acts 26:15-18](https://www.biblegateway.com/passage/?search=Acts%2026%3A15-18&version=ESV)** - And I said, Who are you, Lord? And the Lord said, I am Jesus whom you are persecuting. But rise and stand upon your feet, for I have appeared to you for this purpose, to appoint you as a servant and witness to the things in which you have seen me and to those in which I will appear to you, delivering you from your people and from the Gentiles—to whom I am sending you to open their eyes, so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
     
     Getting born-again is not the only requirement to entering the Kingdom of God. We must also do the will of God even after being born-again, and so we must be "born of God/in Christ", and so having faith as commanded, loving as commanded and not practicing sin:
@@ -3455,11 +3522,8 @@ I believe that a person can still be (have sin) sinful and enter the Kingdom of 
     The way of cain is the way of not having faith. The way of cain is from the love of darkness doing evil deeds. But we must not walk in the way of Cain. Rather, we should walk in the way of Abel, which is to walk by faith:
     
     > **[Hebrews 11:4](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A4&version=ESV)** - By faith Abel offered to God a more acceptable sacrifice than Cain, through which he was commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he still speaks. (ESV)
-    > 
-    > END<sub>QUOTE</sub>
-    > 
-    > \#+BEGIN<sub>QUOTE</sub>
-    >   **[Jude 1:11](https://www.biblegateway.com/passage/?search=Jude%201%3A11&version=ESV)** - Woe to them! For they walked in the way of Cain and abandoned themselves for the sake of gain to Balaam's error and perished in Korah's rebellion. (ESV)
+    
+    > **[Jude 1:11](https://www.biblegateway.com/passage/?search=Jude%201%3A11&version=ESV)** - Woe to them! For they walked in the way of Cain and abandoned themselves for the sake of gain to Balaam's error and perished in Korah's rebellion. (ESV)
     
     > **[Hebrews 3:7-12](https://www.biblegateway.com/passage/?search=Hebrews%203%3A7-12&version=ESV)** - Therefore, as the Holy Spirit says, Today, if you hear his voice, do not harden your hearts as in the rebellion, on the day of testing in the wilderness, where your fathers put me to the test and saw my works for forty years. Therefore I was provoked with that generation, and said, They always go astray in their heart; they have not known my ways. As I swore in my wrath, They shall not enter my rest. Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to fall away from the living God. (ESV)
     
@@ -3881,9 +3945,11 @@ But love for God (**[I Corinthians 16:22](https://www.biblegateway.com/passage/?
 
 It's **very sad** that people attack the gospel by waging war against effort and against obedience and against doing the truth ([John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)) in reality.
 
-The big reason I think it's **very sad** that people who attack the gospel by waging war agianst effort and against obedience, etc. is because they are effectively teaching against seeking to please God. God wants us walk by faith **out of love for Him**. God wants us to "do faith". And heart intentions such as trust, 'effort' and love are to do with faith.
+The big reason I think it's **very sad** that people who attack the gospel by waging war against effort and against obedience, etc. is because they are effectively teaching against seeking to please God. God wants us walk by faith **out of love for Him**. God wants us to "do faith". And heart intentions such as trust, 'effort' and love are to do with faith.
 
 > **[James 1:22-24](https://www.biblegateway.com/passage/?search=James%201%3A22-24&version=ESV)** - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. (ESV)
+
+> **[Ezekiel 33:31-32](https://www.biblegateway.com/passage/?search=Ezekiel%2033%3A31-32&version=ESV)** - And they come unto thee as the people cometh, and they sit before thee as my people, and they hear thy words, but they will not do them: for with their mouth they shew much love, but their heart goeth after their covetousness. And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can play well on an instrument: for they hear thy words, but they do them not. (KJV)
 
 -   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-06-25 Thu 13:03&gt;</span></span>:** Firstly, I've been born-again of the spirit. God has indeed done a work in me to give me a heart that fears Him and has been writing His laws on my heart, circumcising my heart, and has given me a new spirit. So thank God for His grace. However, from my angle my getting born-again happened in [Ezekiel 18:31](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A31&version=ESV) style. It's still by God's grace. That being said&#x2026; I have been reflecting on "doers of the Law by faith" being justified by faith as distinct from seeking justification by being a "doer of the law including the works", and so relying on the "external actions".
     
@@ -6026,6 +6092,8 @@ If a person hates the truth of God revealed in Jesus Christ including Jesus' wor
 
 > **[James 1:22-24](https://www.biblegateway.com/passage/?search=James%201%3A22-24&version=ESV)** - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. (ESV)
 
+> **[Ezekiel 33:31-32](https://www.biblegateway.com/passage/?search=Ezekiel%2033%3A31-32&version=ESV)** - And they come unto thee as the people cometh, and they sit before thee as my people, and they hear thy words, but they will not do them: for with their mouth they shew much love, but their heart goeth after their covetousness. And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can play well on an instrument: for they hear thy words, but they do them not. (KJV)
+
 > **[Proverbs 1:28-31](https://www.biblegateway.com/passage/?search=Proverbs%201%3A28-31&version=ESV)** - Then they will call upon me, but I will not answer; they will seek me diligently but will not find me. Because they hated knowledge and did not choose the fear of the LORD, would have none of my counsel and despised all my reproof, therefore they shall eat the fruit of their way, and have their fill of their own devices. (ESV)
 
 If a person doesn't love Jesus then that person is "of the devil".
@@ -6406,7 +6474,7 @@ If there is a "3rd" birthday, then that would be the redemption of the body (**[
     -   **[John 3:5-7](https://www.biblegateway.com/passage/?search=John%203%3A5-7&version=ESV)**
     -   **[II Corinthians 5:17](https://biblehub.com/interlinear/2_corinthians/5-17.htm)**
     -   **[Colossians 3:8-10](https://www.biblegateway.com/passage/?search=Colossians%203%3A8-10&version=ESV)**
--   Third birthday ?: redeption of body (resurrection body)
+-   Third birthday ?: redemption of body (resurrection body)
     -   **[Romans 8:23-25](https://www.biblegateway.com/passage/?search=Romans%208%3A23-25&version=ESV)**
 
 There is the part of the person that is sinful, that is the person born of woman (from their 1st birthday):
@@ -6436,6 +6504,8 @@ Then there is the part of the person that is made right, that is the person born
 > **[Ezekiel 18:31](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A31&version=ESV)** - Cast away from you all the transgressions that you have committed, and make yourselves a new heart and a new spirit! Why will you die, O house of Israel? (ESV)
 
 > **[Isaiah 1:16-17](https://www.biblegateway.com/passage/?search=Isaiah%201%3A16-17&version=ESV)** - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes; cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the widow's cause. (ESV)
+
+> **[II Chronicles 7:14](https://www.biblegateway.com/passage/?search=2%20Chronicles%207%3A14&version=ESV)** - if my people who are called by my name humble themselves, and pray and seek my face and turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
 
 -   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-05-19 Tue&gt;</span></span>:** I believe that when a person is born-again of the spirit and grafted into Christ, they receive a clean slate.
     Generational sin is totally wiped out, as far as the spirit is concerned.
@@ -7146,6 +7216,12 @@ When a person gets born-again of the spirit, they do need to not then double-dow
 I believe that additionally to the need of "receiving a heart transplant" (**[Ezekiel 18:31](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A31&version=ESV)**, **[Ezekiel 36:25-28](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A25-28&version=ESV)**), we should "divorce ourselves" from our "sinning members". And what I mean by that is, for example, if a person were, for example, practicing something sinful with their hands, such as stealing, then instead of making time to practice that, use one's hands for doing good works instead. And this is metaphorically, "cutting off the 'sinful flesh'".
 
 > **[Mark 9:45](https://www.biblegateway.com/passage/?search=Mark%209%3A45&version=ESV)** - And if your foot causes you to sin, cut it off. It is better for you to enter life lame than with two feet to be thrown into hell. (ESV)
+
+Repentance leads to getting born-again and having the power to be healed, but we still need to do the will of God (**[Matthew 7:21](https://www.biblegateway.com/passage/?search=Matthew%207%3A21&version=ESV)**):
+
+> **[II Chronicles 7:14](https://www.biblegateway.com/passage/?search=2%20Chronicles%207%3A14&version=ESV)** - if my people who are called by my name humble themselves, and pray and seek my face and turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
+
+> **[Isaiah 1:16-17](https://www.biblegateway.com/passage/?search=Isaiah%201%3A16-17&version=ESV)** - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes; cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the widow's cause. (ESV)
 
 Not only does this point to the fact that we need a new heart. But if you are using your members for doing evil, then instead of doing evil with them, do good with them, effectively "cutting off the sinful flesh" from the heart (i.e. nipping it at the bud happens with a change of heart):
 
@@ -14316,6 +14392,10 @@ Wanting to obey the precepts of God's Law, by following Jesus' Law/commandments,
 
 > **[James 1:21-25](https://www.biblegateway.com/passage/?search=James%201%3A21-25&version=ESV)** - Therefore put away all filthiness and rampant wickedness and receive with meekness the implanted word, which is able to save your souls. But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. But the one who looks into the perfect law, the law of liberty, and perseveres, being no hearer who forgets but a doer who acts, he will be blessed in his doing. (ESV)
 
+> **[Ezekiel 33:31-32](https://www.biblegateway.com/passage/?search=Ezekiel%2033%3A31-32&version=ESV)** - And they come unto thee as the people cometh, and they sit before thee as my people, and they hear thy words, but they will not do them: for with their mouth they shew much love, but their heart goeth after their covetousness. And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can play well on an instrument: for they hear thy words, but they do them not. (KJV)
+
+> **[Matthew 13:19](https://www.biblegateway.com/passage/?search=Matthew%2013%3A19&version=ESV)** - When anyone hears the word of the kingdom and does not understand it, the evil one comes and snatches away what has been sown in his heart. This is what was sown along the path. (ESV)
+
 Obedience is not strictly the same thing as works. Obedience is a heart attitude and we are to be obedient to Christ's teachings:
 
 > **[Titus 1:16](https://www.biblegateway.com/passage/?search=Titus%201%3A16&version=ESV)** - They profess to know God, but they <ins>deny him by their works</ins>. They are detestable, **disobedient, unfit for any good work**. (ESV)
@@ -17416,7 +17496,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1501aab) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5dd1f59) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -23181,7 +23261,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgddb2760).
+I didn't know but it turned out to be the last day of my [sentence](#org031a0f5).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -45198,6 +45278,12 @@ Eternal judgement:
     
     I'm not a perfect person. I'm writing this document as I am learning, and interpreting as I go.
     And I am trying to clean myself up in my own private life.
+    
+    > **[Ezekiel 34:8](https://www.biblegateway.com/passage/?search=Ezekiel%2034%3A8&version=ESV)** - As I live, declares the Lord GOD, surely because my sheep have become a prey, and my sheep have become food for all the wild beasts, since there was no shepherd, and because my shepherds have not searched for my sheep, but the shepherds have fed themselves, and have not fed my sheep, (ESV)
+    
+    > **[John 21:15-17](https://www.biblegateway.com/passage/?search=John%2021%3A15-17&version=ESV)** - When they had finished breakfast, Jesus said to Simon Peter, Simon, son of John, do you love me more than these? He said to him, Yes, Lord; you know that I love you. He said to him, Feed my lambs. He said to him a second time, Simon, son of John, do you love me? He said to him, Yes, Lord; you know that I love you. He said to him, Tend my sheep. He said to him the third time, Simon, son of John, do you love me? Peter was grieved because he said to him the third time, Do you love me? and he said to him, Lord, you know everything; you know that I love you. Jesus said to him, Feed my sheep.
+    
+    > **[I Timothy 4:7-12](https://www.biblegateway.com/passage/?search=1%20Timothy%204%3A7-12&version=ESV)** - Have nothing to do with irreverent, silly myths. Rather train yourself for godliness; for while bodily training is of some value, godliness is of value in every way, as it holds promise for the present life and also for the life to come. The saying is trustworthy and deserving of full acceptance. For **to this end we toil and strive, because we have our hope set on the living God, who is the Savior of all people, especially of those who believe. Command and teach these things**. Let no one despise you for your youth, but set the believers an example in speech, in conduct, in love, in faith, in purity. (ESV)
 
 
 # Faith requires obedience
@@ -47647,7 +47733,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org8df6f57)
+See: [33.4.1](#org6eef112)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -69153,7 +69239,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org8df6f57)
+See: [33.4.1](#org6eef112)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -71807,7 +71893,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org9477f7a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgc023b24) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -80029,7 +80115,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org9477f7a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgc023b24) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -81367,7 +81453,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgbe0aec6)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgec67db8)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

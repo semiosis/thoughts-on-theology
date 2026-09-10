@@ -975,8 +975,11 @@ are cleaned up through sanctification. But they must continue in faith. Their fa
   prayed for you that your faith may not fail. And when you have turned again, strengthen your brothers. (ESV)
 
 A person can't just appeal to God for mercy to only go back to sinning, and think they still have justification
-(Ezekiel 18:20-24). A deed is some outward action coming from a heart attitude. Evil deeds come from a lack of
-faith:
+(Ezekiel 18:20-24, II Chronicles 7:14). A deed is some outward action coming from a heart attitude. Evil deeds
+come from a lack of faith:
+
+  II Chronicles 7:14 - if my people who are called by my name humble themselves, and pray and seek my face and
+  turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
 
   II Timothy 2:12 - if we endure, we will also reign with him; if we deny him, he also will deny us; (ESV)
 
@@ -2951,6 +2954,24 @@ alive. Someone who is born-again is not a sinner by nature. We don't want to be 
   their own ungodly passions. (ESV)
 
 People perish for lack of knowledge, knowledge that necessitates love for the truth:
+
+  Deuteronomy 30:17 - But if your heart turns away, and you will not hear, but are drawn away to worship other
+  gods and serve them, (ESV)
+
+  Jeremiah 7:24-26 - And they have not hearkened, nor inclined their ear, And they walk in the counsels, In the
+  stubbornness, of their evil heart, And are for backward, and not for forward. Even from the day when your
+  fathers Went out of the land of Egypt till this day, I send to you all my servants the prophets, Daily rising
+  early and sending, And they have not hearkened unto Me, Nor inclined their ear, and harden their neck, They have
+  done evil above their fathers. (YLT)
+
+  Jeremiah 13:10 - This evil people, who refuse to hear my words, who stubbornly follow their own heart and have
+  gone after other gods to serve them and worship them, shall be like this loincloth, which is good for nothing.
+  (ESV)
+
+  Ezekiel 33:31-32 - And they come unto thee as the people cometh, and they sit before thee as my people, and they
+  hear thy words, but they will not do them: for with their mouth they shew much love, but their heart goeth after
+  their covetousness. And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can
+  play well on an instrument: for they hear thy words, but they do them not. (KJV)
 
   Hosea 4:6 - My people are destroyed for lack of knowledge; because you have rejected knowledge, I reject you
   from being a priest to me. And since you have forgotten the law of your God, I also will forget your children.
@@ -6614,17 +6635,91 @@ way God requires):
   no law. And those who belong to Christ Jesus have crucified the flesh with its passions and desires. If we live
   by the Spirit, let us also walk by the Spirit. (ESV)
 
-I guess that a person can be an "unborn" child of God until they get born. But that seed in the heart is a person
-(Jesus said the good seed are the children of the Kingdom), and so when the person "born of God" is described, it
-is talking about a person who is/was this seed. The "seed of the word of God" is "in Christ", and the person who
-is born of the spirit (regenerated, baptised into Christ's death) is also "in Christ" so long as going on they are
-continuing walking by faith in Jesus Christ, abiding in His commandments.
+There are two parables in Matthew 13 about "seed".
+
+This "good seed" here in Matthew 13:24-30 refers to the children of the Kingdom and the field they are sown in is
+the world:
+
+  Matthew 13:24-30 - He put another parable before them, saying, The kingdom of heaven may be compared to a man
+  who sowed good seed in his field, but while his men were sleeping, his enemy came and sowed weeds among the
+  wheat and went away. So when the plants came up and bore grain, then the weeds appeared also. And the servants
+  of the master of the house came and said to him, Master, did you not sow good seed in your field? How then does
+  it have weeds? He said to them, An enemy has done this. So the servants said to him, Then do you want us to go
+  and gather them? But he said, No, lest in gathering the weeds you root up the wheat along with them. Let both
+  grow together until the harvest, and at harvest time I will tell the reapers, Gather the weeds first and bind
+  them in bundles to be burned, but gather the wheat into my barn. (ESV)
 
   Matthew 13:38 - The field is the world, and the good seed is the children of the kingdom. The weeds are the sons
   of the evil one, (ESV)
 
+Here in Matthew 13:23 the "good soil" which receives the seed of the word of God is the one who hears the word and
+underestands it and bears fruit. So the "good soil" in this case is the believer, and if a person is a believer
+and they die (say, from sin empowered by the law, or whenever it happens, Romans 7:9-13, John 3:8, *Ezekiel
+18:26-32), then they are born again (John 11:25-27, Romans 6:3-8).
+
+So I guess that a person can be an "unborn" child of God until they get born, but that child of God is the seed,
+and the good soil is the believer. Positionally, for the good soil person (the believer), all things are new. But
+that is made forcefully clear when they are born-again of the spirit.
+
+That seed in the heart is a person (Jesus said the good seed are the children of the Kingdom), and so when the
+person "born of God" is described, it is talking about a person who is/was this seed who has been sown in good
+soil (the good soil is the one who hears the word and understands it). And so there is the child of the Kingdom
+(seed) sown in the heart of someone who hears the word and understands it.
+
+But the good soil is of the field which is the world and their nature is the flesh. God softens the heart to
+receive the word, and when they get born-again of the spirit their old self dies and they receive a new heart and
+spirit. Then their old self dies, the seed also dies, I believer, but the person is reborn. If that person then
+goes on believing in Jesus Christ they are "in Christ" and "born of God".
+
+The seed that is in the "person's heart", even before they are born-again, that seed is "in Christ" and born of
+God. Getting born-again, a person can put to death the "deeds" of the body (which means going on walking by the
+spirit as they live by the spirit from a desire for the truth rather than for evil). A deed comes from some heart
+attitute (from faith or not from faith, from love for the truth or love for evil). So getting born-again of the
+spirit, we should walk by the spirit as we live by the spirit.
+
+Being born-again, they are a new spirit (redeemed spirit) but inside old flesh that still has indwelling sin, and
+they await the redemption of their body (Romans 8:23-25).
+
+I guess that after getting born-again of the spirit there is still a battle with the old flesh. Before getting
+born-again, there is no clear conflict as the person is a child of wrath by nature. Getting born-again, a person
+has died and been set free (aquitted) from sin. After getting born-again, the sinful flesh rebels against the
+person's new nature. And so there is still a very real battle as we strive to walk by the spirit rather than by
+the flesh.
+
+There is no condemnation for those who are "in Christ". Those who are "in Christ" do not sin, and love as
+commanded and agree with the person and work of Jesus Christ. They confess that He is the Son of God, for
+instance.
+
+And that person who is "in Christ", they are led by the spirit, and desire to do what is right, and there is no
+condemnation for them.
+
+  Romans 7:18 - For I know that nothing good dwells in me, that is, in my flesh; for the willing is present in me,
+  but the working out of the good is not. (LSB)
+
+The "seed of the word of God" is the child of the Kingdom and is "in Christ" and is "born of God", and the person
+who is born of the spirit (regenerated, baptised into Christ's death, born again of that seed) is also "in
+Christ", and if that person goes on walking by faith in Jesus Christ, abiding in His commandments then they are
+also "in Christ", "born of God", so long as they continue on abiding in Jesus and don't get grafted out.
+
+  Matthew 13:23 - As for what was sown on good soil, this is the one who hears the word and understands it. He
+  indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
+
   I Peter 1:23 - since you have been born again, not of perishable seed but of imperishable, through the living
   and abiding word of God; (ESV)
+
+  Matthew 13:8 - Other seeds fell on good soil and produced grain, some a hundredfold, some sixty, some thirty.
+  (ESV)
+
+  Matthew 13:37-43 - He answered, The one who sows the good seed is the Son of Man. The field is the world, and
+  the good seed is the children of the kingdom. The weeds are the sons of the evil one, and the enemy who sowed
+  them is the devil. The harvest is the close of the age, and the reapers are angels. Just as the weeds are
+  gathered and burned with fire, so will it be at the close of the age. The Son of Man will send his angels, and
+  they will gather out of his kingdom all causes of sin and all law-breakers, and throw them into the fiery
+  furnace. In that place there will be weeping and gnashing of teeth. Then the righteous will shine like the sun
+  in the kingdom of their Father. He who has ears, let him hear. (ESV)
+
+  Matthew 13:23 - As for what was sown on good soil, this is the one who hears the word and understands it. He
+  indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
 
 That seed of the word of God must be treasured (loved) in the good soil of a person's heart:
 
@@ -6637,7 +6732,17 @@ That seed of the word of God must be treasured (loved) in the good soil of a per
   and it proves unfruitful. But those that were sown on the good soil are the ones who hear the word and accept it
   and bear fruit, thirtyfold and sixtyfold and a hundredfold. (ESV)
 
-The seed planted in good soil needs to die in order to bear good fruit. And so a person needs to be born-again:
+So the person who is the "good seed in the good soil" is a believer (hearing and understanding, trusting and
+treasuring Jesus Christ and His word). That person at some stage on their walk dies, and is reborn (born-again of
+the Spirit):
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+The good seed planted in good soil needs to die in order to bear good fruit. And so a person needs to be
+born-again:
 
   I Corinthians 15:36 - You foolish person! What you sow does not come to life unless it dies. (ESV)
 
@@ -7018,7 +7123,7 @@ If there is a "3rd" birthday, then that would be the redemption of the body (Rom
 • John 3:5-7
 • II Corinthians 5:17
 • Colossians 3:8-10
-• Third birthday ?: redeption of body (resurrection body)
+• Third birthday ?: redemption of body (resurrection body)
 • Romans 8:23-25
 
 There is the part of the person that is sinful, that is the person born of woman (from their 1st birthday):
@@ -7276,6 +7381,9 @@ repentance (faith involves turning away from sin):
   heart and a new spirit! Why will you die, O house of Israel? For I have no pleasure in the death of anyone,
   declares the Lord GOD; so turn, and live. (ESV)
 
+  II Chronicles 7:14 - if my people who are called by my name humble themselves, and pray and seek my face and
+  turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
+
   Acts 26:15-18 - And I said, Who are you, Lord? And the Lord said, I am Jesus whom you are persecuting. But rise
   and stand upon your feet, for I have appeared to you for this purpose, to appoint you as a servant and witness
   to the things in which you have seen me and to those in which I will appear to you, delivering you from your
@@ -7374,10 +7482,8 @@ we must not walk in the way of Cain. Rather, we should walk in the way of Abel, 
   commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he
   still speaks. (ESV)
 
-  END[QUOTE]
-
-  #+BEGIN[QUOTE] Jude 1:11 - Woe to them! For they walked in the way of Cain and abandoned themselves for the sake
-  of gain to Balaam's error and perished in Korah's rebellion. (ESV)
+  Jude 1:11 - Woe to them! For they walked in the way of Cain and abandoned themselves for the sake of gain to
+  Balaam's error and perished in Korah's rebellion. (ESV)
 
   Hebrews 3:7-12 - Therefore, as the Holy Spirit says, Today, if you hear his voice, do not harden your hearts as
   in the rebellion, on the day of testing in the wilderness, where your fathers put me to the test and saw my
@@ -8428,7 +8534,7 @@ teaching (II Timothy 4:3, II John 1:9, I Timothy 6:3, II Timothy 1:13) and abidi
 It's very sad that people attack the gospel by waging war against effort and against obedience and against doing
 the truth (John 3:21) in reality.
 
-The big reason I think it's very sad that people who attack the gospel by waging war agianst effort and against
+The big reason I think it's very sad that people who attack the gospel by waging war against effort and against
 obedience, etc. is because they are effectively teaching against seeking to please God. God wants us walk by faith
 out of love for Him. God wants us to "do faith". And heart intentions such as trust, 'effort' and love are to do
 with faith.
@@ -8436,6 +8542,11 @@ with faith.
   James 1:22-24 - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer
   of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at
   himself and goes away and at once forgets what he was like. (ESV)
+
+  Ezekiel 33:31-32 - And they come unto thee as the people cometh, and they sit before thee as my people, and they
+  hear thy words, but they will not do them: for with their mouth they shew much love, but their heart goeth after
+  their covetousness. And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can
+  play well on an instrument: for they hear thy words, but they do them not. (KJV)
 
 Journal <2026-06-25 Thu 13:03>
 
@@ -12233,6 +12344,11 @@ practitioner of lawlessness. When a person thinks that merely hearing the word o
   of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at
   himself and goes away and at once forgets what he was like. (ESV)
 
+  Ezekiel 33:31-32 - And they come unto thee as the people cometh, and they sit before thee as my people, and they
+  hear thy words, but they will not do them: for with their mouth they shew much love, but their heart goeth after
+  their covetousness. And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can
+  play well on an instrument: for they hear thy words, but they do them not. (KJV)
+
   Proverbs 1:28-31 - Then they will call upon me, but I will not answer; they will seek me diligently but will not
   find me. Because they hated knowledge and did not choose the fear of the LORD, would have none of my counsel and
   despised all my reproof, therefore they shall eat the fruit of their way, and have their fill of their own
@@ -12871,7 +12987,7 @@ If there is a "3rd" birthday, then that would be the redemption of the body (Rom
 • John 3:5-7
 • II Corinthians 5:17
 • Colossians 3:8-10
-• Third birthday ?: redeption of body (resurrection body)
+• Third birthday ?: redemption of body (resurrection body)
 • Romans 8:23-25
 
 There is the part of the person that is sinful, that is the person born of woman (from their 1st birthday):
@@ -12918,6 +13034,9 @@ seed dies (I Corinthians 15:36) and comes alive and that person is born-again of
   Isaiah 1:16-17 - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes;
   cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the
   widow's cause. (ESV)
+
+  II Chronicles 7:14 - if my people who are called by my name humble themselves, and pray and seek my face and
+  turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
 
 Journal <2026-05-19 Tue>
 I believe that when a person is born-again of the spirit and grafted into Christ, they receive a clean slate.
@@ -14170,6 +14289,16 @@ flesh'".
 
   Mark 9:45 - And if your foot causes you to sin, cut it off. It is better for you to enter life lame than with
   two feet to be thrown into hell. (ESV)
+
+Repentance leads to getting born-again and having the power to be healed, but we still need to do the will of God
+(Matthew 7:21):
+
+  II Chronicles 7:14 - if my people who are called by my name humble themselves, and pray and seek my face and
+  turn from their wicked ways, then I will hear from heaven and will forgive their sin and heal their land. (ESV)
+
+  Isaiah 1:16-17 - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes;
+  cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the
+  widow's cause. (ESV)
 
 Not only does this point to the fact that we need a new heart. But if you are using your members for doing evil,
 then instead of doing evil with them, do good with them, effectively "cutting off the sinful flesh" from the heart
@@ -27601,6 +27730,14 @@ love/serve God's Law. The enemy tries to stop us from keeping Jesus' commandment
   a mirror. For he looks at himself and goes away and at once forgets what he was like. But the one who looks into
   the perfect law, the law of liberty, and perseveres, being no hearer who forgets but a doer who acts, he will be
   blessed in his doing. (ESV)
+
+  Ezekiel 33:31-32 - And they come unto thee as the people cometh, and they sit before thee as my people, and they
+  hear thy words, but they will not do them: for with their mouth they shew much love, but their heart goeth after
+  their covetousness. And, lo, thou art unto them as a very lovely song of one that hath a pleasant voice, and can
+  play well on an instrument: for they hear thy words, but they do them not. (KJV)
+
+  Matthew 13:19 - When anyone hears the word of the kingdom and does not understand it, the evil one comes and
+  snatches away what has been sown in his heart. This is what was sown along the path. (ESV)
 
 Obedience is not strictly the same thing as works. Obedience is a heart attitude and we are to be obedient to
 Christ's teachings:
@@ -75116,6 +75253,24 @@ even done in private:
 
 I'm not a perfect person. I'm writing this document as I am learning, and interpreting as I go. And I am
 trying to clean myself up in my own private life.
+
+  Ezekiel 34:8 - As I live, declares the Lord GOD, surely because my sheep have become a prey, and my sheep
+  have become food for all the wild beasts, since there was no shepherd, and because my shepherds have not
+  searched for my sheep, but the shepherds have fed themselves, and have not fed my sheep, (ESV)
+
+  John 21:15-17 - When they had finished breakfast, Jesus said to Simon Peter, Simon, son of John, do you love
+  me more than these? He said to him, Yes, Lord; you know that I love you. He said to him, Feed my lambs. He
+  said to him a second time, Simon, son of John, do you love me? He said to him, Yes, Lord; you know that I
+  love you. He said to him, Tend my sheep. He said to him the third time, Simon, son of John, do you love me?
+  Peter was grieved because he said to him the third time, Do you love me? and he said to him, Lord, you know
+  everything; you know that I love you. Jesus said to him, Feed my sheep.
+
+  I Timothy 4:7-12 - Have nothing to do with irreverent, silly myths. Rather train yourself for godliness; for
+  while bodily training is of some value, godliness is of value in every way, as it holds promise for the
+  present life and also for the life to come. The saying is trustworthy and deserving of full acceptance. For
+  to this end we toil and strive, because we have our hope set on the living God, who is the Savior of all
+  people, especially of those who believe. Command and teach these things. Let no one despise you for your
+  youth, but set the believers an example in speech, in conduct, in love, in faith, in purity. (ESV)
 
 12. Faith requires obedience
 
@@ -137330,11 +137485,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-10 Thu 10:40
+Date: 2026-09-10 Thu 19:59
 
 Author: Shane Mulligan
 
-Created: 2026-09-10 Thu 10:44
+Created: 2026-09-10 Thu 20:04
 
 Validate
 
