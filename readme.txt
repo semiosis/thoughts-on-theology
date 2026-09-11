@@ -2486,6 +2486,73 @@ Entering the Kingdom of God requires having faith in Jesus Christ, having stoppe
   proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns
   to wallow in the mire. (ESV)
 
+I refuse to compromise on the truth of the Scripture to concoct a false humility just for the sake of
+self-preservation. Real faith is not cowardly, false and selfish, but is, rather, agreeing with God's word and
+loving God's word, in the fear of God. Real humility in the fear of God says the truth that is that God justifes
+those who have faith in Jesus as that is what the word of God says, even if one doesn't have confidence that they
+themself are pleasing God. A person who does not lift his eyes to heaven but beats their hand on their chest
+saying, "Have mercy, God, on me a sinner!" would confess that God justifies the one who has faith in Christ Jesus,
+and that what does not proceed from faith is sin, and may be terrified that God is not pleased with them because
+of their sinfullness.
+
+One way I think Satan probably opposes the gospel of Jesus is when people disbelieve Jesus Christ's words such as
+His teachings on practicing righteousness (For example, these teachings Luke 6:45, Matthew 13:37-42, I John 3:6).
+
+A person with a satanic and false 'humility' instead of believing the words of Jesus Christ would deny that
+Jesus's teachings are still true for the Christian (because they have believed a lie/lies from the devil {i.e.
+doctrines of demons} and have not understood God's word) the deceived person might say, "We're all sinners, and
+nothing we can do can please God." And this type of false doctrine is utterly satanic, and pitted against the
+knowledge of God. It does not lead to producing good fruit.
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+Satanic and false 'humility' says the lie that God justifes the one who does not have faith in an attempt to give
+themself the rest rather than follow Jesus in love, faith and obedience and allow Jesus to gives the rest. Satanic
+and false 'humility' tries to "steal the rest" like a thief would, to try to enter into the sheepfold "some other
+way" rather than to do the will of God:
+
+  I John 3:5-7 - And ye know that he was manifested to take away our sins; and in him is no sin. Whosoever abideth
+  in him sinneth not: whosoever sinneth hath not seen him, neither known him. Little children, let no man deceive
+  you: he that doeth righteousness is righteous, even as he is righteous. (KJV)
+
+  John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
+  way, that man is a thief and a robber. (ESV)
+
+With real faith someone would not speak falsely of God's word, but would seek to convey faithfully the Scripture,
+out of the fear of God, entrust their souls to a faithful Creator while doing good, as Jesus Christ Himself did as
+an example for us to follow.
+
+But this additionally essential aspect of the Christian faith, that our God is a God who justifies the ungodly who
+have faith in Him. Consider that in contrast to Jesus Christ, all other humans have sinner and fallen short of
+God's glory. But if they appeal to God for mercy, in faith then God may justify them. But also if they return Such
+a person does want to be healed to practice righteousness:
+
+  Romans 4:4-6 - Now to the one who works (G2038 ergazomenō; is working for payment), his wages are not counted as
+  a gift but as his due. And to the one who does not work (G2038 ergazomenō; is working for payment) but trusts
+  him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing
+  of the one to whom God counts righteousness apart from (G5565 chōris) works (G2041 ergōn): (ESV)
+
+  Psalms 51:1-4 - Have mercy on me, O God, according to your steadfast love; according to your abundant mercy blot
+  out my transgressions. To the choirmaster. A Psalm of David, when Nathan the prophet went to him, after he had
+  gone in to Bathsheba. Wash me thoroughly from my iniquity, and cleanse me from my sin! For I know my
+  transgressions, and my sin is ever before me. Against you, you only, have I sinned and done what is evil in your
+  sight, so that you may be justified in your words and blameless in your judgment. (ESV)
+
+  Luke 18:10-14 - Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The
+  Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust,
+  adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax
+  collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be
+  merciful to me, a sinner! I tell you, this man went down to his house justified, rather than the other. For
+  everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+
+  Ezra 8:22 - For I was ashamed to ask the king for a band of soldiers and horsemen to protect us against the
+  enemy on our way, since we had told the king, The hand of our God is for good on all who seek him, and the power
+  of his wrath is against all who forsake him. (ESV)
+
 The requirement to "not be committing sin" in order to enter the Kingdom of God remains. But with God it is
 possible for a person who commits sin to "stop sinning and enter the Kingdom of God". A person must be
 "born-again" (i.e. have died to sin when baptised into Christ) and not be sinning to enter the Kingdom of God. And
@@ -3356,6 +3423,12 @@ At the end of sanctification, obeying the truth for a sincere love of our family
   death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his
   brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that
   he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+  Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
+  one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
+  the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
+  not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
 
 A Jew previously under Mosaic law who has faith in Jesus would be freed from the yoke of slavery by which they
 could only justified if they were able to carry out "the works of the law" that they were enslaved into doing, but
@@ -9884,6 +9957,12 @@ Connecting Romans 2:6-11 to John 5:28-29,37-47. We must be those who do good fro
 who seek the glory that comes from the only God (i.e. seek God's commendation, seek to please God). So we must
 love Jesus Christ and from the love of Jesus Christ and His words and His deeds.
 
+  Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
+  one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
+  the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
+  not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
+
 So without the love of God in us, and a desire to please God seeking the glory from God, seeking God's approval
 (as opposed to man's approval), we can't even have genuine faith. Thankfully, God is pleased with us if we receive
 Jesus, if we love Him, if we have faith in Him:
@@ -15968,7 +16047,7 @@ False obedience is where there is no love for God in the heart:
   Psalms 81:15 - Those who hate the LORD would feign obedience, and their doom would last forever. (engbsb2020eb)
 
 That faith that is not based on one's past works is a presently trusting faith (John 14:1, Romans 8:1-4) that will
-produce good deeds naturally.
+produce good deeds naturally:
 
   Romans 2:6-11 - He will render to each one according to his works (G2041 erga; deeds): to those who by patience
   in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are
@@ -15977,16 +16056,81 @@ produce good deeds naturally.
   Greek, but glory and honor and peace for everyone who does (G2038 ergazomenō; is working for payment) good, the
   Jew first and also the Greek. For God shows no partiality. (ESV)
 
-  Romans 4:4-6 - Now to the one who works (G2038 ergazomenō; is working for payment), his wages are not counted as
-  a gift but as his due. And to the one who does not work (G2038 ergazomenō; is working for payment) but trusts
-  him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing
-  of the one to whom God counts righteousness apart from (G5565 chōris) works (G2041 ergōn): (ESV)
+  Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
+  one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
+  the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
+  not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
 
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
   Titus 1:15 - To the pure, all things are pure, but to the defiled and unbelieving, nothing is pure; but both
   their minds and their consciences are defiled. (ESV)
+
+I refuse to compromise on the truth of the Scripture to concoct a false humility just for the sake of
+self-preservation. Real faith is not cowardly, false and selfish, but is, rather, agreeing with God's word and
+loving God's word, in the fear of God. Real humility in the fear of God says the truth that is that God justifes
+those who have faith in Jesus as that is what the word of God says, even if one doesn't have confidence that they
+themself are pleasing God. A person who does not lift his eyes to heaven but beats their hand on their chest
+saying, "Have mercy, God, on me a sinner!" would confess that God justifies the one who has faith in Christ Jesus,
+and that what does not proceed from faith is sin, and may be terrified that God is not pleased with them because
+of their sinfullness.
+
+One way I think Satan probably opposes the gospel of Jesus is when people disbelieve Jesus Christ's words such as
+His teachings on practicing righteousness (For example, these teachings Luke 6:45, Matthew 13:37-42, I John 3:6).
+
+A person with a satanic and false 'humility' instead of believing the words of Jesus Christ would deny that
+Jesus's teachings are still true for the Christian (because they have believed a lie/lies from the devil {i.e.
+doctrines of demons} and have not understood God's word) the deceived person might say, "We're all sinners, and
+nothing we can do can please God." And this type of false doctrine is utterly satanic, and pitted against the
+knowledge of God. It does not lead to producing good fruit.
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+Satanic and false 'humility' says the lie that God justifes the one who does not have faith in an attempt to give
+themself the rest rather than follow Jesus in love, faith and obedience and allow Jesus to gives the rest. Satanic
+and false 'humility' tries to "steal the rest" like a thief would, to try to enter into the sheepfold "some other
+way" rather than to do the will of God:
+
+  I John 3:5-7 - And ye know that he was manifested to take away our sins; and in him is no sin. Whosoever abideth
+  in him sinneth not: whosoever sinneth hath not seen him, neither known him. Little children, let no man deceive
+  you: he that doeth righteousness is righteous, even as he is righteous. (KJV)
+
+With real faith someone would not speak falsely of God's word, but would seek to convey faithfully the Scripture,
+out of the fear of God, entrust their souls to a faithful Creator while doing good, as Jesus Christ Himself did as
+an example for us to follow.
+
+But this additionally essential aspect of the Christian faith, that our God is a God who justifies the ungodly who
+have faith in Him. Consider that in contrast to Jesus Christ, all other humans have sinner and fallen short of
+God's glory. But if they appeal to God for mercy, in faith then God may justify them. But also if they return Such
+a person does want to be healed to practice righteousness:
+
+  Romans 4:4-6 - Now to the one who works (G2038 ergazomenō; is working for payment), his wages are not counted as
+  a gift but as his due. And to the one who does not work (G2038 ergazomenō; is working for payment) but trusts
+  him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing
+  of the one to whom God counts righteousness apart from (G5565 chōris) works (G2041 ergōn): (ESV)
+
+  Psalms 51:1-4 - Have mercy on me, O God, according to your steadfast love; according to your abundant mercy blot
+  out my transgressions. To the choirmaster. A Psalm of David, when Nathan the prophet went to him, after he had
+  gone in to Bathsheba. Wash me thoroughly from my iniquity, and cleanse me from my sin! For I know my
+  transgressions, and my sin is ever before me. Against you, you only, have I sinned and done what is evil in your
+  sight, so that you may be justified in your words and blameless in your judgment. (ESV)
+
+  Luke 18:10-14 - Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The
+  Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust,
+  adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax
+  collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be
+  merciful to me, a sinner! I tell you, this man went down to his house justified, rather than the other. For
+  everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+
+  Ezra 8:22 - For I was ashamed to ask the king for a band of soldiers and horsemen to protect us against the
+  enemy on our way, since we had told the king, The hand of our God is for good on all who seek him, and the power
+  of his wrath is against all who forsake him. (ESV)
 
 In order to have a genuine faith in Jesus, we need to be people who are after God's commendation. So rather than
 those who seek appraisal in this world and commendation from even fellow Christians, we need to instead be seeking
@@ -16011,6 +16155,29 @@ commendation from God Himself. If a person is a "seeker of the glory that comes 
 Connecting Romans 2:6-11 to John 5:28-29,37-47. We must be those who do good from a love of the Truth and be those
 who seek the glory that comes from the only God (i.e. seek God's commendation, seek to please God). So we must
 love Jesus Christ and from the love of Jesus Christ and His words and His deeds.
+
+With regard to specifically the confession of our hope, we should not waver in our faith, and if we stumble then
+we need to be those who "get back up" and continue on in faith:
+
+  Romans 4:20-22 - yet, with respect to the promise of God, he did not waver in unbelief (570. apistia) but grew
+  strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to
+  perform. Therefore it was also credited to him as righteousness. (NASB)
+
+  Hebrews 10:19-23 - Therefore, brothers, since we have confidence to enter the holy places by the blood of Jesus,
+  by the new and living way that he opened for us through the curtain, that is, through his flesh, and since we
+  have a great priest over the house of God, let us draw near with a true heart in full assurance of faith, with
+  our hearts sprinkled clean from an evil conscience and our bodies washed with pure water. Let us hold fast the
+  confession of our hope without wavering, for he who promised is faithful. (ESV)
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
+
+  I Peter 1:6-9 - In this you rejoice, though now for a little while, if necessary, you have been grieved by
+  various trials, so that the tested genuineness of your faith—more precious than gold that perishes though it is
+  tested by fire—may be found to result in praise and glory and honor at the revelation of Jesus Christ. Though
+  you have not seen him, you love him. Though you do not now see him, you believe in him and rejoice with joy that
+  is inexpressible and filled with glory, obtaining the outcome of your faith, the salvation of your souls. (ESV)
 
 So without the love of God in us, and a desire to please God seeking the glory from God, seeking God's approval
 (as opposed to man's approval), we can't even have genuine faith. Thankfully, God is pleased with us if we receive
@@ -22985,7 +23152,8 @@ the same God:
   enemy on our way, since we had told the king, The hand of our God is for good on all who seek him, and the power
   of his wrath is against all who forsake him. (ESV)
 
-With regard to specifically the confession of our hope, we should not waver in our faith:
+With regard to specifically the confession of our hope, we should not waver in our faith, and if we stumble then
+we need to be those who "get back up" and continue on in faith:
 
   Romans 4:20-22 - yet, with respect to the promise of God, he did not waver in unbelief (570. apistia) but grew
   strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to
@@ -108913,7 +109081,8 @@ the same God:
   enemy on our way, since we had told the king, The hand of our God is for good on all who seek him, and the power
   of his wrath is against all who forsake him. (ESV)
 
-With regard to specifically the confession of our hope, we should not waver in our faith:
+With regard to specifically the confession of our hope, we should not waver in our faith, and if we stumble then
+we need to be those who "get back up" and continue on in faith:
 
   Romans 4:20-22 - yet, with respect to the promise of God, he did not waver in unbelief (570. apistia) but grew
   strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to
@@ -111793,7 +111962,8 @@ Lord" - the second coming of Jesus has not yet happened:
   that day to surprise you like a thief. For you are all children of light, children of the day. We are not of the
   night or of the darkness. (ESV)
 
-With regard to specifically the confession of our hope, we should not waver in our faith:
+With regard to specifically the confession of our hope, we should not waver in our faith, and if we stumble then
+we need to be those who "get back up" and continue on in faith:
 
   Romans 4:20-22 - yet, with respect to the promise of God, he did not waver in unbelief (570. apistia) but grew
   strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to
@@ -137614,6 +137784,20 @@ today.
  | In Jesus Christ's name I pray,
  |  AMEN!!
 
+Journal <2026-09-11 Fri 12:06>
+God knows I'm still fighting a battle against the flesh and wanting to do God's will, endeavouring to resist lies
+and speak the truth of Scripture into darkness. I do this hoping He has mercy on me, knowing I so often make
+mistakes. I'm trying to convey the Scripture accurately in the fear of God because I fall so very short of the
+glory of God. But compromising the truth of Scripture is not something I want to do. Also, being silent and
+burying the light is also not something I want to do. May God correct me and correct any error in the writings I
+have made as I seek to understand and convey the God's word faithfully to others.
+
+The gift of justification is received through faith in Jesus Christ apart from (G5565 chōris) works, and God's
+righteousness is apart from the (G5565 chōris) law, and is through this faith which is apart from (G5565 chōris)
+works. For someone who has faith presently in Jesus Christ, their former sins are forgiven. We must go on in
+faith. Whatever does not proceed from faith is sin. We must "stop sinning" and go on in faith. That's true gospel
+teaching.
+
   Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
   nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
   Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
@@ -137644,11 +137828,11 @@ today.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-11 Fri 09:37
+Date: 2026-09-11 Fri 12:05
 
 Author: Shane Mulligan
 
-Created: 2026-09-11 Fri 10:09
+Created: 2026-09-11 Fri 12:29
 
 Validate
 

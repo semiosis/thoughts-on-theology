@@ -1136,6 +1136,46 @@ We've got to love Jesus rather than evil. Jesus cleans us so that we stop commit
     
     > **[II Peter 2:19-22](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A19-22&version=ESV)** - They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state has become worse for them than the first. For it would have been better for them never to have known the way of righteousness than after knowing it to turn back from the holy commandment delivered to them. What the true proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns to wallow in the mire. (ESV)
 
+I refuse to compromise on the truth of the Scripture to concoct a false humility just for the sake of self-preservation.
+Real faith is not cowardly, false and selfish, but is, rather, agreeing with God's word and loving God's word, in the fear of God.
+Real humility in the fear of God says the truth that is that God justifes those who have faith in Jesus as that is what the word of God says,
+even if one doesn't have confidence that they themself are pleasing God.
+A person who does not lift his eyes to heaven but beats their hand on their chest saying, "Have mercy, God, on me a sinner!"
+would confess that God justifies the one who has faith in Christ Jesus, and that what does not proceed from faith is sin,
+and may be terrified that God is not pleased with them because of their sinfullness.
+
+One way I think Satan probably opposes the gospel of Jesus is when people disbelieve Jesus Christ's words such as
+His teachings on practicing righteousness (For example, these teachings **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)**, **[Matthew 13:37-42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-42&version=ESV)**, **[I John 3:6](https://www.biblegateway.com/passage/?search=1%20John%203%3A6&version=ESV)**).
+
+A person with a satanic and false 'humility' instead of believing the words of Jesus Christ would deny that Jesus's teachings are still true for
+the Christian (because they have believed a lie/lies from the devil {i.e. doctrines of demons} and have not understood God's word)
+the deceived person might say, "We're all sinners, and nothing we can do can please God." And this type of false doctrine is utterly satanic,
+and pitted against the knowledge of God. It does not lead to producing good fruit.
+
+> **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)** - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come and stand before me in this house, which is called by my name, and say, We are delivered to do all these abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I have seen it, saith the LORD. (KJV)
+
+Satanic and false 'humility' says the lie that God justifes the one who does not have faith in an attempt to give themself the rest rather than follow Jesus in love, faith and obedience and allow Jesus to gives the rest.
+Satanic and false 'humility' tries to "steal the rest" like a thief would, to try to enter into the sheepfold "some other way" rather than to do the will of God:
+
+> **[I John 3:5-7](https://www.biblegateway.com/passage/?search=1%20John%203%3A5-7&version=ESV)** - And ye know that he was manifested to take away our sins; and in him is no sin. Whosoever abideth in him sinneth not: whosoever sinneth hath not seen him, neither known him. Little children, let no man deceive you: he that doeth righteousness is righteous, even as he is righteous. (KJV)
+
+> [John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV) - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
+
+With real faith someone would not speak falsely of God's word, but would seek to convey faithfully the Scripture,
+out of the fear of God, entrust their souls to a faithful Creator while doing good, as Jesus Christ Himself did as an example for us to follow.
+
+But this additionally essential aspect of the Christian faith, that our God is a God who justifies the ungodly who have faith in Him.
+Consider that in contrast to Jesus Christ, all other humans have sinner and fallen short of God's glory.
+But if they appeal to God for mercy, in faith then God may justify them. But also if they return Such a person does **want** to be healed to practice righteousness:
+
+> **[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)** - Now to the one who works [(G2038 ergazomenō; is working for payment)](G2038), his wages are not counted as a gift but as his due. And to the one who does not work [(G2038 ergazomenō; is working for payment)](G2038) but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from [(G5565 chōris)](G5565) works [(G2041 ergōn)](G2041): (ESV)
+
+> **[Psalms 51:1-4](https://www.biblegateway.com/passage/?search=Psalms%2051%3A1-4&version=ESV)** - Have mercy on me, O God, according to your steadfast love; according to your abundant mercy blot out my transgressions. To the choirmaster. A Psalm of David, when Nathan the prophet went to him, after he had gone in to Bathsheba. Wash me thoroughly from my iniquity, and cleanse me from my sin! For I know my transgressions, and my sin is ever before me. Against you, you only, have I sinned and done what is evil in your sight, so that you may be justified in your words and blameless in your judgment. (ESV)
+
+> **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** - Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing far off, would not even lift up his eyes to heaven, but **beat his breast, saying, God, be merciful to me, a sinner**! I tell you, this man went down to his house justified, rather than the other. For everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+
+> **[Ezra 8:22](https://www.biblegateway.com/passage/?search=Ezra%208%3A22&version=ESV)** - For I was ashamed to ask the king for a band of soldiers and horsemen to protect us against the enemy on our way, since we had told the king, **The hand of our God is for good on all who seek him, and the power of his wrath is against all who forsake him.** (ESV)
+
 The requirement to "not be committing sin" in order to enter the Kingdom of God remains.
 But with God it is possible for a person who commits sin to "stop sinning and enter the Kingdom of God".
 A person must be "born-again" (i.e. have died to sin when baptised into Christ) and not be sinning to enter the Kingdom of God. And a born-again person **can** be someone who walks by faith without committing sin, and so enter the Kingdom of God:
@@ -1491,6 +1531,8 @@ At the end of sanctification, obeying the truth for a sincere love of our family
 > **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** - He will render to each one according to his works [(G2041 erga; deeds)](G2041): to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for every human being who does [(G2716 katergazomenou)](G2716) evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does [(G2038 ergazomenō; is working for payment)](G2038) good, the Jew first and also the Greek. For God shows no partiality. (ESV)
 
 > **[I John 3:13-16](https://www.biblegateway.com/passage/?search=1%20John%203%3A13-16&version=ESV)** - Do not be surprised, brothers, that the world hates you. <ins>We know that we have passed out of death into life, because we love the brothers.</ins> Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+> **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
 
 A Jew previously under Mosaic law who has faith in Jesus would be freed from the yoke of slavery by which they could only justified if they were able to carry out "the works of the law" that they were enslaved into doing, but being able to behold (**[John 6:40](https://www.biblegateway.com/passage/?search=John%206%3A40&version=ESV)**), have faith in and treasure Christ and His words (God's righteousness revealed; **[Romans 1:17-18](https://www.biblegateway.com/passage/?search=Romans%201%3A17-18&version=ESV)**) gives us life and enables us to be healed (**[Acts 26:16-18](https://www.biblegateway.com/passage/?search=Acts%2026%3A16-18&version=ESV)**, **[Acts 3:16](https://www.biblegateway.com/passage/?search=Acts%203%3A16&version=ESV)**), given our love for Him is greater than love for other things (**[Luke 8:12-15](https://www.biblegateway.com/passage/?search=Luke%208%3A12-15&version=ESV)**).
 
@@ -4627,6 +4669,8 @@ Jesus glorifies us, provided we suffer for His sake, by working through us to do
 > **[Romans 8:17](https://www.biblegateway.com/passage/?search=Romans%208%3A17&version=ESV)** - and if children, then heirs—heirs of God and fellow heirs with Christ, **provided we suffer with him in order that we may also be glorified with him**. (ESV)
 
 Connecting **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** to **[John 5:28-29](https://www.biblegateway.com/passage/?search=John%205%3A28-29&version=ESV),37-47**. We must be those who do good from a love of the Truth and be those who seek the glory that comes from the only God (i.e. seek God's commendation, seek to please God). So we must love Jesus Christ and from the love of Jesus Christ and His words and His deeds.
+
+> **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
 
 So without the love of God in us, and a desire to please God seeking the glory from God, seeking God's approval (as opposed to man's approval), we can't even have genuine faith. Thankfully, God is pleased with us if we receive Jesus, if we love Him, if we have faith in Him:
 
@@ -8193,15 +8237,53 @@ False obedience is where there is no love for God in the heart:
 
 > **[Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)** - Those who hate the LORD would feign obedience, and their doom would last forever. (engbsb2020eb)
 
-That faith that is not based on one's past works is a presently trusting faith (**[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV)**, **[Romans 8:1-4](https://www.biblegateway.com/passage/?search=Romans%208%3A1-4&version=ESV)**) that will produce good deeds naturally.
+That faith that is not based on one's past works is a presently trusting faith (**[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV)**, **[Romans 8:1-4](https://www.biblegateway.com/passage/?search=Romans%208%3A1-4&version=ESV)**) that will produce good deeds naturally:
 
 > **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** - He will render to each one according to his works [(G2041 erga; deeds)](G2041): to those who by patience in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be tribulation and distress for every human being who does [(G2716 katergazomenou)](G2716) evil, the Jew first and also the Greek, but glory and honor and peace for everyone who does [(G2038 ergazomenō; is working for payment)](G2038) good, the Jew first and also the Greek. For God shows no partiality. (ESV)
 
-> **[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)** - Now to the one who works [(G2038 ergazomenō; is working for payment)](G2038), his wages are not counted as a gift but as his due. And to the one who does not work [(G2038 ergazomenō; is working for payment)](G2038) but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from [(G5565 chōris)](G5565) works [(G2041 ergōn)](G2041): (ESV)
+> **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
 
 > **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 > **[Titus 1:15](https://www.biblegateway.com/passage/?search=Titus%201%3A15&version=ESV)** - To the pure, all things are pure, but to the defiled and unbelieving, nothing is pure; but both their minds and their consciences are defiled. (ESV)
+
+I refuse to compromise on the truth of the Scripture to concoct a false humility just for the sake of self-preservation.
+Real faith is not cowardly, false and selfish, but is, rather, agreeing with God's word and loving God's word, in the fear of God.
+Real humility in the fear of God says the truth that is that God justifes those who have faith in Jesus as that is what the word of God says,
+even if one doesn't have confidence that they themself are pleasing God.
+A person who does not lift his eyes to heaven but beats their hand on their chest saying, "Have mercy, God, on me a sinner!"
+would confess that God justifies the one who has faith in Christ Jesus, and that what does not proceed from faith is sin,
+and may be terrified that God is not pleased with them because of their sinfullness.
+
+One way I think Satan probably opposes the gospel of Jesus is when people disbelieve Jesus Christ's words such as
+His teachings on practicing righteousness (For example, these teachings **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)**, **[Matthew 13:37-42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-42&version=ESV)**, **[I John 3:6](https://www.biblegateway.com/passage/?search=1%20John%203%3A6&version=ESV)**).
+
+A person with a satanic and false 'humility' instead of believing the words of Jesus Christ would deny that Jesus's teachings are still true for
+the Christian (because they have believed a lie/lies from the devil {i.e. doctrines of demons} and have not understood God's word)
+the deceived person might say, "We're all sinners, and nothing we can do can please God." And this type of false doctrine is utterly satanic,
+and pitted against the knowledge of God. It does not lead to producing good fruit.
+
+> **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)** - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come and stand before me in this house, which is called by my name, and say, We are delivered to do all these abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I have seen it, saith the LORD. (KJV)
+
+Satanic and false 'humility' says the lie that God justifes the one who does not have faith in an attempt to give themself the rest rather than follow Jesus in love, faith and obedience and allow Jesus to gives the rest.
+Satanic and false 'humility' tries to "steal the rest" like a thief would, to try to enter into the sheepfold "some other way" rather than to do the will of God:
+
+> **[I John 3:5-7](https://www.biblegateway.com/passage/?search=1%20John%203%3A5-7&version=ESV)** - And ye know that he was manifested to take away our sins; and in him is no sin. Whosoever abideth in him sinneth not: whosoever sinneth hath not seen him, neither known him. Little children, let no man deceive you: he that doeth righteousness is righteous, even as he is righteous. (KJV)
+
+With real faith someone would not speak falsely of God's word, but would seek to convey faithfully the Scripture,
+out of the fear of God, entrust their souls to a faithful Creator while doing good, as Jesus Christ Himself did as an example for us to follow.
+
+But this additionally essential aspect of the Christian faith, that our God is a God who justifies the ungodly who have faith in Him.
+Consider that in contrast to Jesus Christ, all other humans have sinner and fallen short of God's glory.
+But if they appeal to God for mercy, in faith then God may justify them. But also if they return Such a person does **want** to be healed to practice righteousness:
+
+> **[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)** - Now to the one who works [(G2038 ergazomenō; is working for payment)](G2038), his wages are not counted as a gift but as his due. And to the one who does not work [(G2038 ergazomenō; is working for payment)](G2038) but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from [(G5565 chōris)](G5565) works [(G2041 ergōn)](G2041): (ESV)
+
+> **[Psalms 51:1-4](https://www.biblegateway.com/passage/?search=Psalms%2051%3A1-4&version=ESV)** - Have mercy on me, O God, according to your steadfast love; according to your abundant mercy blot out my transgressions. To the choirmaster. A Psalm of David, when Nathan the prophet went to him, after he had gone in to Bathsheba. Wash me thoroughly from my iniquity, and cleanse me from my sin! For I know my transgressions, and my sin is ever before me. Against you, you only, have I sinned and done what is evil in your sight, so that you may be justified in your words and blameless in your judgment. (ESV)
+
+> **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** - Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing far off, would not even lift up his eyes to heaven, but **beat his breast, saying, God, be merciful to me, a sinner**! I tell you, this man went down to his house justified, rather than the other. For everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+
+> **[Ezra 8:22](https://www.biblegateway.com/passage/?search=Ezra%208%3A22&version=ESV)** - For I was ashamed to ask the king for a band of soldiers and horsemen to protect us against the enemy on our way, since we had told the king, **The hand of our God is for good on all who seek him, and the power of his wrath is against all who forsake him.** (ESV)
 
 In order to have a genuine faith in Jesus, we need to be people who are after God's commendation. So rather than those who seek appraisal in this world and commendation from even fellow Christians, we need to instead be seeking commendation from God Himself. If a person is a "seeker of the glory that comes from man" then they are not "seekers of the glory that comes from God" (**[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)**) and they can't have genuine faith in Jesus:
 
@@ -8210,6 +8292,16 @@ In order to have a genuine faith in Jesus, we need to be people who are after Go
 > **[John 15:8](https://www.biblegateway.com/passage/?search=John%2015%3A8&version=ESV)** - By this my Father is glorified, that you bear much fruit and so prove to be my disciples.
 
 Connecting **[Romans 2:6-11](https://www.biblegateway.com/passage/?search=Romans%202%3A6-11&version=ESV)** to **[John 5:28-29](https://www.biblegateway.com/passage/?search=John%205%3A28-29&version=ESV),37-47**. We must be those who do good from a love of the Truth and be those who seek the glory that comes from the only God (i.e. seek God's commendation, seek to please God). So we must love Jesus Christ and from the love of Jesus Christ and His words and His deeds.
+
+With regard to specifically the confession of our hope, we should not waver in our faith, and if we stumble then we need to be those who "get back up" and continue on in faith:
+
+> **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=NASB)** - yet, with respect to the promise of God, he did not waver in unbelief (**[570. apistia](https://biblehub.com/greek/570.htm)**) but grew strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to perform. Therefore it was also credited to him as righteousness. (NASB)
+
+> **[Hebrews 10:19-23](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A19-23&version=ESV)** - Therefore, brothers, since we have confidence to enter the holy places by the blood of Jesus, by the new and living way that he opened for us through the curtain, that is, through his flesh, and since we have a great priest over the house of God, let us draw near with a true heart in full assurance of faith, with our hearts sprinkled clean from an evil conscience and our bodies washed with pure water. **Let us hold fast the confession of our hope without wavering, for he who promised is faithful**. (ESV)
+
+> **[Hebrews 10:37-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37-39&version=ESV)** - For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
+
+> **[I Peter 1:6-9](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A6-9&version=ESV)** - In this you rejoice, though now for a little while, if necessary, you have been grieved by various trials, so that the tested genuineness of your faith—more precious than gold that perishes though it is tested by fire—may be found to result in praise and glory and honor at the revelation of Jesus Christ. **Though you have not seen him, you love him. Though you do not now see him, you believe in him and rejoice with joy that is inexpressible and filled with glory, obtaining the outcome of your faith, the salvation of your souls.** (ESV)
 
 So without the love of God in us, and a desire to please God seeking the glory from God, seeking God's approval (as opposed to man's approval), we can't even have genuine faith. Thankfully, God is pleased with us if we receive Jesus, if we love Him, if we have faith in Him:
 
@@ -11825,7 +11917,7 @@ Hebrews 13:5 does not make it untrue that His wrath is against all who forsake H
 
 > **[Ezra 8:22](https://www.biblegateway.com/passage/?search=Ezra%208%3A22&version=ESV)** - For I was ashamed to ask the king for a band of soldiers and horsemen to protect us against the enemy on our way, since we had told the king, **The hand of our God is for good on all who seek him, and the power of his wrath is against all who forsake him.** (ESV)
 
-With regard to specifically the confession of our hope, we should not waver in our faith:
+With regard to specifically the confession of our hope, we should not waver in our faith, and if we stumble then we need to be those who "get back up" and continue on in faith:
 
 > **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=NASB)** - yet, with respect to the promise of God, he did not waver in unbelief (**[570. apistia](https://biblehub.com/greek/570.htm)**) but grew strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to perform. Therefore it was also credited to him as righteousness. (NASB)
 
@@ -17570,7 +17662,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org93419eb) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org783df14) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -23335,7 +23427,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org40b5567).
+I didn't know but it turned out to be the last day of my [sentence](#org8aa56a3).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -47807,7 +47899,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org00820c8)
+See: [33.4.1](#orge853cf9)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -67816,7 +67908,7 @@ Hebrews 13:5 does not make it untrue that His wrath is against all who forsake H
 
 > **[Ezra 8:22](https://www.biblegateway.com/passage/?search=Ezra%208%3A22&version=ESV)** - For I was ashamed to ask the king for a band of soldiers and horsemen to protect us against the enemy on our way, since we had told the king, **The hand of our God is for good on all who seek him, and the power of his wrath is against all who forsake him.** (ESV)
 
-With regard to specifically the confession of our hope, we should not waver in our faith:
+With regard to specifically the confession of our hope, we should not waver in our faith, and if we stumble then we need to be those who "get back up" and continue on in faith:
 
 > **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=NASB)** - yet, with respect to the promise of God, he did not waver in unbelief (**[570. apistia](https://biblehub.com/greek/570.htm)**) but grew strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to perform. Therefore it was also credited to him as righteousness. (NASB)
 
@@ -69315,7 +69407,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org00820c8)
+See: [33.4.1](#orge853cf9)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -69584,7 +69676,7 @@ Although it happened around midday, I was lying down on my bed very peacefully w
 
 > **[I Thessalonians 5:2-5](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A2-5&version=ESV)** - For you yourselves are fully aware that the day of the Lord will come like a thief in the night. While people are saying, There is peace and security, then sudden destruction will come upon them as labor pains come upon a pregnant woman, and they will not escape. But you are not in darkness, brothers, for that day to surprise you like a thief. For you are all children of light, children of the day. We are not of the night or of the darkness. (ESV)
 
-With regard to specifically the confession of our hope, we should not waver in our faith:
+With regard to specifically the confession of our hope, we should not waver in our faith, and if we stumble then we need to be those who "get back up" and continue on in faith:
 
 > **[Romans 4:20-22](https://www.biblegateway.com/passage/?search=Romans%204%3A20-22&version=NASB)** - yet, with respect to the promise of God, he did not waver in unbelief (**[570. apistia](https://biblehub.com/greek/570.htm)**) but grew strong in faith, giving glory to God, and being fully assured that what God had promised, He was able also to perform. Therefore it was also credited to him as righteousness. (NASB)
 
@@ -71969,7 +72061,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgedcd1c3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org92d6a4d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -80191,7 +80283,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgedcd1c3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org92d6a4d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -81529,7 +81621,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgbfa4e87)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgd81a12a)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -86486,6 +86578,10 @@ So this is what has prompted me to write on what I have written today, and also 
      8  Nevertheless, I live to serve You, God, and to be conformed into the image of Your Son, Jesus Christ.
      9  In Jesus Christ's name I pray,
     10  AMEN!!
+
+-   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-09-11 Fri 12:06&gt;</span></span>:** God knows I'm still fighting a battle against the flesh and wanting to do God's will, endeavouring to resist lies and speak the truth of Scripture into darkness. I do this hoping He has mercy on me, knowing I so often make mistakes. I'm trying to convey the Scripture accurately in the fear of God because I fall so very short of the glory of God. But compromising the truth of Scripture is not something I want to do. Also, being silent and burying the light is also not something I want to do. May God correct me and correct any error in the writings I have made as I seek to understand and convey the God's word faithfully to others.
+
+The gift of justification is received through faith in Jesus Christ apart from [(G5565 chōris)](G5565) works, and God's righteousness is apart from the [(G5565 chōris)](G5565) law, and is through this faith which is apart from [(G5565 chōris)](G5565) works. For someone who has faith presently in Jesus Christ, their former sins are forgiven. We must go on in faith. Whatever does not proceed from faith is sin. We must "stop sinning" and go on in faith. That's true gospel teaching.
 
 > **[Romans 3:21-26](https://www.biblegateway.com/passage/?search=Romans%203%3A21-26&version=ESV)** - But now the righteousness of God has been manifested apart from [(G5565 chōris)](G5565) the law [(G3551 nomou)](G3551), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that he might be just and the justifier of the one who has faith in Jesus. (ESV)
 
