@@ -383,6 +383,10 @@ We need to be doers of what Jesus Christ says here:
   we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all.
   But seek first the kingdom of God and his righteousness, and all these things will be added to you. (ESV)
 
+  Psalms 103:17-18 - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him,
+  and his righteousness to children's children, to those who keep his covenant and remember to do his
+  commandments. (ESV)
+
   Matthew 7:7-24 - Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you.
   For everyone who asks receives, and the one who seeks finds, and to the one who knocks it will be opened. Or
   which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him
@@ -677,8 +681,12 @@ appear to be doing the word:
   you—but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay
   them on people's shoulders, but they themselves are not willing to move them with their finger. (ESV)
 
-  James 1:23 - For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his
-  natural face in a mirror. (ESV)
+  James 1:21-25 - Therefore put away all filthiness and rampant wickedness and receive with meekness the implanted
+  word, which is able to save your souls. But be doers of the word, and not hearers only, deceiving yourselves.
+  For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in
+  a mirror. For he looks at himself and goes away and at once forgets what he was like. But the one who looks into
+  the perfect law, the law of liberty, and perseveres, being no hearer who forgets but a doer who acts, he will be
+  blessed in his doing. (ESV)
 
   James 4:11 - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his
   brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law
@@ -691,6 +699,38 @@ appear to be doing the word:
   the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the
   Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his
   commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+
+It is important to be a doer of the word. But we should be doers ourselves while in the imitation of Jesus not
+being quick to judge. Certainly we should endeavour to not be hypcrites as we share the words, the teachings, the
+instructions and commands from and relating to Jesus Christ, seeking to please Father God who sees everything:
+
+  Luke 6:46-49 - Why do you call me Lord, Lord, and not do what I tell you? Everyone who comes to me and hears my
+  words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid
+  the foundation on the rock. And when a flood arose, the stream broke against that house and could not shake it,
+  because it had been well built. But the one who hears and does not do them is like a man who built a house on
+  the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
+  house was great. (ESV)
+
+  John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
+  And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
+  may not remain in darkness. If anyone hears my words and does not keep them, I do not judge (G2919 krinō: do
+  judge) him; for I did not come to judge the world but to save the world. The one who rejects me and does not
+  receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken
+  on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to
+  speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me.
+  (ESV)
+
+Polycarp 6:1
+And the presbyters also must be compassionate, merciful towards all men, turning back the sheep that are gone
+astray, visiting all the infirm, not neglecting a widow or an orphan or a poor man: but providing always for that
+which is honorable in the sight of God and of men, abstaining from all anger, respect of persons, unrighteous
+judgment, being far from all love of money, not quick to believe anything against any man, not hasty in judgment,
+knowing that we all are debtors of sin.
+
+  II Corinthians 10:11-12 - Let such a person understand that what we say by letter when absent, we do when
+  present. Not that we dare to classify or compare ourselves with some of those who are commending themselves. But
+  when they measure themselves by one another and compare themselves with one another, they are without
+  understanding. (ESV)
 
 When Jesus says that He has made "known", it's implied that the people that Jesus has made known what He heard
 from His Father "do" what He commands. So there is a knowing that comes not just from hearing but from doing:
@@ -9227,7 +9267,9 @@ we should be doing as Jesus instructed (i.e. having faith in Him with love for o
   Theō) have been (G1510 estin) done (G2038 eirgasmena) (Interlinear)
 
 Jesus is the Truth (John 14:6) and we must obey the Truth (Romans 2:8). Jesus is our Righteousness (I Corinthians
-1:30) and we must obey Righteousness (Romans 6:13-23).
+1:30) if we keep His commandments from faith in and love for Him (John 14:1, John 14:15, Hebrews 1:8-9, John
+16:27, Psalms 103:17-18) and we must obey Righteousness (Romans 6:13-23) and if we love Him we will keep His
+commandments (John 14:15) and without feigning obedience (Psalm 81:15).
 
 Biblical obedience issues from a heart that loves the Truth (Luke 6:45, Psalms 81:15).
 
@@ -37009,7 +37051,9 @@ ways, and we can see Jesus working:
   him ought to walk in the same way in which he walked. (ESV)
 
 Jesus is the Truth (John 14:6) and we must obey the Truth (Romans 2:8). Jesus is our Righteousness (I Corinthians
-1:30) and we must obey Righteousness (Romans 6:13-23).
+1:30) if we keep His commandments from faith in and love for Him (John 14:1, John 14:15, Hebrews 1:8-9, John
+16:27, Psalms 103:17-18) and we must obey Righteousness (Romans 6:13-23) and if we love Him we will keep His
+commandments (John 14:15) and without feigning obedience (Psalm 81:15).
 
 Romans 4:4 is saying there is reward for working for God but that we must accept the free gift of justification
 through faith in Jesus Christ / through faith in Jesus' blood / through faith in Jesus Christ's atoning sacrifice,
@@ -138037,11 +138081,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-12 Sat 15:25
+Date: 2026-09-13 Sun 02:51
 
 Author: Shane Mulligan
 
-Created: 2026-09-12 Sat 15:31
+Created: 2026-09-13 Sun 02:58
 
 Validate
 

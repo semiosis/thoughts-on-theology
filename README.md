@@ -179,6 +179,8 @@ We need to be doers of what Jesus Christ says here:
 
 > **[Matthew 6:31-33](https://www.biblegateway.com/passage/?search=Matthew%206%3A31-33&version=ESV)** - Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will be added to you. (ESV)
 
+> **[Psalms 103:17-18](https://www.biblegateway.com/passage/?search=Psalms%20103%3A17-18&version=ESV)** - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him, and his righteousness to children's children, to those who keep his covenant and remember to do his commandments. (ESV)
+
 > **[Matthew 7:7-24](https://www.biblegateway.com/passage/?search=Matthew%207%3A7-24&version=ESV)** - Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks it will be opened. Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will your Father who is in heaven give good things to those who ask him! So whatever you wish that others would do to you, do also to them, for this is the Law and the Prophets. Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many. For the gate is narrow and the way is hard that leads to life, and those who find it are few. Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves. You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles? So, every healthy tree bears good fruit, but the diseased tree bears bad fruit. A healthy tree cannot bear bad fruit, nor can a diseased tree bear good fruit. Every tree that does not bear good fruit is cut down and thrown into the fire. Thus you will recognize them by their fruits. Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in your name, and cast out demons in your name, and do many mighty works in your name? And then will I declare to them, I never knew you; depart from me, you workers of lawlessness. Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock. (ESV)
 
 > **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
@@ -324,11 +326,28 @@ Be a doer of the word even when people around you (including those who profess t
 
 > **[Matthew 23:2-4](https://www.biblegateway.com/passage/?search=Matthew%2023%3A2-4&version=ESV)** - The scribes and the Pharisees sit on Moses' seat, so practice and observe whatever they tell you—but not what they do. For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay them on people's shoulders, but they themselves are not willing to move them with their finger. (ESV)
 
-> **[James 1:23](https://www.biblegateway.com/passage/?search=James%201%3A23&version=ESV)** - For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. (ESV)
+> **[James 1:21-25](https://www.biblegateway.com/passage/?search=James%201%3A21-25&version=ESV)** - Therefore put away all filthiness and rampant wickedness and receive with meekness the implanted word, which is able to save your souls. But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. But the one who looks into the perfect law, the law of liberty, and perseveres, being no hearer who forgets but a doer who acts, he will be blessed in his doing. (ESV)
 
 > **[James 4:11](https://www.biblegateway.com/passage/?search=James%204%3A11&version=ESV)** - Do not speak evil against one another, brothers. The one who speaks against a brother or judges his brother, speaks evil against the law and judges the law. But if you judge the law, you are not a doer of the law but a judge. (ESV)
 
 > **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but **the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me.** (ESV)
+
+It is important to be a doer of the word. But we should be doers ourselves while in the imitation of Jesus not being quick to judge. Certainly we should endeavour to not be hypcrites as we share the words, the teachings, the instructions and commands from and relating to Jesus Christ, seeking to please Father God who sees everything:
+
+> **[Luke 6:46-49](https://www.biblegateway.com/passage/?search=Luke%206%3A46-49&version=ESV)** - Why do you call me Lord, Lord, and not do what I tell you? <ins>Everyone who comes to me and hears my words and does them, I will show you **what he is like: he is like** a man building a house, who dug deep and laid the foundation on the rock</ins>. And when a flood arose, the stream broke against that house and could not shake it, because it had been well built. But the one who hears and does not do them is like a man who built a house on the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that house was great. (ESV)
+
+> **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. **I have come into the world as light, so that whoever believes in me may not remain in darkness**. If anyone hears my words and does not keep them, I do not judge [(G2919 krinō: do judge)](G2919) him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+
+-   **[Polycarp 6:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** And the presbyters also must be compassionate, merciful towards all
+    men, turning back the sheep that are gone astray, visiting all the
+    infirm, not neglecting a widow or an orphan or a poor man: but
+    providing always for that which is honorable in the sight of God
+    and of men, abstaining from all anger, respect of persons,
+    unrighteous judgment, being far from all love of money, not quick to
+    believe anything against any man, not hasty in judgment, knowing that
+    we all are debtors of sin.
+
+> **[II Corinthians 10:11-12](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A11-12&version=ESV)** - Let such a person understand that what we say by letter when absent, we do when present. Not that we dare to classify or compare ourselves with some of those who are commending themselves. But when they measure themselves by one another and compare themselves with one another, they are without understanding. (ESV)
 
 When Jesus says that He has made "known", it's implied that the people that Jesus has made known what He heard from His Father "do" what He commands. So there is a knowing that comes not just from hearing but from doing:
 
@@ -4295,7 +4314,7 @@ If we're really keeping Jesus' commandments (as in trusting and loving God, God'
 
 > **[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)** - The [one] however practicing [(G4160 poiōn; doing)](G4160) the truth [(G225 alētheian)](G225) comes [(G2064 erchetai)](G2064) to the Light [(G5457 phōs)](G5457) that may be manifest [(G5319 phanerōthē)](G5319) his works [(G2041 erga)](G2041) that in God [(G2316 Theō)](G2316) have been [(G1510 estin)](G1510) done [(G2038 eirgasmena)](G2038) (Interlinear)
 
-Jesus is the Truth ([John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)) and we must obey the Truth ([Romans 2:8](https://www.biblegateway.com/passage/?search=Romans%202%3A8&version=ESV)). Jesus is our Righteousness ([I Corinthians 1:30](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A30&version=ESV)) and we must obey Righteousness ([Romans 6:13-23](https://www.biblegateway.com/passage/?search=Romans%206%3A13-23&version=ESV)).
+Jesus is the Truth ([John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)) and we must obey the Truth ([Romans 2:8](https://www.biblegateway.com/passage/?search=Romans%202%3A8&version=ESV)). Jesus is our Righteousness ([I Corinthians 1:30](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A30&version=ESV)) if we keep His commandments from faith in and love for Him (**[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV)**, **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**, **[Hebrews 1:8-9](https://www.biblegateway.com/passage/?search=Hebrews%201%3A8-9&version=ESV)**, **[John 16:27](https://www.biblegateway.com/passage/?search=John%2016%3A27&version=ESV)**, **[Psalms 103:17-18](https://www.biblegateway.com/passage/?search=Psalms%20103%3A17-18&version=ESV)**) and we must obey Righteousness ([Romans 6:13-23](https://www.biblegateway.com/passage/?search=Romans%206%3A13-23&version=ESV)) and if we love Him we will keep His commandments (**[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**) and without feigning obedience (**[Psalm 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)**).
 
 Biblical obedience issues from a heart that loves the Truth (**[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)**, **[Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)**).
 
@@ -17742,7 +17761,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd9cb322) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgdb9f3fb) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -19967,7 +19986,7 @@ By holding our faith in Jesus and obediently keeping His commandments, we can co
 
 > **[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)** - And by this we know that we have come to know him, if we keep his commandments. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure that we are in him: whoever says he abides in him ought to walk in the same way in which he walked. (ESV)
 
-Jesus is the Truth ([John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)) and we must obey the Truth ([Romans 2:8](https://www.biblegateway.com/passage/?search=Romans%202%3A8&version=ESV)). Jesus is our Righteousness ([I Corinthians 1:30](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A30&version=ESV)) and we must obey Righteousness ([Romans 6:13-23](https://www.biblegateway.com/passage/?search=Romans%206%3A13-23&version=ESV)).
+Jesus is the Truth ([John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)) and we must obey the Truth ([Romans 2:8](https://www.biblegateway.com/passage/?search=Romans%202%3A8&version=ESV)). Jesus is our Righteousness ([I Corinthians 1:30](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A30&version=ESV)) if we keep His commandments from faith in and love for Him (**[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV)**, **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**, **[Hebrews 1:8-9](https://www.biblegateway.com/passage/?search=Hebrews%201%3A8-9&version=ESV)**, **[John 16:27](https://www.biblegateway.com/passage/?search=John%2016%3A27&version=ESV)**, **[Psalms 103:17-18](https://www.biblegateway.com/passage/?search=Psalms%20103%3A17-18&version=ESV)**) and we must obey Righteousness ([Romans 6:13-23](https://www.biblegateway.com/passage/?search=Romans%206%3A13-23&version=ESV)) and if we love Him we will keep His commandments (**[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**) and without feigning obedience (**[Psalm 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)**).
 
 [Romans 4:4](https://www.biblegateway.com/passage/?search=Romans%204%3A4&version=ESV) is saying there is reward for working for God but that we must accept the free gift of justification through faith in Jesus Christ / through faith in Jesus' blood / through faith in Jesus Christ's atoning sacrifice, His passion, death and resurrection, and that justification through faith in His blood comes from work which He did and is totally independant of our work.
 
@@ -23507,7 +23526,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org85416a0).
+I didn't know but it turned out to be the last day of my [sentence](#org87ff036).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -47981,7 +48000,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgf84e619)
+See: [33.4.1](#orga7b9935)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -69491,7 +69510,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgf84e619)
+See: [33.4.1](#orga7b9935)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -72145,7 +72164,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgea1e949) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org26f933f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -80367,7 +80386,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgea1e949) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org26f933f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -81705,7 +81724,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org5395f7b)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgebaf56e)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
