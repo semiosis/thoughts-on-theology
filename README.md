@@ -171,7 +171,7 @@ Faith is in the heart and confession is speaking the same as God. Justification 
 
 > **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
 
-We need to be doers of what Jesus Christ says here:
+We need to be doers of what Jesus Christ says here. Being led by the spirit and not under the law, a person would be "seeking first the Kingdom of God and His righteousness" in preference to worrying about worldly concerns to the the flesh their strength, and so would prioritise by faith obeying Jesus Christ's commandments in reality over, say, "ironing a shirt". God wants us to walk by the spirit (do the will of God which He has commanded us) and to leave the rest to Him which includes providing us with our material needs:
 
 > **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
@@ -202,6 +202,12 @@ So we should "do good". Putting on the new self, and be renewed in mind, and tru
 > **[Luke 6:32-36](https://www.biblegateway.com/passage/?search=Luke%206%3A32-36&version=ESV)** - If you love those who love you, what benefit is that to you? For even sinners love those who love them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same. And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be merciful, even as your Father is merciful. (ESV)
 
 > **[Isaiah 1:16-17](https://www.biblegateway.com/passage/?search=Isaiah%201%3A16-17&version=ESV)** - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes; cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the widow's cause. (ESV)
+
+> **[John 12:35-36](https://www.biblegateway.com/passage/?search=John%2012%3A35-36&version=ESV)** - So Jesus said to them, The light is among you for a little while longer. Walk while you have the light, lest darkness overtake you. The one who walks in the darkness does not know where he is going. While you have the light, believe in the light, that you may become sons of light. When Jesus had said these things, he departed and hid himself from them. (ESV)
+
+> **[I John 2:8-9](https://www.biblegateway.com/passage/?search=1%20John%202%3A8-9&version=ESV)** - At the same time, it is a new commandment that I am writing to you, which is true in him and in you, because the darkness is passing away and the true light is already shining. Whoever says he is in the light and hates his brother is still in darkness. (ESV)
+
+> **[I John 3:14](https://www.biblegateway.com/passage/?search=1%20John%203%3A14&version=ESV)** - We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. (ESV)
 
 All things being new from my perspective, I believe God's will for me is to go on bearing with my family in Christ in love and forgiveness (**[Colossians 3:12-13](https://www.biblegateway.com/passage/?search=Colossians%203%3A12-13&version=ESV)**) towards them. As for my neighbour generally, I forgive any offences against me personally. I'll endeavour in the imitation of Jesus to preach the gospel of God, and not be quick to judge ([Polycarp 6:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html)), perhaps quote **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** to them and let them know that Jesus' word will judge on the last day but that Jesus has come to save and we should imitate His patience (**[II Peter 3:15](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A15&version=ESV)**) with others. Whoever is having faith in Jesus Christ is not judged, but whoever rejects Him and His words has a judge (**[John 12:47-48](https://www.biblegateway.com/passage/?search=John%2012%3A47-48&version=ESV)**). Whoever is disbelieving in Jesus Christ (i.e. rejects the truth of, hates the truth of God revealed in Jesus Christ) is judged already (**[John 3:14-21](https://www.biblegateway.com/passage/?search=John%203%3A14-21&version=ESV)**). Even if I myself forgive others for any perceived wrong against me, if they remain against Jesus then that remains a problem for them. I can only bear fruit for God while done in Christ (**[John 15:4](https://www.biblegateway.com/passage/?search=John%2015%3A4&version=ESV)**) abiding in His teachings. There's no other name under heaven among men by which we must be saved other than the name of Jesus Christ (**[Acts 4:8-12](https://www.biblegateway.com/passage/?search=Acts%204%3A8-12&version=ESV)**):
 
@@ -390,6 +396,34 @@ Those who are "under the law" will be judged by the law, but there is no law aga
 To be not "under the law" we need to be led by the Spirit. As we are having faith in Jesus, we should be producing the fruit of the Spirit (**[Romans 15:13](https://www.biblegateway.com/passage/?search=Romans%2015%3A13&version=ESV)**), and since there is no law against the fruit of the Spirit (**[Galatians 5:22-23](https://www.biblegateway.com/passage/?search=Galatians%205%3A22-23&version=ESV)**), that should protect us from from condemnation by the law:
 
 > **[I John 3:3-11](https://www.biblegateway.com/passage/?search=1%20John%203%3A3-11&version=ESV)** - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. (ESV)
+
+-   **[youtube.com:  Walking in The Spirit {@ BrotherMikeMcGary } @time: 4 min 39 sec](https://youtube.com/watch?v=CPhngBNbw7I&t=279):** The kingdom of God is me putting myself
+    under his rule doing what he tells us to
+    do. If he says do not steal and I steal,
+    I'm taking myself out from under the
+    present, out from under the rule of God
+    and I'm doing what I want to do in my
+    mind, will and emotions or whatever. So
+    being in obedience, Paul called it
+    walking in the spirit. Doing the thing
+    in the walking in the spirit, doing the
+    things of the spirit, being led by the
+    spirit.
+    
+    And we're going to read that
+    here in chapter 8. But [clears throat]
+    here's the thing about it, right? So
+    this first verse in particular, and I'm
+    trying not to get hung up on this, um,
+    but how many times have we heard it
+    preached, there's now no therefore no
+    condemnation of those who are in Christ
+    Jesus. Yeah, 100%. That's correct. But
+    yet you're living over here in
+    disobedience and saying, "Oh, there's no
+    condemnation." And then, well, yeah,
+    there's condemnation because you're not
+    where you're supposed to be.
 
 God makes a believer born-again at some point as they are believing, and this is so that we can put to death the deeds of the flesh:
 
@@ -793,6 +827,10 @@ And God cleans us as we hold our faith in Jesus Christ preferring Him.
 
 There is no rest for the unrepentant. Whether a person has a disease/illness or not, they need to come to faith in Jesus with the love of God. A sick person finds no cure in being unrepentant. Real love and compassion encourages people to turn from the error of their ways. It's not right to say, "The ill/diseased are excused from needing to repent and have faith." We don't just *take* the rest from Jesus without coming to Jesus (learning from Him). Jesus gives the rest to those who come to Him. We need to come to have a genuine faith in Jesus which loves the truth. Whoever is presently having faith in Jesus is not committing sin. God justifies the ungodly who have faith in Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (**[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)**, **[I John 5:1-6](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-6&version=ESV)**, **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**).
 
+Connecting both mentions of "showing no partiality" in **[James 2:1-12](https://www.biblegateway.com/passage/?search=James%202%3A1-12&version=ESV)**, holding faith and being "law abiding" (which Christians must be), not committing sin, go hand in hand:
+
+> **[James 2:1-12](https://www.biblegateway.com/passage/?search=James%202%3A1-12&version=ESV)** - My brothers, **show no partiality as you hold the faith in our Lord Jesus Christ,** the Lord of glory. For if a man wearing a gold ring and fine clothing comes into your assembly, and a poor man in shabby clothing also comes in, and if you pay attention to the one who wears the fine clothing and say, You sit here in a good place, while you say to the poor man, You stand over there, or, Sit down at my feet, have you not then made distinctions among yourselves and become judges with evil thoughts? Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? But you have dishonored the poor man. Are not the rich the ones who oppress you, and the ones who drag you into court? Are they not the ones who blaspheme the honorable name by which you were called? If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. But **if you show partiality, you are committing sin and are convicted by the law as transgressors.** For whoever keeps the whole law but fails in one point has become accountable for all of it. For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you have become a transgressor of the law. So speak and so act as those who are to be judged under the law of liberty. (ESV)
+
 Those who love the darkness rather than love God (**[John 3:14-19](https://www.biblegateway.com/passage/?search=John%203%3A14-19&version=ESV)**, **[II Timothy 3:1-5](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A1-5&version=ESV)**) are unrepentant people (**[II Timothy 3:6-8](https://www.biblegateway.com/passage/?search=2%20Timothy%203%3A6-8&version=ESV)**) who are disqualified in their faith and who do not come to the knowledge of the truth which God desires all people to come to know (**[I Timothy 2:4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A4&version=ESV)**). So having the love of God in us is important for being saved. And unless someone is keeping God's commandments, for them, then they surely cannot have come to the knowledge of the truth (**[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)**). We have to have the love of God in us to have genuine faith in Jesus:
 
 > **[Isaiah 48:22](https://www.biblegateway.com/passage/?search=Isaiah%2048%3A22&version=ESV)** - There is no peace, says the LORD, for the wicked. (ESV)
@@ -1040,6 +1078,10 @@ The root matters. A person can't have genuine faith in Jesus and be committing s
 > **[Mark 7:18-23](https://www.biblegateway.com/passage/?search=Mark%207%3A18-23&version=ESV)** - And he saith unto them, Are ye so without understanding also? Do ye not perceive, that whatsoever thing from without entereth into the man, it cannot defile him; Because it entereth not into his heart, but into the belly, and goeth out into the draught, purging all meats? And he said, That which cometh out of the man, that defileth the man. For from within, out of the heart of men, proceed evil thoughts, adulteries, fornications, murders, Thefts, covetousness, wickedness, deceit, lasciviousness, an evil eye, blasphemy, pride, foolishness: All these evil things come from within, and defile the man. (KJV)
 
 > **[Isaiah 55:11](https://www.biblegateway.com/passage/?search=Isaiah%2055%3A11&version=ESV)** - so shall my word be that goes out from my mouth; it shall not return to me empty, but it shall accomplish that which I purpose, and shall succeed in the thing for which I sent it. (ESV)
+
+> **[Isaiah 61:1-3](https://www.biblegateway.com/passage/?search=Isaiah%2061%3A1-3&version=ESV)** - The Spirit of the Lord GOD is upon me, because the LORD has anointed me to bring good news to the poor; he has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to those who are bound; to proclaim the year of the LORD's favor, and the day of vengeance of our God; to comfort all who mourn; to grant to those who mourn in Zion— to give them a beautiful headdress instead of ashes, the oil of gladness instead of mourning, the garment of praise instead of a faint spirit; that they may be called <ins>oaks of righteousness, the planting of the LORD, that he may be glorified.</ins> (ESV)
+
+-   **[Isaiah 61:3 (Interlinear)](https://biblehub.com/interlinear/isaiah/61-3.htm):** to appoint to mourners in Zion to give to them beauty instead of ashes the oil of joy instead of mourning a garment of praise instead of a spirit of dullness and will be called to them <ins>oaks [(H352 ’ê·lê)](H352) of righteousness [(H6664 haṣ·ṣe·ḏeq,)](H6664) the planting [(H4302 maṭ·ṭa‘)](H4302) of YHWH [(H3068 Yah·weh)](H3068) for His being glorified [(H6286 lə·hiṯ·pā·’êr.)](H6286)</ins>
 
 Jesus taught words from His Father, and so a person receiving Jesus and His words, or the words of God that have been spoken about Him, come to Jesus.
 
@@ -1473,6 +1515,34 @@ We've got to love love-another and resist sin and fulfill the law of Christ:
 > **[II Corinthians 5:9-12](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A9-12&version=ESV)** - So whether we are at home or away, we make it our aim to please him. For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But what we are is known to God, and I hope it is known also to your conscience. We are not commending ourselves to you again but giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance and not about what is in the heart. (ESV)
 
 > **[Matthew 6:3-4](https://www.biblegateway.com/passage/?search=Matthew%206%3A3-4&version=ESV),6,17-18** - But when you give to the needy, do not let your left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in secret will reward you. But when you pray, go into your room and shut the door and pray to your Father who is in secret. And your Father who sees in secret will reward you. But when you fast, anoint your head and wash your face, that your fasting may not be seen by others but by your Father who is in secret. And your Father who sees in secret will reward you. (ESV)
+
+-   **[youtube.com:  Walking in The Spirit {@ BrotherMikeMcGary } @time: 4 min 39 sec](https://youtube.com/watch?v=CPhngBNbw7I&t=279):** The kingdom of God is me putting myself
+    under his rule doing what he tells us to
+    do. If he says do not steal and I steal,
+    I'm taking myself out from under the
+    present, out from under the rule of God
+    and I'm doing what I want to do in my
+    mind, will and emotions or whatever. So
+    being in obedience, Paul called it
+    walking in the spirit. Doing the thing
+    in the walking in the spirit, doing the
+    things of the spirit, being led by the
+    spirit.
+    
+    And we're going to read that
+    here in chapter 8. But [clears throat]
+    here's the thing about it, right? So
+    this first verse in particular, and I'm
+    trying not to get hung up on this, um,
+    but how many times have we heard it
+    preached, there's now no therefore no
+    condemnation of those who are in Christ
+    Jesus. Yeah, 100%. That's correct. But
+    yet you're living over here in
+    disobedience and saying, "Oh, there's no
+    condemnation." And then, well, yeah,
+    there's condemnation because you're not
+    where you're supposed to be.
 
 Being "made alive" is a gift that is gifted to us to save us from being enslaved to sin. This grace saves us:
 
@@ -2251,7 +2321,7 @@ If someone has forgiveness from Jesus then they must now love Jesus Christ (**[L
 
 > **[Acts 26:18](https://www.biblegateway.com/passage/?search=Acts%2026%3A18&version=ESV)** - to open their eyes, so that they may turn from darkness to light and from the power of Satan to God, **that they may receive** forgiveness of sins and a place among those who are sanctified by faith in me. (ESV)
 
-Christians **must** be law-abiding by Jesus' commandments (**[Matthew 13:38-43](https://www.biblegateway.com/passage/?search=Matthew%2013%3A38-43&version=ESV)**, **[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)**, **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)**) but not under the Book of the Law (**[Galatians 3:10](https://www.biblegateway.com/passage/?search=Galatians%203%3A10&version=ESV)**, **[Galatians 3:23](https://www.biblegateway.com/passage/?search=Galatians%203%3A23&version=ESV)**) and not reliant on the works of the law (**[Romans 3:20](https://www.biblegateway.com/passage/?search=Romans%203%3A20&version=ESV)**), the works of the Law being inclusive of the external actions.
+Christians **must** be law-abiding [(G1772 ennomos; lawful to, law-abiding to, in the law of)](G1772) by Jesus' commandments (**[Matthew 13:38-43](https://www.biblegateway.com/passage/?search=Matthew%2013%3A38-43&version=ESV)**, **[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)**, **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)**) but not under the Book of the Law (**[Galatians 3:10](https://www.biblegateway.com/passage/?search=Galatians%203%3A10&version=ESV)**, **[Galatians 3:23](https://www.biblegateway.com/passage/?search=Galatians%203%3A23&version=ESV)**) and not reliant on the works of the law (**[Romans 3:20](https://www.biblegateway.com/passage/?search=Romans%203%3A20&version=ESV)**), the works of the Law being inclusive of the external actions.
 
 It's the <ins>['anomian'](G458)</ins> (i.e. the wicked; those who hate righteousness, those who prefer evil to Jesus Christ) who don't abide in Jesus, and who not abiding are cast out, and wither and are eventually burned. God is longsuffering and merciful but we do need to become those who end up bearing good fruit. If a person loves Jesus Christ more than anyone or anything else, then they will bear good fruit:
 
@@ -2609,6 +2679,14 @@ If a person by faith in Jesus Christ keeps His instruction to "not worry about t
 
 > **[Matthew 6:30-34](https://www.biblegateway.com/passage/?search=Matthew%206%3A30-34&version=ESV)** - But if God so clothes the grass of the field, which today is alive and tomorrow is thrown into the oven, will he not much more clothe you, O you of little faith? Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will be added to you. Therefore do not be anxious about tomorrow, for tomorrow will be anxious for itself. Sufficient for the day is its own trouble. (ESV)
 
+We should endeavour to be mindful of Jesus Christ's commandments rather than to be earthly minded and to not deter others from practicing Jesus Christ's commandments. After all, we need to be led by the spirit to not be under the law (**[Galatians 5:18-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A18-25&version=ESV)**):
+
+-   [youtube.com:  NEVER do this to someone who is searching for Jesus {@ LakepointeChurch }](https://www.youtube.com/shorts/WwQzFzuF704)
+
+> **[Psalms 103:17-18](https://www.biblegateway.com/passage/?search=Psalms%20103%3A17-18&version=ESV)** - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him, **and his righteousness to children's children, to those who keep his covenant and remember to do his commandments.** (ESV)
+
+> **[II Corinthians 5:12](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A12&version=ESV)** - We are not commending ourselves to you again but giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance and not about what is in the heart. (ESV)
+
 However, it is very important to continue abiding in the teaching of Christ which includes walking according to His commandments:
 
 > **[II John 1:1-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A1-11&version=ESV)** - The elder to the elect lady and her children, whom I love in truth, and not only I, but also all who know the truth, because of the truth that abides in us and will be with us forever: Grace, mercy, and peace will be with us, from God the Father and from Jesus Christ the Father's Son, in truth and love. I rejoiced greatly to find some of your children walking in the truth, just as we were commanded by the Father. And now I ask you, dear lady—not as though I were writing you a new commandment, but the one we have had from the beginning—that we love one another. And this is love, that we walk according to his commandments; this is the commandment, just as you have heard from the beginning, so that you should walk in it. For many deceivers have gone out into the world, those who do not confess the coming of Jesus Christ in the flesh. Such a one is the deceiver and the antichrist. Watch yourselves, so that you may not lose what we have worked for, but may win a full reward. **Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son.** If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his wicked works. (ESV)
@@ -2698,6 +2776,56 @@ Sanctification continues as we walk obediently by faith in the Lord Jesus Christ
 > **[**Romans 6:15-23**](https://read.lsbible.org/?q=Romans+6)** - What then? Shall we sin because we are not under law but under grace? May it never be! Do you not know that when you go on presenting yourselves to someone as slaves for obedience, you are slaves of the one whom you obey, either of sin leading to death, or of obedience leading to righteousness? But thanks be to God that though you were slaves of sin, you obeyed from the heart that pattern of teaching to which you were given over, and having been freed from sin, you became slaves of righteousness. I am speaking in human terms because of the weakness of your flesh. For just as you presented your members as slaves to impurity and to lawlessness, leading to further lawlessness, so now present your members as slaves to righteousness, leading to sanctification. For when you were slaves of sin, you were free in regard to righteousness. Therefore what benefit were you then having from the things of which you are now ashamed? For the end of those things is death. But now having been freed from sin and enslaved to God, you have your benefit, leading to sanctification, and the end, eternal life. For the wages of sin is death, but the gracious gift of God is eternal life in Christ Jesus our Lord. (LSB)
 
 > **[Romans 13:9](https://www.biblegateway.com/passage/?search=Romans%2013%3A9&version=ESV)** - The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as yourself. (ESV)
+
+Connecting both mentions of "showing no partiality" in **[James 2:1-12](https://www.biblegateway.com/passage/?search=James%202%3A1-12&version=ESV)**, holding faith and being "law abiding" (to the law of faith in Christ, to Christ's law), not committing sin, go hand in hand:
+
+> **[James 2:1-12](https://www.biblegateway.com/passage/?search=James%202%3A1-12&version=ESV)** - My brothers, **show no partiality as you hold the faith in our Lord Jesus Christ,** the Lord of glory. For if a man wearing a gold ring and fine clothing comes into your assembly, and a poor man in shabby clothing also comes in, and if you pay attention to the one who wears the fine clothing and say, You sit here in a good place, while you say to the poor man, You stand over there, or, Sit down at my feet, have you not then made distinctions among yourselves and become judges with evil thoughts? Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? But you have dishonored the poor man. Are not the rich the ones who oppress you, and the ones who drag you into court? Are they not the ones who blaspheme the honorable name by which you were called? If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. But **if you show partiality, you are committing sin and are convicted by the law as transgressors.** For whoever keeps the whole law but fails in one point has become accountable for all of it. For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you have become a transgressor of the law. So speak and so act as those who are to be judged under the law of liberty. (ESV)
+
+If law-abiding to the law of faith in Christ Jesus ('If you love me') then you will be law-abiding to Christ Jesus' commandments ('you will keep my commandments'):
+
+> **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
+
+Faith is commanded (**[I John 3:23](https://www.biblegateway.com/passage/?search=1%20John%203%3A23&version=ESV)**) and so in passages such as **[Romans 4:13-17](https://www.biblegateway.com/passage/?search=Romans%204%3A13-17&version=ESV) it can only be assumed that some distinction has to be made between \*commandments** and **law**.
+
+The law of Moses comprised of numerous commandments brings wrath, but it was only a former commandment:
+
+> **[Hebrews 9:19-20](https://www.biblegateway.com/passage/?search=Hebrews%209%3A19-20&version=ESV)** - For **when every commandment of the *law* had been declared by Moses to all the people,** he took the blood of calves and goats, with water and scarlet wool and hyssop, and sprinkled both the book itself and all the people, saying, This is the blood of the covenant that God commanded for you. (ESV)
+
+> **[Hebrews 7:18-22](https://www.biblegateway.com/passage/?search=Hebrews%207%3A18-22&version=ESV)** - On the one hand, a **former commandment** is set aside because of its weakness and uselessness (for the law made nothing perfect); but on the other hand, a better hope is introduced, through which we draw near to God. And it was not without an oath. For those who formerly became priests were made such without an oath, but this one was made a priest with an oath by the one who said to him: The Lord has sworn and will not change his mind, You are a priest forever. This makes Jesus the guarantor of a better covenant. (ESV)
+
+The law of Christ is a new commandment and a change in "the law" (not an abolishment, but a change):
+
+> **[Hebrews 7:12](https://www.biblegateway.com/passage/?search=Hebrews%207%3A12&version=ESV)** - For when there is a change in the priesthood, there is necessarily **a change in the law** as well. (ESV)
+
+> **[II Peter 3:1-3](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A1-3&version=ESV)** - This is now the second letter that I am writing to you, beloved. In both of them I am stirring up your sincere mind by way of reminder, that you should remember the predictions of the holy prophets and **the commandment of the Lord and Savior through your apostles,** knowing this first of all, that scoffers will come in the last days with scoffing, following their own sinful desires. (ESV)
+
+> **[I John 4:21](https://www.biblegateway.com/passage/?search=1%20John%204%3A21&version=ESV)** - And this commandment we have from him: whoever loves God must also love his brother. (ESV)
+
+> **[I John 5:3](https://www.biblegateway.com/passage/?search=1%20John%205%3A3&version=ESV)** - For this is the love of God, that we keep his commandments. And his commandments are not burdensome. (ESV)
+
+> **[II John 1:5-6](https://www.biblegateway.com/passage/?search=2%20John%201%3A5-6&version=ESV)** - And now I ask you, dear lady—not as though I were writing you a new commandment, but the one we have had from the beginning—that we love one another. And this is love, that we walk according to his commandments; this is the commandment, just as you have heard from the beginning, so that you should walk in it. (ESV)
+
+> **[Revelation of John 12:17](https://www.biblegateway.com/passage/?search=Revelation%2012%3A17&version=ESV)** - Then the dragon became furious with the woman and went off to make war on the rest of her offspring, on those who keep the commandments of God and hold to the testimony of Jesus. And he stood on the sand of the sea. (ESV)
+
+> **[Revelation of John 14:12](https://www.biblegateway.com/passage/?search=Revelation%2014%3A12&version=ESV)** - Here is a call for the endurance of the saints, those who keep the commandments of God and their faith in Jesus. (ESV)
+
+The law of Moses **is** a commandment (**[Romans 7:9](https://www.biblegateway.com/passage/?search=Romans%207%3A9&version=ESV)**) but not all commandments are of the law of Moses (which Jesus Christ fulfilled) but are, rather, grace (**[John 1:17](https://www.biblegateway.com/passage/?search=John%201%3A17&version=ESV)**). Jesus Christ fulfilled the law of Moses and He gave other commandments (Christ's law). Christ's law is grace. The Old Covenant law Paul calls the ministry of death (**[II Corinthians 3:6-9](https://www.biblegateway.com/passage/?search=2%20Corinthians%203%3A6-9&version=ESV)**) while Christ's law (commandments) is life.:
+
+> **[I John 3:23](https://www.biblegateway.com/passage/?search=1%20John%203%3A23&version=ESV)** - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. (ESV)
+
+> **[Romans 4:13-17](https://www.biblegateway.com/passage/?search=Romans%204%3A13-17&version=ESV)** - For the promise to Abraham and his offspring that he would be heir of the world did not come through the law but through the righteousness of faith. For if it is the adherents of the law who are to be the heirs, faith is null and the promise is void. For the law brings wrath, but where there is no law there is no transgression. That is why it depends on faith, in order that the promise may rest on grace and be guaranteed to all his offspring—not only to the adherent of the law but also to the one who shares the faith of Abraham, who is the father of us all, as it is written, I have made you the father of many nations—in the presence of the God in whom he believed, who gives life to the dead and calls into existence the things that do not exist.
+
+> **[Romans 7:9](https://www.biblegateway.com/passage/?search=Romans%207%3A9&version=ESV)** - I was once alive apart from the law, but when the commandment came, sin came alive and I died. (ESV)
+
+> **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in me, believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) not in me but in him who sent me.  And whoever sees me sees him who sent me.  I have come into the world as light, so that whoever believes in me may not remain in darkness.  If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world.  The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day.  For **I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak**.  And I know that his commandment is eternal life.  What I say, therefore, I say as the Father has told me. (ESV)
+
+With Jesus Christ as our Master we can through faith in Him fulfill the requirement of the law:
+
+> **[Romans 6:16-18](https://www.biblegateway.com/passage/?search=Romans%206%3A16-18&version=ESV),7:25,8:1-4** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin. There is therefore now no condemnation for those who are in Christ Jesus. For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
+
+It's not possible for someone to love God if they hate their brother:
+
+> **[I John 4:19-21](https://www.biblegateway.com/passage/?search=1%20John%204%3A19-21&version=ESV)** - We love because he first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: **whoever loves God must also love his brother**. (ESV)
 
 Loving our neighbouor involves also those neighbours who hate us:
 
@@ -4104,7 +4232,17 @@ God considers the intentions of our hearts even for the mistakes that we make:
 
 > **[Deuteronomy 19:4-7](https://www.biblegateway.com/passage/?search=Deuteronomy%2019%3A4-7&version=ESV)** - This is the provision for the manslayer, who by fleeing there may save his life. If anyone kills his neighbor unintentionally without having hated him in the past— as when someone goes into the forest with his neighbor to cut wood, and his hand swings the axe to cut down a tree, and the head slips from the handle and strikes his neighbor so that he dies—he may flee to one of these cities and live, lest the avenger of blood in hot anger pursue the manslayer and overtake him, because the way is long, and strike him fatally, though the man did not deserve to die, since he had not hated his neighbor in the past. Therefore I command you, You shall set apart three cities. (ESV)
 
-Deeds are given to the person who has faith.
+Deeds are given to the person who has faith:
+
+> **[Ephesians 2:10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A10&version=ESV)** - For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+We should just do what the Lord Jesus Christ says and disregard the advice of those who would deter us:
+
+> **[Psalms 1:1-6](https://www.biblegateway.com/passage/?search=Psalms%201%3A1-6&version=ESV)** - Blessed is the man who walks not in the counsel of the wicked, nor stands in the way of sinners, nor sits in the seat of scoffers; but his delight is in the law of the LORD, and on his law he meditates day and night. He is like a tree planted by streams of water that yields its fruit in its season, and its leaf does not wither. In all that he does, he prospers. The wicked are not so, but are like chaff that the wind drives away. Therefore the wicked will not stand in the judgment, nor sinners in the congregation of the righteous; for the LORD knows the way of the righteous, but the way of the wicked will perish. (ESV)
+
+> **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
 
 The person who does not "work" but "does" faith in Jesus, that person's faith is counted as righteousness:
 
@@ -5872,6 +6010,8 @@ We should just do what the Lord Jesus Christ says and disregard the advice of th
 
 > **[Psalms 1:1-6](https://www.biblegateway.com/passage/?search=Psalms%201%3A1-6&version=ESV)** - Blessed is the man who walks not in the counsel of the wicked, nor stands in the way of sinners, nor sits in the seat of scoffers; but his delight is in the law of the LORD, and on his law he meditates day and night. He is like a tree planted by streams of water that yields its fruit in its season, and its leaf does not wither. In all that he does, he prospers. The wicked are not so, but are like chaff that the wind drives away. Therefore the wicked will not stand in the judgment, nor sinners in the congregation of the righteous; for the LORD knows the way of the righteous, but the way of the wicked will perish. (ESV)
 
+> **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
+
 It's Jesus Christ who is our teacher, and we should direct those who we teach to follow Jesus Christ directly and for themselves. Jesus' word is authoritative. But Jesus' instruction to not call ourself 'teacher', or 'instructor', or 'rabbi' (, and it follows also 'master', 'Lord' etc.) doesn't mean we should not progress into teaching others after we have become skilled in the word of righteousness. At some point we should get to the point where we can teach and disciple others, but we should be directing people to have their own faith in Jesus Christ:
 
 > **[Matthew 23:8-11](https://www.biblegateway.com/passage/?search=Matthew%2023%3A8-11&version=ESV)** - But you are not to be called rabbi, for you have one teacher, and you are all brothers. And call no man your father on earth, for you have one Father, who is in heaven. Neither be called instructors, for you have one instructor, the Christ. The greatest among you shall be your servant. (ESV)
@@ -7623,7 +7763,7 @@ Real law-abidingness is having "willing" obedience to God's commandments for us 
 
 > **[Romans 3:27-28](https://www.biblegateway.com/passage/?search=Romans%203%3A27-28&version=ESV)** - Then what becomes of our boasting? It is excluded. By what kind of law? By a law of works? No, but by the law of faith. For we hold that one is justified by faith apart from works of the law. (ESV)
 
-> **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)** - To those outside the law I became as one outside the law (not being outside the law of God but under [(G1772 ennomos)](G1772) the law of Christ) that I might win those outside the law. (ESV)
+> **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)** - To those outside the law I became as one outside the law (not being outside the law of God but under [(G1772 ennomos; lawful to, law-abiding to, in the law of)](G1772) the law of Christ) that I might win those outside the law. (ESV)
 
 > **[Hebrews 11:8](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A8&version=ESV)** - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an inheritance. And he went out, not knowing where he was going. (ESV)
 
@@ -9728,11 +9868,59 @@ Works is to faith as body is to spirit:
 
 > **[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)** - For as the body apart from the spirit is dead, so also faith apart [(G5565 chōris)](G5565) from works is dead. (ESV)
 
+A person cannot make false witness in faith, nor can they murder or commit adultery or idolatry in faith:
+
+> **[Revelation of John 21:8](https://www.biblegateway.com/passage/?search=Revelation%2021%3A8&version=ESV)** - But as for the cowardly, **the faithless,** the detestable, as for murderers, the sexually immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur, which is the second death. (ESV)
+
+Connecting both mentions of "showing no partiality" in **[James 2:1-12](https://www.biblegateway.com/passage/?search=James%202%3A1-12&version=ESV)**, holding faith and being "law abiding", not committing sin, go hand in hand, and if we love Jesus Christ then we will be law-abiding:
+
+> **[James 2:1-12](https://www.biblegateway.com/passage/?search=James%202%3A1-12&version=ESV)** - My brothers, **show no partiality as you hold the faith in our Lord Jesus Christ,** the Lord of glory. For if a man wearing a gold ring and fine clothing comes into your assembly, and a poor man in shabby clothing also comes in, and if you pay attention to the one who wears the fine clothing and say, You sit here in a good place, while you say to the poor man, You stand over there, or, Sit down at my feet, have you not then made distinctions among yourselves and become judges with evil thoughts? Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? But you have dishonored the poor man. Are not the rich the ones who oppress you, and the ones who drag you into court? Are they not the ones who blaspheme the honorable name by which you were called? If you really fulfill the royal law according to the Scripture, You shall love your neighbor as yourself, you are doing well. But **if you show partiality, you are committing sin and are convicted by the law as transgressors.** For whoever keeps the whole law but fails in one point has become accountable for all of it. For he who said, Do not commit adultery, also said, Do not murder. If you do not commit adultery but do murder, you have become a transgressor of the law. So speak and so act as those who are to be judged under the law of liberty. (ESV)
+
+> **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
+
 From the good treasure of one's heart they will produce good:
 
 > **[Luke 6:43](https://www.biblegateway.com/passage/?search=Luke%206%3A43&version=ESV)** - For no good tree bears bad fruit, nor again does a bad tree bear good fruit,
 
-God fixes the root of the tree so that the tree produces good fruit. The analogy is that a person is likened to a tree. A person who abides in Jesus has a good root and so will bear good fruit:
+> **[Matthew 7:17-19](https://www.biblegateway.com/passage/?search=Matthew%207%3A17-19&version=ESV)** - So, every healthy tree bears good fruit, but the diseased tree bears bad fruit. A healthy tree cannot bear bad fruit, nor can a diseased tree bear good fruit. Every tree that does not bear good fruit is cut down and thrown into the fire. (ESV)
+
+> **[Isaiah 61:1-3](https://www.biblegateway.com/passage/?search=Isaiah%2061%3A1-3&version=ESV)** - The Spirit of the Lord GOD is upon me, because the LORD has anointed me to bring good news to the poor; he has sent me to bind up the brokenhearted, to proclaim liberty to the captives, and the opening of the prison to those who are bound; to proclaim the year of the LORD's favor, and the day of vengeance of our God; to comfort all who mourn; to grant to those who mourn in Zion— to give them a beautiful headdress instead of ashes, the oil of gladness instead of mourning, the garment of praise instead of a faint spirit; that they may be called <ins>oaks of righteousness, the planting of the LORD, that he may be glorified.</ins> (ESV)
+
+-   **[Isaiah 61:3 (Interlinear)](https://biblehub.com/interlinear/isaiah/61-3.htm):** to appoint to mourners in Zion to give to them beauty instead of ashes the oil of joy instead of mourning a garment of praise instead of a spirit of dullness and will be called to them <ins>oaks [(H352 ’ê·lê)](H352) of righteousness [(H6664 haṣ·ṣe·ḏeq,)](H6664) the planting [(H4302 maṭ·ṭa‘)](H4302) of YHWH [(H3068 Yah·weh)](H3068) for His being glorified [(H6286 lə·hiṯ·pā·’êr.)](H6286)</ins>
+
+> **[Psalms 92:12-14](https://www.biblegateway.com/passage/?search=Psalms%2092%3A12-14&version=ESV)** - The righteous flourish like the palm tree and grow like a cedar in Lebanon. They are planted in the house of the LORD; they flourish in the courts of our God. They still bear fruit in old age; they are ever full of sap and green, (ESV)
+
+The root of the tree we must be in in order to live must be Jesus Christ. To make the tree good we must be in Jesus Christ. We must keep Jesus Christ's commandments to abide in Him (the commandments we need to keep are not exclusive to taking the Lord's supper). The commandment to "Do this in rememberance of me" is one commandment:
+
+> **[John 6:51](https://www.biblegateway.com/passage/?search=John%206%3A51&version=ESV)** - I am the living bread that came down from heaven. If anyone eats of this bread, he will live forever. And the bread that I will give for the life of the world is my flesh. (ESV)
+
+> **[Luke 22:19](https://www.biblegateway.com/passage/?search=Luke%2022%3A19&version=ESV)** - And he took bread, and when he had given thanks, he broke it and gave it to them, saying, This is my body, which is given for you. Do this in remembrance of me. (ESV)
+
+> **[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)** - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+> **[John 6:53-58](https://www.biblegateway.com/passage/?search=John%206%3A53-58&version=ESV)** - So Jesus said to them, Truly, truly, I say to you, unless you eat the flesh of the Son of Man and drink his blood, you have no life in you. Whoever feeds on my flesh and drinks my blood has eternal life, and I will raise him up on the last day. For my flesh is true food, and my blood is true drink. **Whoever feeds on my flesh and drinks my blood abides in me, and I in him.** As the living Father sent me, and I live because of the Father, so whoever feeds on me, he also will live because of me. This is the bread that came down from heaven, not as the fathers ate and died. Whoever feeds on this bread will live forever. (ESV)
+
+The tree of Jesus Christ will **not** be thrown in the fire. So we must abide in Jesus Christ who is the true vine:
+
+> **[John 15:1-2](https://www.biblegateway.com/passage/?search=John%2015%3A1-2&version=ESV)** - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. (ESV)
+
+> **[Romans 11:17-25](https://www.biblegateway.com/passage/?search=Romans%2011%3A17-25&version=ESV)** - But if some of the branches were broken off, and you, although a wild olive shoot, were grafted in among the others and now **share in the nourishing root of the olive tree**, do not be arrogant toward the branches. If you are, remember it is not you who support the root, but the root that supports you. Then you will say, Branches were broken off so that I might be grafted in. That is true. They were broken off because of their unbelief, but you stand fast through faith. So do not become proud, but stand in awe. For if God did not spare the natural branches, neither will he spare you. Note then the kindness and the severity of God: severity toward those who have fallen, but God's kindness to you, provided you continue in his kindness. Otherwise you too will be cut off. And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. For if you were cut from what is by nature a wild olive tree, and grafted, contrary to nature, into a cultivated olive tree, how much more will these, the natural branches, be grafted back into their own olive tree. Lest you be wise in your own conceits, I want you to understand this mystery, brothers: a partial hardening has come upon Israel, until the fullness of the Gentiles has come in. (ESV)
+
+> **[Isaiah 5:4](https://www.biblegateway.com/passage/?search=Isaiah%205%3A4&version=ESV)** - What more was there to do for my vineyard, that I have not done in it? When I looked for it to yield grapes, why did it yield wild grapes? (ESV)
+
+> **[Matthew 3:10](https://www.biblegateway.com/passage/?search=Matthew%203%3A10&version=ESV)** - Even now the axe is laid to the root of the trees. Every tree therefore that does not bear good fruit is cut down and thrown into the fire. (ESV)
+
+> **[John 15:4-6](https://www.biblegateway.com/passage/?search=John%2015%3A4-6&version=ESV)** - Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned. (ESV)
+
+God puts a person into Christ, which means their root is good. A branch, as Jesus says, bears fruit **[John 15:4-6](https://www.biblegateway.com/passage/?search=John%2015%3A4-6&version=ESV)** and if that branch is in Jesus Christ then it will bear good fruit:
+
+> **[I Corinthians 1:30](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A30&version=NASB)** - But **by His doing you are in Christ Jesus,** who became to us wisdom from God, and righteousness and sanctification, and redemption, (NASB)
+
+We are asked by Jesus in **[John 15:4-6](https://www.biblegateway.com/passage/?search=John%2015%3A4-6&version=ESV)** to abide [(G3306 meinēte; remain, abide, stay, continue, dwell, endure)](G3306) in Him.
+
+-   **Analogy for abiding in Jesus:** Since Jesus is the Telos of the Law and we're not "under the Law" but "law-abiding" to Christ's law then the person "under the Law" trying to fulfill the whole law might be compared to a person who is walking to a train station but the journey is impossibly difficult. God has done this in Jesus Christ. What is impossible for man to have done, Jesus did. And the other thing God does which is impossible for man to do without God is put us into Christ. According to the metaphor, then, God then puts us at the train station. And the person who is "law-abiding" to Christ's law would be someone who has come to Jesus, someone who Father God has drawn to Christ, and is now at the metaphorical train station (Jesus Christ who is the Telos of the law). God put them at the train station in Jesus. And Jesus asks us to "remain in Him". And so the analogy would be "remain at the train station" (i.e. You're already there, just don't leave the train station). Jesus won't expell you (i.e. no-one can snatch us from His hand) but He asks you to remain (i.e. abide) in Him. Don't go off wondering away. Don't leave the metaphorical train station. We examine ourselves to see if we are in the faith. For example, if we hate our brother then we have left the train station. If we do not believe Jesus is the Son of God then we have left the train station, and like the prodigal son, we must return to God by repentance. If we the branches remain in a place of not abiding in Christ then we wither. And at the end of the age the branches that are not abiding in Jesus are collected and burned.
+
+God puts a person into Christ so that their root is good and so they will produce good fruit. The analogy is that a person is likened to a tree. A person who abides as a branch in Jesus Christ the vine has a good/pure root and so will bear good fruit:
 
 > **[Matthew 3:10](https://www.biblegateway.com/passage/?search=Matthew%203%3A10&version=ESV)** - Even now the axe is laid to the root of the trees. Every tree therefore that does not bear good fruit is cut down and thrown into the fire. (ESV)
 
@@ -17761,7 +17949,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgdb9f3fb) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7a4f622) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -23526,7 +23714,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org87ff036).
+I didn't know but it turned out to be the last day of my [sentence](#orgae18c34).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -48000,7 +48188,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga7b9935)
+See: [33.4.1](#org460db65)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -69510,7 +69698,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga7b9935)
+See: [33.4.1](#org460db65)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -72164,7 +72352,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org26f933f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgf5d93f1) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -80386,7 +80574,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org26f933f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgf5d93f1) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -81724,7 +81912,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgebaf56e)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orga432422)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
