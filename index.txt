@@ -367,7 +367,7 @@ produced while holding good faith. From faith in Jesus and His words we do what 
 
 We need to be doers of what Jesus Christ says here. Being led by the spirit and not under the law, a person would
 be "seeking first the Kingdom of God and His righteousness" in preference to worrying about worldly concerns to
-the the flesh their strength, and so would prioritise by faith obeying Jesus Christ's commandments in reality
+make the flesh their strength, and so would prioritise by faith obeying Jesus Christ's commandments in reality
 over, say, "ironing a shirt". God wants us to walk by the spirit (do the will of God which He has commanded us)
 and to leave the rest to Him which includes providing us with our material needs:
 
@@ -462,6 +462,9 @@ requires:
 
   I John 3:14 - We know that we have passed out of death into life, because we love the brothers. Whoever does not
   love abides in death. (ESV)
+
+  John 17:26 - I made known to them your name, and I will continue to make it known, that the love with which you
+  have loved me may be in them, and I in them. (ESV)
 
 All things being new from my perspective, I believe God's will for me is to go on bearing with my family in Christ
 in love and forgiveness (Colossians 3:12-13) towards them. As for my neighbour generally, I forgive any offences
@@ -1224,6 +1227,15 @@ are cleaned up through sanctification. But they must continue in faith. Their fa
 
   Luke 22:31-32 - Simon, Simon, behold, Satan demanded to have you, that he might sift you like wheat, but I have
   prayed for you that your faith may not fail. And when you have turned again, strengthen your brothers. (ESV)
+
+  Luke 15:18-24 - I will arise and go to my father, and I will say to him, Father, I have sinned against heaven
+  and before you. I am no longer worthy to be called your son. Treat me as one of your hired servants. And he
+  arose and came to his father. But while he was still a long way off, his father saw him and felt compassion, and
+  ran and embraced him and kissed him. And the son said to him, Father, I have sinned against heaven and before
+  you. I am no longer worthy to be called your son. But the father said to his servants, Bring quickly the best
+  robe, and put it on him, and put a ring on his hand, and shoes on his feet. And bring the fattened calf and kill
+  it, and let us eat and celebrate. For this my son was dead, and is alive again; he was lost, and is found. And
+  they began to celebrate. (ESV)
 
 A person can't just appeal to God for mercy to only go back to sinning, and think they still have justification
 (Ezekiel 18:20-24, II Chronicles 7:14). A deed is some outward action coming from a heart attitude. Evil deeds
@@ -6094,7 +6106,7 @@ commands, who does not commit sin, who confesses the truth about Jesus being the
 loves their family in Christ as commanded, etc. So to claim to be the one "born of God" is claiming that about
 oneself. Rather a person should actually be a doer of the word and leave the justifying and commending to God.
 
-To make a the claim that one is born-again is to claim that one is at that time pleasing to God, commendable.
+To make the claim that one is born of God is to claim that one is at that time pleasing to God, commendable.
 
 Now I'm quite sure Abraham would not have been saying, "When I believed God, I was righteous in His sight."
 Rather, Abraham simply held His faith in God, and left the justifying to God.
@@ -138433,11 +138445,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-14 Mon 00:00
+Date: 2026-09-15 Tue 14:35
 
 Author: Shane Mulligan
 
-Created: 2026-09-14 Mon 22:49
+Created: 2026-09-15 Tue 15:59
 
 Validate
 
