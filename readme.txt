@@ -18,7 +18,10 @@ Jesus Christ, please forgive me if I have spoken anything incorrectly and have m
 In trusting Jesus and His words, we are led by Him. And it's very important that we are not led astray by a
 different voice, so we should be corrected and goaded and guided by Jesus. With soft hearts we should trust and
 obey Jesus' voice. He can see our hearts and knows who actually does follow Him. The knowing doesn't come first.
-Abiding comes first, knowing the truth and having freedom from committing sin comes next, while abiding:
+Abiding comes first, knowing the truth and having freedom from committing sin comes next, while abiding. We do
+need to continue on in Jesus' word (John 8:31-32) and while continuing on we need also to continue abiding in His
+word (II John 1:9-11) and not leave His word, and so we must love our family in Christ (I John 3:13-16). God puts
+us into Christ (I Corinthians 1:30) but we must remain in Him (John 15:1-6):
 
   I John 5:20 - And we know that the Son of God has come and has given us understanding, so that we may know him
   who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal life. (ESV)
@@ -729,6 +732,9 @@ instructions and commands from and relating to Jesus Christ, seeking to please F
   because it had been well built. But the one who hears and does not do them is like a man who built a house on
   the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that
   house was great. (ESV)
+
+  II Timothy 2:19 - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and,
+  Let everyone who names the name of the Lord depart from iniquity. (ESV)
 
   John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
   And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
@@ -1690,9 +1696,73 @@ the things of the flesh; We must walk by the spirit, and this will help us to "p
   opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you
   are not under the law. (ESV)
 
-We must "continue" in obedience to God, obeying Jesus Christ to be overcome by walking by the spirit practicing
-righteousness, rather than obeying sin. The mind of the repentant person must continue on in the love for the
-truth practicing righteousness. At the end of sanctification is eternal life and receiving the inheritance.
+We must "continue" in obedience to God, obeying Jesus Christ to be overcome by Christ as they are walking by the
+spirit practicing righteousness, rather than obeying sin:
+
+  II Peter 2:19 - They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes
+  a person, to that he is enslaved. (ESV)
+
+  Romans 6:16-18 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of
+  the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But
+  thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of
+  teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness.
+  (ESV)
+
+  Romans 6:19-20 - I am speaking in human terms, because of your natural limitations. For just as you once
+  presented your members as slaves to impurity and to lawlessness leading to more lawlessness, so now present your
+  members as slaves to righteousness leading to sanctification. When you were slaves of sin, you were free in
+  regard to righteousness. (ESV)
+
+  Romans 6:15-23 - What then? Are we to sin because we are not under law but under grace? By no means! Do you not
+  know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey,
+  either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that
+  you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you
+  were committed, and, having been set free from sin, have become slaves of righteousness. I am speaking in human
+  terms, because of your natural limitations. For just as you once presented your members as slaves to impurity
+  and to lawlessness leading to more lawlessness, so now present your members as slaves to righteousness leading
+  to sanctification. When you were slaves of sin, you were free in regard to righteousness. But what fruit were
+  you getting at that time from the things of which you are now ashamed? The end of those things is death. But now
+  that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification
+  and its end, eternal life. For the wages of sin is death, but the free gift of God is eternal life in Christ
+  Jesus our Lord. (ESV)
+
+  I John 5:1-5 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. By this we know that we love the children of God, when we love God
+  and obey his commandments. For this is the love of God, that we keep his commandments. And his commandments are
+  not burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has
+  overcome the world—our faith. Who is it that overcomes the world except the one who believes that Jesus is the
+  Son of God? (ESV)
+
+To be overcomers, we must overcome evil with good:
+
+  II Peter 2:19 - They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes
+  a person, to that he is enslaved. (ESV)
+
+  Revelation of John 2:25-29 - Nevertheless what you have, hold fast until I come. He who overcomes, and he who
+  keeps My deeds until the end, to him I will give authority over the nations; and he shall rule them with a rod
+  of iron, as the vessels of the potter are broken to pieces, as I also have received authority from My Father;
+  and I will give him the morning star. He who has an ear, let him hear what the Spirit says to the churches.’
+
+Jesus taught to overcome evil with good:
+
+  Matthew 5:38-41 - You have heard that it was said, An eye for an eye and a tooth for a tooth. But I say to you,
+  Do not resist the one who is evil. But if anyone slaps you on the right cheek, turn to him the other also. And
+  if anyone would sue you and take your tunic, let him have your cloak as well. And if anyone forces you to go one
+  mile, go with him two miles. (ESV)
+
+James understood Jesus' teaching regarding not resisting evil people and overcoming evil with good:
+
+  James 5:6 - You have condemned; you have murdered the righteous person. He does not resist you. (ESV)
+
+Paul following and teaching Christ's teachings regarding overcoming evil with good:
+
+  Romans 12:19-21 - Beloved, never avenge yourselves, but leave it to the wrath of God, for it is written,
+  Vengeance is mine, I will repay, says the Lord. To the contrary, if your enemy is hungry, feed him; if he is
+  thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be
+  overcome by evil, but overcome evil with good. (ESV)
+
+The mind of the repentant person must continue on in the love for the truth practicing righteousness. At the end
+of sanctification is eternal life and receiving the inheritance.
 
 But from what I've seen, shaking off this mindset of the former self can be challenging while one's company is
 still clinging to the ways of the flesh resisting the new creation, but I think the way forward most importantly
@@ -8905,9 +8975,31 @@ mind. This is the great and first commandment. And a second is like it: You shal
   and God abides in him. By this is love perfected with us, so that we may have confidence for the day of
   judgment, because as he is so also are we in this world. (ESV)
 
-To protest saying, "That sounds like legalism" is absurdity.
+To protest saying, "That sounds like legalism" is absurdity. Of course we need God's help in order to be
+sanctified and do this well.
 
-Of course we need God's help in order to be sanctified and do this well.
+If law-abiding to the law of faith in Christ Jesus ('If you love me') then you will be law-abiding to Christ
+Jesus' commandments ('you will keep my commandments') (John 14:15). Faith is commanded (I John 3:23) and so in
+passages such as Romans 4:13-17 it can only be assumed that some distinction has to be made between *commandments
+and law. The law of Moses comprised of numerous commandments brings wrath, but it was only a former commandment
+(Hebrews 9:19-20, Hebrews 7:18-22). The law of Christ is a new commandment and a change in "the law" (not an
+abolishment, but a change) (Hebrews 7:12, II Peter 3:1-3, I John 4:21, I John 5:3, II John 1:5-6, Revelation of
+John 12:17, Revelation of John 14:12). The law of Moses is a commandment (Romans 7:9) but not all commandments are
+of the law of Moses (which Jesus Christ fulfilled) but are, rather, grace (John 1:17). Jesus Christ fulfilled the
+law of Moses and He gave other commandments (Christ's law). Christ's law is grace. The Old Covenant law Paul calls
+the ministry of death (II Corinthians 3:6-9) while Christ's law (commandments) is life (I John 3:23, Romans
+4:13-17, Romans 7:9, John 12:44-50). With Jesus Christ as our Master we can through faith in Him fulfill the
+requirement of the law (Romans 6:16-18,7:25,8:1-4). We are saved into loving the way that Father God loves:
+
+  John 17:26 - I made known to them your name, and I will continue to make it known, that the love with which you
+  have loved me may be in them, and I in them. (ESV)
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
 The salvation of the believer necessitates them having a love for their family in Christ, and that happens through
 sanctification:
@@ -12066,6 +12158,48 @@ Jesus are collected and burned.
 
   I Corinthians 1:30 - But by His doing you are in Christ Jesus, who became to us wisdom from God, and
   righteousness and sanctification, and redemption, (NASB)
+
+This song also I think accurately reflects the truth of Scripture which shows that faith is necessary to "board
+the train" of salvation, so to speak. We do need to continue in faith. And the hopeless sinner here does speak of
+a person who does not have that faith. God justifies the ungodly who have faith in Jesus Christ. Thank God:
+
+youtube.com: Al Green singing People Get Ready {@ antoniobagera }
+
+ | People get ready
+ | There's a train a comin'
+ | You don't need no baggage
+ | You just get on board
+ | All you need is faith
+ | To hear the diesels hummin'
+ | You don't need no ticket
+ | You just thank the Lord
+
+ | So people get ready
+ | There'a a train to Jordan
+ | Picking up passengers
+ | Coast to coast
+ | Faith is the key
+ | Open the doors and board them
+ | There's hope for all
+ | Among those loved the most
+
+ | There ain't no room
+ | For the hopeless sinner
+ | Who would hurt all mankind
+ | Just to save his own
+ | Have pity on those whose
+ | Chances grow thinner
+ | There's no hiding place
+ | Against the Kingdom's throne
+
+ | So people get ready
+ | There's a train a comin'
+ | You don't need no baggage
+ | You just get on board
+ | All you need is faith
+ | To hear the diesels hummin'
+ | Don't need no ticket
+ | You just thank the Lord
 
 I believe we say thank you to God in advance with hope of salvation. But it's not without seeking commendation
 from God. If we pat ourselves on the back and commend ourselves for having done the will of God and think we "did
@@ -15646,8 +15780,8 @@ back to the love of the truth (i.e. repent). If we walk in the light, the love o
 Jesus cleanses us from all sin.
 
 No murderer has eternal life in them: I John 3:6-18. But whoever is holding faith in Jesus has eternal life and
-will do the works that He does, so then whoever is holding faith in Jesus is not a murderer. If someone hates
-their brother then they are a murderer and so don't have faith.
+will do the works that He does (John 14:12), so then whoever is holding faith in Jesus is not a murderer. If
+someone hates their brother then they are a murderer and so don't have faith.
 
 We must continue in faith, and we do that by continuing in faith in Jesus Christ, and returning to faith if having
 wandered from the faith. We know that God justifies those who have faith in Jesus Christ. And without
@@ -22972,6 +23106,72 @@ Even though I left Somalia, um my story did not stop there. I continued serving 
 Bible translation, literature development, literacy training. When Somali Christians follow Jesus, one of the
 first things they need is disciplehip.
 
+youtube.com: Vigil - Who is my Mother and My Brethren ? {@ orthodoxnet }
+
+I commented,
+
+Something I would add to this sermon is the simultaneous immediate and teleogolical status of the true believer as
+a son of God. We are disciplined by God into greater holiness as we hold our faith in the Lord Jesus Christ and
+remain in Him, abiding in His teaching including His commandments. If we hate our brother then we are not abiding
+in Him.
+
+Scripture teaches in John 8:31-47 that there were some Jews who had believed in Jesus but who Jesus subsequently
+called children of the devil. Those Jews had believed in Jesus but then went on to want to kill Jesus and to not
+receive His words. They had stopped having faith in Jesus. So we must continue in faith in Jesus and as we
+continue, continue to abide in His teachings including His commandments.
+
+I do agree with my Orthodox brothers and sisters that sanctification is a necessary part of salvation (II
+Thessalonians 2:10-13). Sanctification happens as we are continuing on in faith in Jesus Christ from a love for
+the truth obedient from the heart to the standard of teaching of Jesus Christ and His Apostles (Romans 6:16-18).
+God will finish the good work He has started in us. To abide in Jesus Christ is to have life and salvation, but we
+must go on abiding in Him. God puts us into Him (I Corinthians 1:30) but Christ instructs us to remain in Him.
+From love for the truth (Psalm 81:15) we need to be obeying the commandment to have faith in Jesus Christ and
+continue in faith in Him, abiding in Christ's law (all his commandments are grace) to continue abiding in Him.
+Abiding in Jesus through faith in Him is possible "here and now" (Romans 10:4-11) as our faith must be a present
+faith which we must also continue in to remain in Him. What does not proceed from faith is sin, after all, which
+is lawlessness and the slave to sin does not remain in God's house forever. Salvation is teleological; We are
+cleaned up, sanctified to look like the Lord Jesus Christ as we abide in Him. Those who do not bear fruit in
+Christ (and in Christ, fruit is always good because Jesus is a good tree) are cast out and wither, but if they
+return to faith then God may graft them back in (Romans 11). Father God is the vinedresser and takes care of the
+grafting and pruning. We should just do our duty which is to fear God and keep His commandments for us to have
+faith in Jesus Christ and to love one another the way we are commanded to.
+
+Now Jesus said that those who have faith in Him will do His deeds, and Jesus did not sin, and Jesus referred to
+God has His father. In fact He has commanded His disciples to call no man on earth 'father' for they have one
+father who is in heaven. If anyone is brother to Jesus Christ, then their Father is Father God, and their mother,
+brothers and sisters are those who do the will of God who hear the word of God and do it. Walking by the spirit,
+this is what a person would be doing. We are sanctified into doing this better and better, and also into
+controlling our own body in holiness, and loving one another as commanded.
+
+God have mercy. We all fall short of His glory. Let us continue in faith in Jesus, abstaining from evil as we seek
+to overcome evil with good and put to death the deeds of the sinful flesh.
+
+  I Thessalonians 4:3-8 - For this is the will of God, your sanctification: that you abstain from sexual
+  immorality; that each one of you know how to control his own body in holiness and honor, not in the passion of
+  lust like the Gentiles who do not know God; that no one transgress and wrong his brother in this matter, because
+  the Lord is an avenger in all these things, as we told you beforehand and solemnly warned you. For God has not
+  called us for impurity, but in holiness. Therefore whoever disregards this, disregards not man but God, who
+  gives his Holy Spirit to you. (ESV)
+
+  Romans 7:16-23 - Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I
+  who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I
+  have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but
+  the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but
+  sin that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I
+  delight in the law of God, in my inner being, but I see in my members another law waging war against the law of
+  my mind and making me captive to the law of sin that dwells in my members. (ESV)
+
+  Romans 6:16-18,7:25,8:1-4 - Do you not know that if you present yourselves to anyone as obedient slaves, you are
+  slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to
+  righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to
+  the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of
+  righteousness. Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my
+  mind, but with my flesh I serve the law of sin. There is therefore now no condemnation for those who are in
+  Christ Jesus. For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death.
+  For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of
+  sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law
+  might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
+
 We should never be frightened of perishing if we are unable to attend church on a Sunday. Congregation attendance
 does not equal church fellowship, and church fellowship flows from walking in the light, in the love of the truth.
 "Making sure you get to church" in order to "ensure you're getting fellowship" for fear of losing salvation is
@@ -24522,6 +24722,13 @@ Jesus Christ's Dad is God, not Joseph, but He kept the commandment to honor one'
 Son of God, honored God who is His father and His mother who is of those who "hear the word of God and do it".
 
   Luke 8:21 - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+  Hebrews 10:37-39 - For, Yet a little while, and the coming one will come and will not delay; _but my righteous
+  one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who
+  shrink back and are destroyed, but of those who have faith and preserve their souls. (ESV)
+
+  II Timothy 1:5 - I am reminded of your sincere faith, a faith that dwelt first in your grandmother Lois and your
+  mother Eunice and now, I am sure, dwells in you as well. (ESV)
 
 So as a born-again Christian, the commandment to honor one's father and mother is applied in imitation of the same
 way that Jesus Christ applied it:
@@ -65371,6 +65578,72 @@ Lawless acts come from unbelief:
   received mercy because I had acted ignorantly in unbelief, and the grace of our Lord overflowed for me with the
   faith and love that are in Christ Jesus. (ESV)
 
+youtube.com: Vigil - Who is my Mother and My Brethren ? {@ orthodoxnet }
+
+I commented,
+
+Something I would add to this sermon is the simultaneous immediate and teleogolical status of the true believer as
+a son of God. We are disciplined by God into greater holiness as we hold our faith in the Lord Jesus Christ and
+remain in Him, abiding in His teaching including His commandments. If we hate our brother then we are not abiding
+in Him.
+
+Scripture teaches in John 8:31-47 that there were some Jews who had believed in Jesus but who Jesus subsequently
+called children of the devil. Those Jews had believed in Jesus but then went on to want to kill Jesus and to not
+receive His words. They had stopped having faith in Jesus. So we must continue in faith in Jesus and as we
+continue, continue to abide in His teachings including His commandments.
+
+I do agree with my Orthodox brothers and sisters that sanctification is a necessary part of salvation (II
+Thessalonians 2:10-13). Sanctification happens as we are continuing on in faith in Jesus Christ from a love for
+the truth obedient from the heart to the standard of teaching of Jesus Christ and His Apostles (Romans 6:16-18).
+God will finish the good work He has started in us. To abide in Jesus Christ is to have life and salvation, but we
+must go on abiding in Him. God puts us into Him (I Corinthians 1:30) but Christ instructs us to remain in Him.
+From love for the truth (Psalm 81:15) we need to be obeying the commandment to have faith in Jesus Christ and
+continue in faith in Him, abiding in Christ's law (all his commandments are grace) to continue abiding in Him.
+Abiding in Jesus through faith in Him is possible "here and now" (Romans 10:4-11) as our faith must be a present
+faith which we must also continue in to remain in Him. What does not proceed from faith is sin, after all, which
+is lawlessness and the slave to sin does not remain in God's house forever. Salvation is teleological; We are
+cleaned up, sanctified to look like the Lord Jesus Christ as we abide in Him. Those who do not bear fruit in
+Christ (and in Christ, fruit is always good because Jesus is a good tree) are cast out and wither, but if they
+return to faith then God may graft them back in (Romans 11). Father God is the vinedresser and takes care of the
+grafting and pruning. We should just do our duty which is to fear God and keep His commandments for us to have
+faith in Jesus Christ and to love one another the way we are commanded to.
+
+Now Jesus said that those who have faith in Him will do His deeds, and Jesus did not sin, and Jesus referred to
+God as His father rather than any man on earth. In fact He has commanded His disciples to call no man on earth
+'father' for they have one father who is in heaven. If anyone is brother to Jesus Christ, then their Father is
+Father God, and their mother, brothers and sisters are those who do the will of God who hear the word of God and
+do it. Walking by the spirit, this is what a person would be doing. We are sanctified into doing this better and
+better, and also into controlling our own body in holiness, and loving one another as commanded.
+
+God have mercy. We all fall short of His glory. Let us continue in faith in Jesus, abstaining from evil as we seek
+to overcome evil with good and put to death the deeds of the sinful flesh.
+
+I Thessalonians 4:3-8 - For this is the will of God, your sanctification: that you abstain from sexual immorality;
+that each one of you know how to control his own body in holiness and honor, not in the passion of lust like the
+Gentiles who do not know God; that no one transgress and wrong his brother in this matter, because the Lord is an
+avenger in all these things, as we told you beforehand and solemnly warned you. For God has not called us for
+impurity, but in holiness. Therefore whoever disregards this, disregards not man but God, who gives his Holy
+Spirit to you. (ESV)
+
+Romans 7:16-23 - Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I
+who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I
+have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but the
+evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin
+that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I
+delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my
+mind and making me captive to the law of sin that dwells in my members. (ESV)
+
+Romans 6:16-18,7:25,8:1-4 - Do you not know that if you present yourselves to anyone as obedient slaves, you are
+slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to
+righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to
+the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of
+righteousness. Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my
+mind, but with my flesh I serve the law of sin. There is therefore now no condemnation for those who are in Christ
+Jesus. For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. For God
+has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh
+and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled
+in us, who walk not according to the flesh but according to the Spirit. (ESV)
+
 OK, so as a people that Jesus purchased for His own posession, we are brought to no longer be lawless, and the
 deeds we committed when we were lawless is what God will no longer remember. But we are corrected:
 
@@ -86393,8 +86666,8 @@ of hosts, (ESV)
   Matthew 4:4 - But he answered and said, It is written, Man shall not live by bread alone, but by every word that
   proceedeth out of the mouth of God. (KJV)
 
-  John 12:48 - The one who rejects me and does not receive my *words8 has a judge; the word that I have spoken
-  will judge him on the last day.
+  John 12:48 - The one who rejects me and does not receive my words has a judge; the word that I have spoken will
+  judge him on the last day.
 
   John 10:27 - My sheep hear my voice, and I know them, and they follow me. (ESV)
 
@@ -138445,11 +138718,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-15 Tue 14:35
+Date: 2026-09-17 Thu 12:27
 
 Author: Shane Mulligan
 
-Created: 2026-09-15 Tue 15:59
+Created: 2026-09-17 Thu 14:14
 
 Validate
 
