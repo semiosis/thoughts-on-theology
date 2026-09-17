@@ -418,8 +418,8 @@ and to leave the rest to Him which includes providing us with our material needs
 The faith which a person is justified by is counted distinctly from (G5565 chōris) any corresponding external
 actions and distinctly from any corresponding law. This is very clearly not implying that a person doesn't have
 corresponding works (e.g. Abel's offering was done in faith), and very clearly not implying that a person does not
-seek to keep some law as they exercise their faith (Romans 14:23). But it's the faith which is counted distinctly
-from any corresponding external action or law:
+seek to keep some law as they exercise their faith (Romans 14:23, Romans 9:30-32). But it's the faith which is
+counted distinctly from any corresponding external action or law:
 
   Romans 3:20-25 - For by works of the law no human being will be justified in his sight, since through the law
   comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
@@ -858,15 +858,19 @@ the fruit of the Spirit (Romans 15:13), and since there is no law against the fr
 youtube.com: Walking in The Spirit {@ BrotherMikeMcGary } @time: 4 min 39 sec
 
 The kingdom of God is me putting myself under his rule doing what he tells us to do. If he says do not steal and I
-steal, I'm taking myself out from under the present, out from under the rule of God and I'm doing what I want to
-do in my mind, will and emotions or whatever. So being in obedience, Paul called it walking in the spirit. Doing
-the thing in the walking in the spirit, doing the things of the spirit, being led by the spirit.
+steal, I'm taking myself out from under the rule of God and I'm doing what I want to do in my mind, will and
+emotions or whatever. So being in obedience, Paul called it "walking in the spirit". Walking in the spirit, doing
+the things of the spirit, being led by the spirit.
 
-And we're going to read that here in chapter 8. But [clears throat] here's the thing about it, right? So this
-first verse in particular, and I'm trying not to get hung up on this, um, but how many times have we heard it
-preached, there's now no therefore no condemnation of those who are in Christ Jesus. Yeah, 100%. That's correct.
-But yet you're living over here in disobedience and saying, "Oh, there's no condemnation." And then, well, yeah,
-there's condemnation because you're not where you're supposed to be.
+And we're going to read that here in chapter 8. But here's the thing about it, right? So this first verse in
+particular, (and I'm trying not to get hung up on this), but how many times have we heard it preached, "there's
+now no therefore no condemnation of those who are in Christ Jesus." Yeah, 100%. That's correct. But yet you're
+living over here in disobedience and saying, "Oh, there's no condemnation." And then, well, yeah, there's
+condemnation because you're not where you're supposed to be.
+
+You're supposed to be walking in the spirit of God. You're supposed to be doing what God has us to do. So, it is
+true, but you have to make it true. Again, just like he told Solomon, "If you do what I tell you to do, my
+presence and my blessing will be on you."
 
 God makes a believer born-again at some point as they are believing, and this is so that we can put to death the
 deeds of the flesh:
@@ -5305,15 +5309,11 @@ Now imagine if someone called God their father, but in a way that was displeasin
 wasn't right. So doing what Jesus says without hypocrisy is clearly also about a correct heart posture towards
 God:
 
-  Luke 9:23-27 - And he said to all, If anyone would come after me, let him deny himself and take up his cross
-  daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will
-  save it. For what does it profit a man if he gains the whole world and loses or forfeits himself? For whoever is
-  ashamed of me and of my words, of him will the Son of Man be ashamed when he comes in his glory and the glory of
-  the Father and of the holy angels. But I tell you truly, there are some standing here who will not taste death
-  until they see the kingdom of God. (ESV)
-
-  John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
-  came not of my own accord, but he sent me. (ESV)
+  John 8:39-42 - They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you
+  would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from
+  God. This is not what Abraham did. You are doing what your father did. They said to him, We were not born of
+  sexual immorality. We have one Father—even God. Jesus said to them, If God were your Father, you would love me,
+  for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
 
 So the faith we need to be found by God having is a loving faith in Jesus Christ. That doesn't mean that there are
 not any works associated with that faith (but God looks at the heart), and it doesn't mean that there are not any
@@ -7366,7 +7366,7 @@ soil (the good soil is the one who hears the word and understands it). And so th
 
 But the good soil is of the field which is the world and their nature is the flesh. God softens the heart to
 receive the word, and when they get born-again of the spirit their old self dies and they receive a new heart and
-spirit. Then their old self dies, the seed also dies, I believe, but the person is reborn. If that person then
+spirit. When their old self dies, the seed also dies, I believe, but the person is reborn. If that person then
 goes on believing in Jesus Christ they are "in Christ" and "born of God".
 
 The seed that is in the "person's heart", even before they are born-again, that seed is "in Christ" and born of
@@ -13543,6 +13543,17 @@ reality to have the friendship of Jesus and the friendship of God:
   have spoken to you, that my joy may be in you, and that your joy may be full. This is my commandment, that you
   love one another as I have loved you. Greater love has no one than this, that someone lays down his life for his
   friends. You are my friends if you do what I command you. (ESV)
+
+  John 10:17-18 - For this reason the Father loves me, because I lay down my life that I may take it up again. No
+  one takes it from me, but I lay it down of my own accord. I have authority to lay it down, and I have authority
+  to take it up again. This charge I have received from my Father. (ESV)
+
+  Luke 9:23-27 - And he said to all, If anyone would come after me, let him deny himself and take up his cross
+  daily and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake will
+  save it. For what does it profit a man if he gains the whole world and loses or forfeits himself? For whoever is
+  ashamed of me and of my words, of him will the Son of Man be ashamed when he comes in his glory and the glory of
+  the Father and of the holy angels. But I tell you truly, there are some standing here who will not taste death
+  until they see the kingdom of God. (ESV)
 
 Jesus didn't ask to be paid back directly. Jesus wants us to pass forwards grace and mercy to our neighbour:
 
@@ -138820,11 +138831,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-17 Thu 15:25
+Date: 2026-09-17 Thu 23:12
 
 Author: Shane Mulligan
 
-Created: 2026-09-17 Thu 19:33
+Created: 2026-09-17 Thu 23:18
 
 Validate
 
