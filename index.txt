@@ -1761,6 +1761,28 @@ Paul following and teaching Christ's teachings regarding overcoming evil with go
   thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be
   overcome by evil, but overcome evil with good. (ESV)
 
+By faith in obedience to Jesus Christ we are to overcome evil with good loving as Father God loves:
+
+  Hebrews 12:4-8 - In your struggle against sin you have not yet resisted to the point of shedding your blood. And
+  have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of
+  the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son
+  whom he receives. It is for discipline that you have to endure. God is treating you as sons. For what son is
+  there whom his father does not discipline? If you are left without discipline, in which all have participated,
+  then you are illegitimate children and not sons. (ESV)
+
+  Revelation of John 21:7 - The one who conquers will have this heritage, and I will be his God and he will be my
+  son. (ESV)
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+  John 17:26 - I made known to them your name, and I will continue to make it known, that the love with which you
+  have loved me may be in them, and I in them. (ESV)
+
 The mind of the repentant person must continue on in the love for the truth practicing righteousness. At the end
 of sanctification is eternal life and receiving the inheritance.
 
@@ -2094,6 +2116,24 @@ Polycarp 2:2
 Now He that raised Him from the dead will raise us also; if we do His will and walk in His commandments and love
 the things which He loved, abstaining from all unrighteousness, covetousness, love of money, evil speaking, false
 witness; not rendering evil for evil or railing for railing or blow for blow or cursing for cursing;
+
+  Philippians 3:8-11 - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus
+  my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
+  Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes
+  through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of
+  his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may
+  attain the resurrection from the dead. (ESV)
+
+  Philippians 3:12 - Not that I have already obtained this or am already perfect, but I press on (G1377 diōkō; I
+  am pursuing) to make it my own, because Christ Jesus has made me his own. (ESV)
+
+HELPS Word-studies
+G1377 diṓkō – properly, aggressively chase, like a hunter pursuing a catch (prize). G1377 (diṓkō) is used
+positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, G1377 (diṓkō)
+means pursue with all haste ("chasing" after), earnestly desiring to overtake (apprehend)
+
+  Philippians 3:13 - Brothers, I do not consider that I have made it my own (G2638 kateilēphenai; to have taken
+  hold [of it]). But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
 
 Going forward we need to continue in love and holiness:
 
@@ -23137,11 +23177,11 @@ grafting and pruning. We should just do our duty which is to fear God and keep H
 faith in Jesus Christ and to love one another the way we are commanded to.
 
 Now Jesus said that those who have faith in Him will do His deeds, and Jesus did not sin, and Jesus referred to
-God has His father. In fact He has commanded His disciples to call no man on earth 'father' for they have one
-father who is in heaven. If anyone is brother to Jesus Christ, then their Father is Father God, and their mother,
-brothers and sisters are those who do the will of God who hear the word of God and do it. Walking by the spirit,
-this is what a person would be doing. We are sanctified into doing this better and better, and also into
-controlling our own body in holiness, and loving one another as commanded.
+God as His father rather than any man on earth. In fact He has commanded His disciples to call no man on earth
+'father' for they have one father who is in heaven. If anyone is brother to Jesus Christ, then their Father is
+Father God, and their mother, brothers and sisters are those who do the will of God who hear the word of God and
+do it. Walking by the spirit, this is what a person would be doing. We are sanctified into doing this better and
+better, and also into controlling our own body in holiness, and loving one another as commanded.
 
 God have mercy. We all fall short of His glory. Let us continue in faith in Jesus, abstaining from evil as we seek
 to overcome evil with good and put to death the deeds of the sinful flesh.
@@ -59658,6 +59698,24 @@ Polycarp 2:2
 Now He that raised Him from the dead will raise us also; if we do His will and walk in His commandments and love
 the things which He loved, abstaining from all unrighteousness, covetousness, love of money, evil speaking, false
 witness; not rendering evil for evil or railing for railing or blow for blow or cursing for cursing;
+
+  Philippians 3:8-11 - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus
+  my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
+  Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes
+  through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of
+  his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may
+  attain the resurrection from the dead. (ESV)
+
+  Philippians 3:12 - Not that I have already obtained this or am already perfect, but I press on (G1377 diōkō; I
+  am pursuing) to make it my own, because Christ Jesus has made me his own. (ESV)
+
+HELPS Word-studies
+G1377 diṓkō – properly, aggressively chase, like a hunter pursuing a catch (prize). G1377 (diṓkō) is used
+positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, G1377 (diṓkō)
+means pursue with all haste ("chasing" after), earnestly desiring to overtake (apprehend)
+
+  Philippians 3:13 - Brothers, I do not consider that I have made it my own (G2638 kateilēphenai; to have taken
+  hold [of it]). But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
 
 The demons have belief and believe certain facts about God, but they don't have a response of love towards God.
 They don't have a trusting, yielding, loving, serving response which seeks to come under the Lordship of Jesus and
@@ -124081,6 +124139,24 @@ Now He that raised Him from the dead will raise us also; if we do His will and w
 the things which He loved, abstaining from all unrighteousness, covetousness, love of money, evil speaking, false
 witness; not rendering evil for evil or railing for railing or blow for blow or cursing for cursing;
 
+  Philippians 3:8-11 - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus
+  my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
+  Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes
+  through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of
+  his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may
+  attain the resurrection from the dead. (ESV)
+
+  Philippians 3:12 - Not that I have already obtained this or am already perfect, but I press on (G1377 diōkō; I
+  am pursuing) to make it my own, because Christ Jesus has made me his own. (ESV)
+
+HELPS Word-studies
+G1377 diṓkō – properly, aggressively chase, like a hunter pursuing a catch (prize). G1377 (diṓkō) is used
+positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, G1377 (diṓkō)
+means pursue with all haste ("chasing" after), earnestly desiring to overtake (apprehend)
+
+  Philippians 3:13 - Brothers, I do not consider that I have made it my own (G2638 kateilēphenai; to have taken
+  hold [of it]). But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
+
 But in all fairness, at this time I still didn't have a relationship with God where I considered Christ's law and
 bearing my neighbour's burdens, doing no harm and counting others more significant than myself as a defining part
 of agape love. And for the sake of trying to solve my own problems, I was not at all times counting them as more
@@ -138718,11 +138794,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-17 Thu 12:27
+Date: 2026-09-17 Thu 15:25
 
 Author: Shane Mulligan
 
-Created: 2026-09-17 Thu 14:14
+Created: 2026-09-17 Thu 15:31
 
 Validate
 

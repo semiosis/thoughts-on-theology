@@ -810,6 +810,16 @@ Paul following and teaching Christ's teachings regarding overcoming evil with go
 
 > **[Romans 12:19-21](https://www.biblegateway.com/passage/?search=Romans%2012%3A19-21&version=ESV)** - Beloved, never avenge yourselves, but leave it to the wrath of God, for it is written, Vengeance is mine, I will repay, says the Lord. To the contrary, if your enemy is hungry, feed him; if he is thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be overcome by evil, but overcome evil with good. (ESV)
 
+By faith in obedience to Jesus Christ we are to overcome evil with good loving as Father God loves:
+
+> **[Hebrews 12:4-8](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A4-8&version=ESV)** - In your struggle against sin you have not yet resisted to the point of shedding your blood. And have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son whom he receives. It is for discipline that you have to endure. God is treating you as sons. For what son is there whom his father does not discipline? If you are left without discipline, in which all have participated, then you are illegitimate children and not sons. (ESV)
+
+> **[Revelation of John 21:7](https://www.biblegateway.com/passage/?search=Revelation%2021%3A7&version=ESV)** - The one who conquers will have this heritage, and I will be his God and he will be my son. (ESV)
+
+> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+> **[John 17:26](https://www.biblegateway.com/passage/?search=John%2017%3A26&version=ESV)** - I made known to them your name, and I will continue to make it known, that **the love with which you have loved me may be in them**, and I in them. (ESV)
+
 The mind of the repentant person must continue on in the love for the truth practicing righteousness. At the end of sanctification is eternal life and receiving the inheritance.
 
 But from what I've seen, shaking off this mindset of the former self can be challenging while one's company is still clinging to the ways of the flesh resisting the new creation, but I think the way forward most importantly is to continue practicing the truth for oneself regardless of physical circumstances, as responding to such resistance with faith and obedience to Jesus is, I believe, sanctifying.
@@ -943,6 +953,14 @@ When a person is "born-again", they are baptized into Jesus Christ's death, and 
     loved, abstaining from all unrighteousness, covetousness, love of
     money, evil speaking, false witness; not rendering evil for evil or
     railing for railing or blow for blow or cursing for cursing;
+
+> **[Philippians 3:8-11](https://www.biblegateway.com/passage/?search=Philippians%203%3A8-11&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. (ESV)
+
+> **[Philippians 3:12](https://www.biblegateway.com/passage/?search=Philippians%203%3A12&version=ESV)** - Not that I have already obtained this or am already perfect, but I press on [(G1377 diōkō; I am pursuing)](G1377) to make it my own, **because Christ Jesus has made me his own.** (ESV)
+
+-   **HELPS Word-studies:** G1377 diṓkō – properly, aggressively chase, like a hunter pursuing a catch (prize). G1377 (diṓkō) is used positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, G1377 (diṓkō) means pursue with all haste ("chasing" after), earnestly desiring to overtake (apprehend)
+
+> **[Philippians 3:13](https://www.biblegateway.com/passage/?search=Philippians%203%3A13&version=ESV)** - Brothers, I do not consider that I have made it my own [(G2638 kateilēphenai; to have taken hold [of it])](G2638). But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
 
 Going forward we need to continue in love and holiness:
 
@@ -11867,7 +11885,7 @@ For salvation we should be unifying in heart and soul with other believers, with
     To abide in Jesus Christ is to have life and salvation, but we must go on abiding in Him. God puts us into Him ([I Corinthians 1:30](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A30&version=ESV)) but Christ instructs us to remain in Him. From love for the truth (Psalm 81:15) we need to be obeying the commandment to have faith in Jesus Christ and continue in faith in Him, abiding in Christ's law (all his commandments are grace) to continue abiding in Him.
     Abiding in Jesus through faith in Him is possible "here and now" ([Romans 10:4-11](https://www.biblegateway.com/passage/?search=Romans%2010%3A4-11&version=ESV)) as our faith must be a present faith which we must also continue in to remain in Him. What does not proceed from faith is sin, after all, which is lawlessness and the slave to sin does not remain in God's house forever. Salvation is teleological; We are cleaned up, sanctified to look like the Lord Jesus Christ as we abide in Him. Those who do not bear fruit in Christ (and in Christ, fruit is always good because Jesus is a good tree) are cast out and wither, but if they return to faith then God may graft them back in (Romans 11). Father God is the vinedresser and takes care of the grafting and pruning. We should just do our duty which is to fear God and keep His commandments for us to have faith in Jesus Christ and to love one another the way we are commanded to.
     
-    Now Jesus said that those who have faith in Him will do His deeds, and Jesus did not sin, and Jesus referred to God has His father. In fact He has commanded His disciples to call no man on earth 'father' for they have one father who is in heaven. If anyone is brother to Jesus Christ, then their Father is Father God, and their mother, brothers and sisters are those who do the will of God who hear the word of God and do it. Walking by the spirit, this is what a person would be doing. We are sanctified into doing this better and better, and also into controlling our own body in holiness, and loving one another as commanded. 
+    Now Jesus said that those who have faith in Him will do His deeds, and Jesus did not sin, and Jesus referred to God as His father rather than any man on earth. In fact He has commanded His disciples to call no man on earth 'father' for they have one father who is in heaven. If anyone is brother to Jesus Christ, then their Father is Father God, and their mother, brothers and sisters are those who do the will of God who hear the word of God and do it. Walking by the spirit, this is what a person would be doing. We are sanctified into doing this better and better, and also into controlling our own body in holiness, and loving one another as commanded. 
     
     God have mercy. We all fall short of His glory. Let us continue in faith in Jesus, abstaining from evil as we seek to overcome evil with good and put to death the deeds of the sinful flesh.
     
@@ -18060,7 +18078,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf3d0756) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org44152ce) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -23825,7 +23843,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org661a06a).
+I didn't know but it turned out to be the last day of my [sentence](#org08cf44a).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -34702,6 +34720,14 @@ That rest looks like living for the will of God (i.e. faith in Jesus, faith in G
     loved, abstaining from all unrighteousness, covetousness, love of
     money, evil speaking, false witness; not rendering evil for evil or
     railing for railing or blow for blow or cursing for cursing;
+
+> **[Philippians 3:8-11](https://www.biblegateway.com/passage/?search=Philippians%203%3A8-11&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. (ESV)
+
+> **[Philippians 3:12](https://www.biblegateway.com/passage/?search=Philippians%203%3A12&version=ESV)** - Not that I have already obtained this or am already perfect, but I press on [(G1377 diōkō; I am pursuing)](G1377) to make it my own, **because Christ Jesus has made me his own.** (ESV)
+
+-   **HELPS Word-studies:** G1377 diṓkō – properly, aggressively chase, like a hunter pursuing a catch (prize). G1377 (diṓkō) is used positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, G1377 (diṓkō) means pursue with all haste ("chasing" after), earnestly desiring to overtake (apprehend)
+
+> **[Philippians 3:13](https://www.biblegateway.com/passage/?search=Philippians%203%3A13&version=ESV)** - Brothers, I do not consider that I have made it my own [(G2638 kateilēphenai; to have taken hold [of it])](G2638). But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
 
 The demons have belief and believe certain facts about God, but they don't have a response of love towards God. They don't have a trusting, yielding, loving, serving response which seeks to come under the Lordship of Jesus and keep Jesus' commandments, turning away from what God hates:
 
@@ -48322,7 +48348,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org7024e65)
+See: [33.4.1](#org1935937)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -69832,7 +69858,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org7024e65)
+See: [33.4.1](#org1935937)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -72486,7 +72512,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org9452ef8) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org72b4661) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -77906,6 +77932,14 @@ This is just one of those apparent paradoxes. However, there is some profoundly 
     money, evil speaking, false witness; not rendering evil for evil or
     railing for railing or blow for blow or cursing for cursing;
 
+> **[Philippians 3:8-11](https://www.biblegateway.com/passage/?search=Philippians%203%3A8-11&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. (ESV)
+
+> **[Philippians 3:12](https://www.biblegateway.com/passage/?search=Philippians%203%3A12&version=ESV)** - Not that I have already obtained this or am already perfect, but I press on [(G1377 diōkō; I am pursuing)](G1377) to make it my own, **because Christ Jesus has made me his own.** (ESV)
+
+-   **HELPS Word-studies:** G1377 diṓkō – properly, aggressively chase, like a hunter pursuing a catch (prize). G1377 (diṓkō) is used positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, G1377 (diṓkō) means pursue with all haste ("chasing" after), earnestly desiring to overtake (apprehend)
+
+> **[Philippians 3:13](https://www.biblegateway.com/passage/?search=Philippians%203%3A13&version=ESV)** - Brothers, I do not consider that I have made it my own [(G2638 kateilēphenai; to have taken hold [of it])](G2638). But one thing I do: forgetting what lies behind and straining forward to what lies ahead, (ESV)
+
 But in all fairness, at this time **I still didn't have a relationship with God** where I considered Christ's law and bearing my neighbour's burdens, doing no harm and counting others more significant than myself as a defining part of agape love.
 And for the sake of trying to solve my own problems, I was not **at all times** counting them as more significant them myself, but I think it's very unfair to say that I did not ever.
 
@@ -80708,7 +80742,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org9452ef8) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org72b4661) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82046,7 +82080,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6c64a3f)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgae0c655)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
