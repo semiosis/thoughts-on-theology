@@ -21786,6 +21786,11 @@ chastisement for those in Christ but God's wrath is coming for the unrepentant:
   I Peter 2:24 - He himself bore our sins in his body on the tree, that we might die to sin and live to
   righteousness. By his wounds you have been healed. (ESV)
 
+  Revelation of John 9:20-21 - The rest of mankind, who were not killed by these plagues, did not repent of the
+  works of their hands nor give up worshiping demons and idols of gold and silver and bronze and stone and wood,
+  which cannot see or hear or walk, nor did they repent of their murders or their sorceries or their sexual
+  immorality or their thefts. (ESV)
+
 So if a person is in Christ then they are abiding in Jesus' commandments and they have Jesus' righteousness and
 Jesus Christ has taken away the sting of death.
 
@@ -31756,6 +31761,64 @@ of speech or writing:
 
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  Revelation of John 9:20-21 - The rest of mankind, who were not killed by these plagues, did not repent of the
+  works of their hands nor give up worshiping demons and idols of gold and silver and bronze and stone and wood,
+  which cannot see or hear or walk, nor did they repent of their murders or their sorceries or their sexual
+  immorality or their thefts. (ESV)
+
+Mathetes to Diognetus
+
+CHAPTER VI – THE RELATION OF CHRISTIANS TO THE WORLD.
+
+To sum up all in one word–what the soul is in the body, that are Christians in the world. The soul is dispersed
+through all the members of the body, and Christians are scattered through all the cities of the world. The soul
+dwells in the body, yet is not of the body; and Christians dwell in the world, yet are not of the world. The
+invisible soul is guarded by the visible body, and Christians are known indeed to be in the world, but their
+godliness remains invisible. The flesh hates the soul, and wars against it, though itself suffering no injury,
+because it is prevented from enjoying pleasures; the world also hates the Christians, though in nowise injured,
+because they abjure pleasures. The soul loves the flesh that hates it, and [loves also] the members; Christians
+likewise love those that hate them. The soul is imprisoned in the body, yet preserves that very body; and
+Christians are confined in the world as in a prison, and yet they are the preservers of the world. The immortal
+soul dwells in a mortal tabernacle; and Christians dwell as sojourners in corruptible [bodies], looking for an
+incorruptible dwelling in the heavens. The soul, when but ill-provided with food and drink, becomes better; in
+like manner, the Christians, though subjected day by day to punishment, increase the more in number. God has
+assigned them this illustrious position, which it were unlawful for them to forsake.
+
+youtube.com: SEWER MEN: the toughest job in the world 🇵🇰 {@ ProgettoHappiness } @time: 13 min 57 sec
+Why do you still have to do this job? Aren’t there machines that can do it for you? There are machines that can do
+it, but the streets are too narrow, and there’s not enough space. Is your job illegal in Pakistan? In Pakistan,
+only Christians do this job because only for us is it legal to do it. That’s why no other community besides the
+Christian one can do this job.
+
+youtube.com: What the AI Race Reveals About America {@ PatristicNectarFilms }
+
+And this is a message from the church right now that I would like to present um to those who are in leadership in
+our land both politically and uh in uh technology and commerce the so-called tech titans. America needs its soul
+back.
+
+…
+
+Being smart does not mean that you should have power given to you by a reasonable country.
+
+…
+
+This is the free market completely unhinged from morality and that is a demonic market. Now where is our political
+leadership? Well, sadly appear it appears that our political leadership it appears that even President Trump is in
+even worse condition than the tech titans. President Trump says there can be no halt. There can be no evaluation
+because if we halt at all, China will win. So, we're going to take a 10 to 20% chance of the destruction of the
+human race because we don't want China to win. I'm sorry. That's a quest for power that is deeply immoral and a
+self-concept, a concept of America's place in the world that is also deeply immoral. Let us lead as human beings.
+Let us lead as people who have moral sense.
+
+Let's pray that God would give our leaders some sense to care about what's most important. I hope that we will
+exalt the cross and not technology. Godless, unrestrained, immoral technology driven by titans who have no respect
+for God and for morality at all.
+
+…
+
+Repent and believe and allow the love of God to govern our nation. Let's exalt the cross. Let's put love at the
+top, not power, not greed. May God save us. Amen.
 
 Sin does not proceed from faith in the truth. So we should be trusting in the truth, trusting in God, trusting
 God's commandments, obey God rather than anything else. So we need to be trusting and obeying Jesus:
@@ -138831,11 +138894,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-17 Thu 23:12
+Date: 2026-09-18 Fri 00:19
 
 Author: Shane Mulligan
 
-Created: 2026-09-17 Thu 23:18
+Created: 2026-09-18 Fri 00:26
 
 Validate
 

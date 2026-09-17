@@ -11176,9 +11176,15 @@ Being justified by Jesus' blood, we will be saved (delivered from) the wrath tha
 
 > **[Romans 11:21-23](https://www.biblegateway.com/passage/?search=Romans%2011%3A21-23&version=ESV)** - For if God did not spare the natural branches, neither will he spare you. Note then the kindness and the severity of God: severity toward those who have fallen, but God's kindness to you, provided you continue in his kindness. Otherwise you too will be cut off. And even they, if they do not continue in their unbelief, will be grafted in, for God has the power to graft them in again. (ESV)
 
-Jesus was "carrying" / "bearing" our sin, and God hates sin but loves Jesus. Father God allowed Jesus to receive chastisement for those in Christ but God's wrath is coming for the unrepentant:
+Jesus was "carrying" / "bearing" our sin, and God hates sin but loves Jesus.
+Father God allowed Jesus to receive chastisement for those in Christ but God's wrath is coming for the unrepentant:
 
 > **[I Peter 2:24](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A24&version=ESV)** - He himself bore our sins in his body on the tree, that we might die to sin and live to righteousness. By his wounds you have been healed. (ESV)
+
+> **[Revelation of John 9:20-21](https://www.biblegateway.com/passage/?search=Revelation%209%3A20-21&version=ESV)** - The rest of mankind, who were not killed by these plagues, did not repent of the
+>   works of their hands nor give up worshiping demons and idols of gold and silver and bronze and stone and wood,
+>   which cannot see or hear or walk, nor did they repent of their murders or their sorceries or their sexual
+>   immorality or their thefts. (ESV)
 
 So if a person is in Christ then they are abiding in Jesus' commandments and they have Jesus' righteousness and Jesus Christ has taken away the sting of death.
 
@@ -16634,6 +16640,81 @@ Real speech comes from the heart, so AI can still be called a speechless idol, e
 
 > **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
+> **[Revelation of John 9:20-21](https://www.biblegateway.com/passage/?search=Revelation%209%3A20-21&version=ESV)** - The rest of mankind, who were not killed by these plagues, did not repent of the
+>   works of their hands nor give up worshiping demons and idols of gold and silver and bronze and stone and wood,
+>   which cannot see or hear or walk, nor did they repent of their murders or their sorceries or their sexual
+>   immorality or their thefts. (ESV)
+
+-   **[Mathetes to Diognetus](https://www.earlychristianwritings.com/text/diognetus-roberts.html):** **CHAPTER VI &#x2013; THE RELATION OF CHRISTIANS TO THE WORLD.**
+    
+    To sum up all in one word&#x2013;what the soul is in the body, that are Christians in the world. The soul is dispersed through all the members of the body, and
+    Christians are scattered through all the cities of the world. The soul dwells in the body, yet is not of the body; and Christians dwell in the world, yet are not
+    of the world. The invisible soul is guarded by the visible body, and Christians are known indeed to be in the world, but their godliness remains invisible. The
+    flesh hates the soul, and wars against it, though itself suffering no injury, because it is prevented from enjoying pleasures; the world also hates the
+    Christians, though in nowise injured, because they abjure pleasures. The soul loves the flesh that hates it, and [loves also] the members; Christians likewise
+    love those that hate them. The soul is imprisoned in the body, yet preserves that very body; and Christians are confined in the world as in a prison, and yet
+    they are the preservers of the world. The immortal soul dwells in a mortal tabernacle; and Christians dwell as sojourners in corruptible [bodies], looking for an
+    incorruptible dwelling in the heavens. The soul, when but ill-provided with food and drink, becomes better; in like manner, the Christians, though subjected day
+    by day to punishment, increase the more in number. God has assigned them this illustrious position, which it were unlawful for them to forsake.
+
+-   **[youtube.com:  SEWER MEN: the toughest job in the world 🇵🇰 {@ ProgettoHappiness } @time: 13 min 57 sec](https://youtube.com/watch?v=Nr708wRYisw&t=837):** Why do you still have to do this job? Aren’t there machines that can do it for you?
+    There are machines that can do it, but the streets are too narrow, and there’s not enough space.
+    Is your job illegal in Pakistan?
+    In Pakistan, only Christians do this job because only for us is it legal to do it.
+    That’s why no other community besides the Christian one can do this job.
+
+-   **[youtube.com:  What the AI Race Reveals About America {@ PatristicNectarFilms }](https://www.youtube.com/watch?v=LCJfxs13SAQ):** And this is a message from the
+    church right now that I would like to
+    present um to those who are in
+    leadership in our land both politically
+    and uh in uh technology and commerce the
+    so-called tech titans. America needs its
+    soul back.
+    
+    &#x2026;
+    
+    Being smart does not mean that you
+    should have power given to you by a
+    reasonable country.
+    
+    &#x2026;
+    
+    This is the free market
+    completely unhinged from morality and that is a demonic
+    market. Now where is our political
+    leadership? Well, sadly appear it
+    appears that our political leadership it
+    appears that even President Trump is in
+    even worse condition than the tech
+    titans. President Trump says there can
+    be no halt. There can be no evaluation
+    because if we halt at all, China will
+    win. So, we're going to take a 10 to 20%
+    chance of the destruction of the human
+    race because we don't want China to win.
+    I'm sorry. That's a quest for power that
+    is deeply immoral and a self-concept, a
+    concept of America's place in the world
+    that is also deeply immoral. Let us lead
+    as human beings. Let us lead as people
+    who have moral sense.
+    
+    Let's pray that God would give our
+    leaders some sense to care about what's
+    most important. I hope that we will
+    exalt the cross and not technology. Godless,
+    unrestrained, immoral technology driven
+    by titans who have no respect for God
+    and for morality at all.
+    
+    &#x2026;
+    
+    Repent and believe and
+    allow the love of God to govern our
+    nation. Let's exalt the cross. Let's put
+    love at the top, not power, not greed.
+    May God save us. Amen.
+
 Sin does not proceed from faith in the truth. So we should be trusting in the truth, trusting in God, trusting God's commandments, obey God rather than anything else. So we need to be trusting and obeying Jesus:
 
 > **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
@@ -18083,7 +18164,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org64e4fff) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9cfbe2a) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -23848,7 +23929,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org909cc56).
+I didn't know but it turned out to be the last day of my [sentence](#orgf34824b).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -48353,7 +48434,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org5600587)
+See: [33.4.1](#org075ee58)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -69863,7 +69944,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org5600587)
+See: [33.4.1](#org075ee58)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -72517,7 +72598,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org1cdc3d5) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org7d0e398) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -80747,7 +80828,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org1cdc3d5) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org7d0e398) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82085,7 +82166,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org8b50eff)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgb7e19fa)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
