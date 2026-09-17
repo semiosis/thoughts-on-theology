@@ -1761,7 +1761,7 @@ Paul following and teaching Christ's teachings regarding overcoming evil with go
   thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be
   overcome by evil, but overcome evil with good. (ESV)
 
-By faith in obedience to Jesus Christ we are to overcome evil with good loving as Father God loves:
+By faith, in obedience to Jesus Christ we are to overcome evil with good loving as Father God loves:
 
   Hebrews 12:4-8 - In your struggle against sin you have not yet resisted to the point of shedding your blood. And
   have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of
@@ -131810,6 +131810,32 @@ see Jesus.
   I John 3:6 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known
   him. (ESV)
 
+reddit.com: so[far][ai][has][done][an][absurd][amount][of][good][in]
+
+I commented,
+
+Robin-hood style deeds (stealing to give) are not good. Nothing good can be founded on lies and theft. The ends do
+not justify the means.
+
+Also, I think that the development of 'agentic' AI devalues real human beings, and devaluing humans is not exactly
+"loving one's neighbour as oneself". Agape love is treasuring/valuing. Agentic AI only works because of human
+exploitation and theft and the effective devaluation of real human beings within society.
+
+This is not legal "opportunism":
+
+A thief waiting for someone to leave their house so that they can break in and steal from it
+
+Neither is this legal "opportunism":
+
+Training AI on everything that can be seen online.
+
+Convincing people that the technology is "transformative", and pushing it out into the public to get everyone
+"hooked", combined with some AI fearmongering, then passing laws in government to "legalise" what they've already
+done unlawfully.
+
+Sure, it's transformative in that it's turning lots of people into thieves. Just because the government says it's
+lawful doesn't mean God thinks it's lawful. Stealing should never be lawful.
+
 God loves us and He gave us free will to receive His salvation from sin through Jesus Christ our Lord who's
 commandments we abide in. And God loves us so He lets people choose to go to hell if they want to. In rejecting
 Christ, God hands them over to an eternity without Christ. So people get their heart's desire.
@@ -138798,7 +138824,7 @@ Date: 2026-09-17 Thu 15:25
 
 Author: Shane Mulligan
 
-Created: 2026-09-17 Thu 15:31
+Created: 2026-09-17 Thu 19:33
 
 Validate
 
