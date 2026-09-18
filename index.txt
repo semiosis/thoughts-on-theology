@@ -650,6 +650,17 @@ commandments (have faith in Jesus Christ and love one another the way we've been
   I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. (ESV)
 
+G25 agapáō
+[Agapé love] focuses on value-driven (a decision-based) love – which of course does not exclude affection! (quote)
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  I Corinthians 16:14 - Let all that you do be done in love. (ESV)
+
+  Isaiah 43:4 - Since thou wast precious in my sight, thou hast been honourable, and I have loved thee: therefore
+  will I give men for thee, and people for thy life. (KJV)
+
 Obedience leads to righteousness (Romans 6:16-18) because obedience to Father God's commandment to have faith in
 Jesus (I John 3:23-24) is possible by God's grace (Mark 10:23-27) and leads to the righteousness of faith (Romans
 4:13-17). But part of what makes justification by faith distinct from justification by law is that it is not
@@ -12619,6 +12630,14 @@ freedom to choose Him or to not choose Him because anything less wouldn't be lov
 G25 agapáō
 [Agapé love] focuses on value-driven (a decision-based) love – which of course does not exclude affection! (quote)
 
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  I Corinthians 16:14 - Let all that you do be done in love. (ESV)
+
+  Isaiah 43:4 - Since thou wast precious in my sight, thou hast been honourable, and I have loved thee: therefore
+  will I give men for thee, and people for thy life. (KJV)
+
 God has done a thing for us freely, that is giving Jesus Christ and that is how God demonstates His agape
 (treasuring, valuing) love for us (Romans 5:7-8). The sacrifice was made before the offer was received by us. God
 does not want people to perish (Ezekiel 18:20-24, II Peter 3:9-13). Therefore it was a completely unconditional
@@ -16862,6 +16881,17 @@ commandments (have faith in Jesus Christ and love one another the way we've been
   I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. (ESV)
 
+G25 agapáō
+[Agapé love] focuses on value-driven (a decision-based) love – which of course does not exclude affection! (quote)
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  I Corinthians 16:14 - Let all that you do be done in love. (ESV)
+
+  Isaiah 43:4 - Since thou wast precious in my sight, thou hast been honourable, and I have loved thee: therefore
+  will I give men for thee, and people for thy life. (KJV)
+
 God loved us first in sending Jesus Christ to die for our sins and raised to life for our justification so that we
 might live through faith in Jesus Christ (trusting and abiding in Jesus' teachings out of a love for the truth,
 out of a love for the light, out of a love for Jesus Christ and His word).
@@ -17487,6 +17517,12 @@ joy may be full. This is my commandment, that you love one another as I have lov
 love has no one than this, that someone lays down his life for his friends. You are my friends
 if you do what I command you. (ESV)
 • Agape love is definitely valuing, treasuring, preserving
+• Luke 6:45 - The good person out of the good treasure of his heart produces good, and
+the evil person out of his evil treasure produces evil, for out of the abundance of
+the heart his mouth speaks. (ESV)
+• I Corinthians 16:14 - Let all that you do be done in love. (ESV)
+• Isaiah 43:4 - Since thou wast precious in my sight, thou hast been honourable, and I
+have loved thee: therefore will I give men for thee, and people for thy life. (KJV)
 
 When contrasting being "under law" to being "under grace", Paul is takling about people who "rely" on the "works"
 (the exterior stuff) of the law, the Mosaic Law (which came in after Abraham), who are under law. But the law of
@@ -20648,6 +20684,12 @@ joy may be full. This is my commandment, that you love one another as I have lov
 love has no one than this, that someone lays down his life for his friends. You are my friends
 if you do what I command you. (ESV)
 • Agape love is definitely valuing, treasuring, preserving
+• Luke 6:45 - The good person out of the good treasure of his heart produces good, and
+the evil person out of his evil treasure produces evil, for out of the abundance of
+the heart his mouth speaks. (ESV)
+• I Corinthians 16:14 - Let all that you do be done in love. (ESV)
+• Isaiah 43:4 - Since thou wast precious in my sight, thou hast been honourable, and I
+have loved thee: therefore will I give men for thee, and people for thy life. (KJV)
 
 Jesus' sacrifice was done once for all (but we still need to recieve it through faith in Jesus Christ):
 
@@ -71145,6 +71187,12 @@ joy may be full. This is my commandment, that you love one another as I have lov
 love has no one than this, that someone lays down his life for his friends. You are my friends
 if you do what I command you. (ESV)
 • Agape love is definitely valuing, treasuring, preserving
+• Luke 6:45 - The good person out of the good treasure of his heart produces good, and
+the evil person out of his evil treasure produces evil, for out of the abundance of
+the heart his mouth speaks. (ESV)
+• I Corinthians 16:14 - Let all that you do be done in love. (ESV)
+• Isaiah 43:4 - Since thou wast precious in my sight, thou hast been honourable, and I
+have loved thee: therefore will I give men for thee, and people for thy life. (KJV)
 
 Jesus' sacrifice was done once for all (but we still need to recieve it through faith in Jesus Christ):
 
@@ -138894,11 +138942,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-18 Fri 00:19
+Date: 2026-09-18 Fri 15:30
 
 Author: Shane Mulligan
 
-Created: 2026-09-18 Fri 00:26
+Created: 2026-09-18 Fri 15:51
 
 Validate
 
