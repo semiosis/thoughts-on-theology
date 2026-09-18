@@ -9037,6 +9037,79 @@ To be saved, we must trust in what is true, we must agape love the truth:
 
 > **[Isaiah 26:2-4](https://www.biblegateway.com/passage/?search=Isaiah%2026%3A2-4&version=ESV)** - Open the gates, that the righteous nation that keeps faith may enter in. You keep him in perfect peace whose mind is stayed on you, because he trusts in you. Trust in the LORD forever, for the LORD GOD is an everlasting rock. (ESV)
 
+-   **[youtube.com:  The Danger of AI vs . BIBLICAL TRUTH {@ DTBM } @time: 31 min 25 sec](https://youtube.com/watch?v=Srh78O03W8I&t=1885):** **True Christians are lovers of the truth (2Th 2:9-12)**
+    
+    And here is the essence of salvation.
+    This is how you know if you're saved
+    tonight.  This is really big.
+    This is what saved people have. The love
+    of the truth that they might be saved.
+    
+    &#x2026;
+    
+    What I'm saying is how do we how
+    do we get ready? Well, global delusion
+    is coming on the unrighteous ones. And
+    what's God's solution? What what did God
+    tell Paul to do? God's solution hasn't
+    changed.
+    
+    Every believer in Christ's
+    church needs to be nurtured in God's
+    word until they are mature enough to
+    discern truth.
+
+Saving faith is not only faith in the truth but it is also love for the truth (not only God's word but also those who have been begotton of God, and that includes those who love in the truth). We absolutely **must** love God one-another in the truth (**[II John 1:1-4](https://www.biblegateway.com/passage/?search=2%20John%201%3A1-4&version=ESV)**):
+
+> **[I John 5:1](https://www.biblegateway.com/passage/?search=1%20John%205%3A1&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. (ESV)
+
+> **[I Corinthians 13:2-3](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A2-3&version=ESV)** - And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have all faith, so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I deliver up my body to be burned, but have not love, I gain nothing. (ESV)
+
+> **[I Corinthians 13:4-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A4-8&version=ESV)** - Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but rejoices with the truth. Love bears [(G4722 stegei; it bears; to cover with silence (endure patiently))](G4722) all things, believes all things, **hopes all things, endures all things. Love never ends.** As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. (ESV)
+
+> **[I Corinthians 13:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A13&version=ESV)** - So now faith, hope, and love abide, these three; but the greatest [(G3173 meizōn; [the] greatest, most preceeding)](G3173) of these is love. (ESV)
+
+-   **[youtube.com:  The Supremacy of Love {@ PatristicNectarFilms }](https://www.youtube.com/watch?v=eEbnvHPb9jo):** Even dispossession, even martyrdom, if not
+    inspired and sustained by love, is of no
+    value.
+    
+    And if I give all my
+    possessions to feed the poor, and if I
+    surrender my body to be burned but do
+    not have love, it profits me nothing.
+    Can you imagine? You embrace radical
+    monastic dispossession out of love for
+    God and for the other. But if you don't
+    do it with love, it's worthless. You
+    even offer your b body in martyrdom.
+    What objectively is the highest offering
+    you can give Christ, your own life to
+    lay down your life for a friend because
+    he laid his life down for you. But if
+    you don't do it from the motive of love,
+    your martyr effort is in vain.
+
+A person either has faith in the truth, or faith in a lie. Even trusting in idols is trusting in lies:
+
+> **[Jeremiah 29:31](https://www.biblegateway.com/passage/?search=Jeremiah%2029%3A31&version=ESV)** - Send to all the exiles, saying, Thus says the LORD concerning Shemaiah of Nehelam: Because Shemaiah had prophesied to you when I did not send him, and has made you trust in a lie, (ESV)
+
+> **[Jeremiah 28:15](https://www.biblegateway.com/passage/?search=Jeremiah%2028%3A15&version=ESV)** - And Jeremiah the prophet said to the prophet Hananiah, Listen, Hananiah, the LORD has not sent you, and you have made this people trust in a lie. (ESV)
+
+> **[Isaiah 42:17](https://www.biblegateway.com/passage/?search=Isaiah%2042%3A17&version=ESV)** - They are turned back and utterly put to shame, who trust in carved idols, who say to metal images, You are our gods. (ESV)
+
+> **[Habakkuk 2:18](https://www.biblegateway.com/passage/?search=Habakkuk%202%3A18&version=ESV)** - What profit is an idol when its maker has shaped it, a metal image, a teacher of lies? For its maker trusts in his own creation when he makes speechless idols! (ESV)
+
+Real speech comes from the heart, so AI can still be called a speechless idol, even if it produces the imitation of speech or writing:
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+> **[Revelation of John 9:20-21](https://www.biblegateway.com/passage/?search=Revelation%209%3A20-21&version=ESV)** - The rest of mankind, who were not killed by these plagues, did not repent of the
+>   works of their hands nor give up worshiping demons and idols of gold and silver and bronze and stone and wood,
+>   which cannot see or hear or walk, nor did they repent of their murders or their sorceries or their sexual
+>   immorality or their thefts. (ESV)
+
+> **[Jeremiah 23:25-40](https://www.biblegateway.com/passage/?search=Jeremiah%2023%3A25-40&version=ESV)** - I have heard what the prophets have said who prophesy lies in my name, saying, I have dreamed, I have dreamed! How long shall there be lies in the heart of the prophets who prophesy lies, and who prophesy the deceit of their own heart, who think to make my people forget my name by their dreams that they tell one another, even as their fathers forgot my name for Baal? Let the prophet who has a dream tell the dream, but let him who has my word speak my word faithfully. What has straw in common with wheat? declares the LORD. Is not my word like fire, declares the LORD, and like a hammer that breaks the rock in pieces? Therefore, behold, I am against the prophets, declares the LORD, who steal my words from one another. Behold, I am against the prophets, declares the LORD, who use their tongues and declare, declares the LORD. Behold, I am against those who prophesy lying dreams, declares the LORD, and who tell them and lead my people astray by their lies and their recklessness, when I did not send them or charge them. So they do not profit this people at all, declares the LORD. When one of this people, or a prophet or a priest asks you, What is the burden of the LORD? you shall say to them, You are the burden, and I will cast you off, declares the LORD. And as for the prophet, priest, or one of the people who says, The burden of the LORD, I will punish that man and his household. Thus shall you say, every one to his neighbor and every one to his brother, What has the LORD answered? or What has the LORD spoken? But the burden of the LORD you shall mention no more, for the burden is every man's own word, and you pervert the words of the living God, the LORD of hosts, our God. Thus you shall say to the prophet, What has the LORD answered you? or What has the LORD spoken? But if you say, The burden of the LORD, thus says the LORD, Because you have said these words, The burden of the LORD, when I sent to you, saying, You shall not say, The burden of the LORD, therefore, behold, I will surely lift you up and cast you away from my presence, you and the city that I gave to you and your fathers. And I will bring upon you everlasting reproach and perpetual shame, which shall not be forgotten. (ESV)
+
 Faith is a "way of life":
 
 > **[Hebrews 13:7](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A7&version=ESV)** - Remember your leaders, those who spoke to you the word of God. Consider the outcome of their way of life, and imitate their faith. (ESV)
@@ -18192,7 +18265,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgbdc74fc) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org6eb925f) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -23957,7 +24030,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org74d0cb6).
+I didn't know but it turned out to be the last day of my [sentence](#org26a8c83).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -48465,7 +48538,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgc2a2c72)
+See: [33.4.1](#orgfb8c527)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -69975,7 +70048,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgc2a2c72)
+See: [33.4.1](#orgfb8c527)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -72629,7 +72702,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgd042b79) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org53328ce) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -80859,7 +80932,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgd042b79) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org53328ce) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82197,7 +82270,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgd4cad22)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org086b310)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

@@ -17617,6 +17617,98 @@ To be saved, we must trust in what is true, we must agape love the truth:
   peace whose mind is stayed on you, because he trusts in you. Trust in the LORD forever, for the LORD GOD is an
   everlasting rock. (ESV)
 
+youtube.com: The Danger of AI vs . BIBLICAL TRUTH {@ DTBM } @time: 31 min 25 sec
+
+True Christians are lovers of the truth (2Th 2:9-12)
+
+And here is the essence of salvation. This is how you know if you're saved tonight. This is really big. This is
+what saved people have. The love of the truth that they might be saved.
+
+…
+
+What I'm saying is how do we how do we get ready? Well, global delusion is coming on the unrighteous ones. And
+what's God's solution? What what did God tell Paul to do? God's solution hasn't changed.
+
+Every believer in Christ's church needs to be nurtured in God's word until they are mature enough to discern
+truth.
+
+Saving faith is not only faith in the truth but it is also love for the truth (not only God's word but also those
+who have been begotton of God, and that includes those who love in the truth). We absolutely must love God
+one-another in the truth (II John 1:1-4):
+
+  I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
+  Father loves whoever has been born of him. (ESV)
+
+  I Corinthians 13:2-3 - And if I have prophetic powers, and understand all mysteries and all knowledge, and if I
+  have all faith, so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I
+  deliver up my body to be burned, but have not love, I gain nothing. (ESV)
+
+  I Corinthians 13:4-8 - Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It
+  does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but
+  rejoices with the truth. Love bears (G4722 stegei; it bears; to cover with silence (endure patiently)) all
+  things, believes all things, hopes all things, endures all things. Love never ends. As for prophecies, they will
+  pass away; as for tongues, they will cease; as for knowledge, it will pass away. (ESV)
+
+  I Corinthians 13:13 - So now faith, hope, and love abide, these three; but the greatest (G3173 meizōn; [the]
+  greatest, most preceeding) of these is love. (ESV)
+
+youtube.com: The Supremacy of Love {@ PatristicNectarFilms }
+
+Even dispossession, even martyrdom, if not inspired and sustained by love, is of no value.
+
+And if I give all my possessions to feed the poor, and if I surrender my body to be burned but do not have love,
+it profits me nothing. Can you imagine? You embrace radical monastic dispossession out of love for God and for the
+other. But if you don't do it with love, it's worthless. You even offer your b body in martyrdom. What objectively
+is the highest offering you can give Christ, your own life to lay down your life for a friend because he laid his
+life down for you. But if you don't do it from the motive of love, your martyr effort is in vain.
+
+A person either has faith in the truth, or faith in a lie. Even trusting in idols is trusting in lies:
+
+  Jeremiah 29:31 - Send to all the exiles, saying, Thus says the LORD concerning Shemaiah of Nehelam: Because
+  Shemaiah had prophesied to you when I did not send him, and has made you trust in a lie, (ESV)
+
+  Jeremiah 28:15 - And Jeremiah the prophet said to the prophet Hananiah, Listen, Hananiah, the LORD has not sent
+  you, and you have made this people trust in a lie. (ESV)
+
+  Isaiah 42:17 - They are turned back and utterly put to shame, who trust in carved idols, who say to metal
+  images, You are our gods. (ESV)
+
+  Habakkuk 2:18 - What profit is an idol when its maker has shaped it, a metal image, a teacher of lies? For its
+  maker trusts in his own creation when he makes speechless idols! (ESV)
+
+Real speech comes from the heart, so AI can still be called a speechless idol, even if it produces the imitation
+of speech or writing:
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  Revelation of John 9:20-21 - The rest of mankind, who were not killed by these plagues, did not repent of the
+  works of their hands nor give up worshiping demons and idols of gold and silver and bronze and stone and wood,
+  which cannot see or hear or walk, nor did they repent of their murders or their sorceries or their sexual
+  immorality or their thefts. (ESV)
+
+  Jeremiah 23:25-40 - I have heard what the prophets have said who prophesy lies in my name, saying, I have
+  dreamed, I have dreamed! How long shall there be lies in the heart of the prophets who prophesy lies, and who
+  prophesy the deceit of their own heart, who think to make my people forget my name by their dreams that they
+  tell one another, even as their fathers forgot my name for Baal? Let the prophet who has a dream tell the dream,
+  but let him who has my word speak my word faithfully. What has straw in common with wheat? declares the LORD. Is
+  not my word like fire, declares the LORD, and like a hammer that breaks the rock in pieces? Therefore, behold, I
+  am against the prophets, declares the LORD, who steal my words from one another. Behold, I am against the
+  prophets, declares the LORD, who use their tongues and declare, declares the LORD. Behold, I am against those
+  who prophesy lying dreams, declares the LORD, and who tell them and lead my people astray by their lies and
+  their recklessness, when I did not send them or charge them. So they do not profit this people at all, declares
+  the LORD. When one of this people, or a prophet or a priest asks you, What is the burden of the LORD? you shall
+  say to them, You are the burden, and I will cast you off, declares the LORD. And as for the prophet, priest, or
+  one of the people who says, The burden of the LORD, I will punish that man and his household. Thus shall you
+  say, every one to his neighbor and every one to his brother, What has the LORD answered? or What has the LORD
+  spoken? But the burden of the LORD you shall mention no more, for the burden is every man's own word, and you
+  pervert the words of the living God, the LORD of hosts, our God. Thus you shall say to the prophet, What has the
+  LORD answered you? or What has the LORD spoken? But if you say, The burden of the LORD, thus says the LORD,
+  Because you have said these words, The burden of the LORD, when I sent to you, saying, You shall not say, The
+  burden of the LORD, therefore, behold, I will surely lift you up and cast you away from my presence, you and the
+  city that I gave to you and your fathers. And I will bring upon you everlasting reproach and perpetual shame,
+  which shall not be forgotten. (ESV)
+
 Faith is a "way of life":
 
   Hebrews 13:7 - Remember your leaders, those who spoke to you the word of God. Consider the outcome of their way
@@ -138942,11 +139034,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-18 Fri 15:30
+Date: 2026-09-19 Sat 11:04
 
 Author: Shane Mulligan
 
-Created: 2026-09-18 Fri 15:51
+Created: 2026-09-19 Sat 11:26
 
 Validate
 
