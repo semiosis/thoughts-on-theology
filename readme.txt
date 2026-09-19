@@ -15,6 +15,9 @@ Jesus Christ, please forgive me if I have spoken anything incorrectly and have m
   Luke 9:62 - Jesus said to him, No one who puts his hand to the plow and looks back is fit for the kingdom of
   God. (ESV)
 
+  Luke 11:33 - No one after lighting a lamp puts it in a cellar or under a basket, but on a stand, so that those
+  who enter may see the light. (ESV)
+
 In trusting Jesus and His words, we are led by Him. And it's very important that we are not led astray by a
 different voice, so we should be corrected and goaded and guided by Jesus. With soft hearts we should trust and
 obey Jesus' voice. He can see our hearts and knows who actually does follow Him. The knowing doesn't come first.
@@ -2384,7 +2387,27 @@ Being "from God", a person would have been "sent from God":
 
   John 3:34 - For he whom God has sent utters the words of God, for he gives the Spirit without measure. (ESV)
 
-A person who is being taught by God, comes to Jesus (John 6:45).
+Father God drawing a person to Jesus, that person being willing to come, and that person learning from Father God
+all happen at the same time.
+
+A person who is being taught by Father God, comes to Jesus (John 6:45).
+
+This person must be holding fast to what they hear. So as we learn from God's word we need to hold fast to what
+
+  Matthew 13:9-15 - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to
+  them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven,
+  but to them it has not been given. For to the one who has, more will be given, and he will have an abundance,
+  but from the one who has not, even what he has will be taken away. This is why I speak to them in parables,
+  because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the
+  prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see
+  but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their
+  eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their
+  heart and turn, and I would heal them. (ESV)
+
+We must be willing to come to Jesus:
+
+  John 5:39-40 - You search the Scriptures because you think that in them you have eternal life; and it is they
+  that bear witness about me, yet you refuse to come to me that you may have life. (ESV)
 
 Jesus Christ is our High Priest who we must come to:
 
@@ -2428,7 +2451,8 @@ come to Him:
   God. (ESV)
 
 They receive the seed of the word of God in them (Mark 4:14-20) which actually is the new person (I Peter
-1:22-25). That seed grows up (Matthew 13:37-42) and the person gets born again, born of the spirit.
+1:22-25). That seed grows up (Matthew 13:37-42) and the person gets born again, born of the spirit. But being
+born-again, they must continue holding their faith in Jesus Christ, and if they do so then they will never die.
 
 The children of the devil believe lies from the devil and subsequently do the devil's will (John 8:31-47), rather
 than believe the words of God and subsequently do the will of God. Bad seed produces the weeds. Good seed produces
@@ -2481,16 +2505,78 @@ the world and gives them to Jesus (John 17:6).
 
 No-one can come to Jesus Christ (believe in Him) unless Father God draws them (John 6:35-45,53-69) to Him. A
 person learning from Father God comes to Jesus Christ (John 6:44-45,64-65). So this person coming to Jesus Christ
-is someone who is believing and holding fast to the word of God as they do so. They are receiving the word of God
-and holding fast to it, and retaining it, learning.
+is someone who is believing and holding fast to the word of God as they do so, particularly Jesus Christ's words.
+Father God gave Jesus words to speak. So a person learning from Jesus Christ and retaining His wordo is coming to
+Him. Such a person, Jesus will never cast out:
 
-A person who is good soil (Luke 8:15) is somebody of the world (John 17:6) which is field who receives and hold
-fasts the seed of the word of God (i.e. so they are a believer, treasuring the word of God) and eventually will
-bear good fruit for God. But we need to be born-again in order to bear fruit. So the good soil gets born-again of
-the good seed in order to bear fruit for God (Romans 7:1-12). As Romans 7:1-12 describes, we need Jesus to be our
-Master (as opposed to Mosaic Law) in order to bear fruit for God. So the good soil believer of the field of the
-world, with indwelling sin empowered by the Law, dies and is born-again. They are baptized into Christ's death
-(Romans 6:3-8). They are born-again.
+  John 6:68 - Simon Peter answered him, Lord, to whom shall we go? You have the words of eternal life, (ESV)
+
+  John 6:63 - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are
+  spirit and life. (ESV)
+
+  Jn 6:37,44,64-65 - All that the Father gives me will come to me, and whoever comes to me I will never cast out.
+  No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. But
+  there are some of you who do not believe. (For Jesus knew from the beginning who those were who did not believe,
+  and who it was who would betray him.) And he said, This is why I told you that no one can come to me unless it
+  is granted him by the Father. (ESV)
+
+So the person who comes to Jesus is receiving the word of God and holding fast to what they have learned so far,
+and doing the word too, and should be rebuking those who contradict the word of God as they go, but not being
+hypocrites as they go, but actually doing the word in reality for God to see:
+
+  James 1:22-24 - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer
+  of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at
+  himself and goes away and at once forgets what he was like. (ESV)
+
+  Titus 1:9-14 - He must hold firm to the trustworthy word as taught, so that he may be able to give instruction
+  in sound doctrine and also to rebuke those who contradict it. For there are many who are insubordinate, empty
+  talkers and deceivers, especially those of the circumcision party. They must be silenced, since they are
+  upsetting whole families by teaching for shameful gain what they ought not to teach. One of the Cretans, a
+  prophet of their own, said, Cretans are always liars, evil beasts, lazy gluttons. This testimony is true.
+  Therefore rebuke them sharply, that they may be sound in the faith, not devoting themselves to Jewish myths and
+  the commands of people who turn away from the truth. (ESV)
+
+Hold fast to what we have attained already (Philippians 3:12-21), and continue integrating more of the truth,
+taking captive every thought for obedience to Christ Jesus, until one's obedience is complete (II Corinthians
+10:5-6, Matthew 5:43-48), but continuing on also.
+
+The one born of God who is seated with Christ in heavenly places (Ephesians 2:6), far from sinners (Hebrews 7:26),
+simultaneously agrees with and speaks the truth about Jesus Christ (I John 4:15, I John 4:3), and they love as
+commanded and they do not sin (I John 5:18). The one born of God is not a sinner by nature (I Peter 4:12-19).
+
+While in the flesh (Romans 7:16-20) there is a struggle with the flesh, but we still do need to be/become the one
+who is born of God, and so we should certainly strive to do this, abstaining from sin, overcomig evil with good,
+loving as commanded, abiding in the teaching of and about Jesus Christ. As a believer is holding their faith in
+Jesus Christ, coming to Jesus, they are retaining God's word, God's seed, and they will at some point (John
+11:25-27) die and be born-again while they are believing and become the new person who has been born of the seed
+of the word of God. The good seed are the children of the Kingdom of God and the good plants which came from the
+good seed are the oaks of righteousness (Isaiah 61:3) who have been created in Christ Jesus for good works
+(Ephesians 2:1-10) and need to be bearers of good fruit. The seed needs to die (I Corinthians 15:36), a believer
+needs to get born-again at some point that they may bear fruit for God:
+
+  II Corinthians 10:5-6 - We destroy arguments and every lofty opinion raised against the knowledge of God, and
+  take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is
+  complete. (ESV)
+
+  Romans 7:16-20 - Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I
+  who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I
+  have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but
+  the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but
+  sin that dwells within me. (ESV)
+
+  Romans 7:10-11 - The very commandment that promised life proved to be death to me. For sin, seizing an
+  opportunity through the commandment, deceived me and through it killed me. (ESV)
+
+A person who is good soil (Luke 8:15) is somebody of the world (John 17:6) which is the field (i.e. the world is
+the field). But this good soil from the world receives and hold fast the seed of the word of God (i.e. so they are
+a believer, treasuring the word of God) and eventually will bear good fruit for God. But we need to be born-again
+in order to bear fruit. So that person will get born-again as they are believing. So the good soil gets born-again
+of the good seed in order to bear fruit for God (Romans 7:1-12).
+
+As Romans 7:1-12 describes, we need Jesus to be our Master (as opposed to Mosaic Law) in order to bear fruit for
+God. So the good soil believer of the field of the world, with indwelling sin empowered by the Law, dies due to
+the sin, but since they are a believer, they are born-again. They are baptized into Christ's death (Romans 6:3-8)
+and they are born-again.
 
   John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
   yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
@@ -139340,11 +139426,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-19 Sat 19:15
+Date: 2026-09-19 Sat 20:40
 
 Author: Shane Mulligan
 
-Created: 2026-09-19 Sat 19:22
+Created: 2026-09-19 Sat 21:00
 
 Validate
 

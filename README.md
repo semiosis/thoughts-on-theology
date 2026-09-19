@@ -5,6 +5,8 @@ I'm trying to speak the truth in mercy. This document shows my current understan
 
 > **[Luke 9:62](https://www.biblegateway.com/passage/?search=Luke%209%3A62&version=ESV)** - Jesus said to him, No one who puts his hand to the plow and looks back is fit for the kingdom of God. (ESV)
 
+> **[Luke 11:33](https://www.biblegateway.com/passage/?search=Luke%2011%3A33&version=ESV)** - No one after lighting a lamp puts it in a cellar or under a basket, but on a stand, so that those who enter may see the light. (ESV)
+
 In trusting Jesus and His words, we are led by Him. And it's **very** important that we are not led astray by a different voice, so we should be corrected and goaded and guided by Jesus. With soft hearts we should trust and obey Jesus' voice. He can see our hearts and knows who actually does follow Him. The knowing doesn't come first. Abiding comes first, knowing the truth and having freedom from committing sin comes next, while abiding. We do need to continue on in Jesus' word (**[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)**) and while continuing on we need also to continue abiding in His word (**[II John 1:9-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-11&version=ESV)**) and not leave His word, and so we must love our family in Christ (**[I John 3:13-16](https://www.biblegateway.com/passage/?search=1%20John%203%3A13-16&version=ESV)**). God puts us into Christ (**[I Corinthians 1:30](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A30&version=NASB)**) but we must remain in Him (**[John 15:1-6](https://www.biblegateway.com/passage/?search=John%2015%3A1-6&version=ESV)**):
 
 > **[I John 5:20](https://www.biblegateway.com/passage/?search=1%20John%205%3A20&version=ESV)** - And we know that **the Son of God has come and has given us understanding, so that we may know him who is true**; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal life. (ESV)
@@ -1089,7 +1091,17 @@ Being "from God", a person would have been "sent from God":
 
 > **[John 3:34](https://www.biblegateway.com/passage/?search=John%203%3A34&version=ESV)** - For he whom God has sent utters the words of God, for he gives the Spirit without measure. (ESV)
 
-A person who is being taught by God, comes to Jesus (**[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)**).
+Father God drawing a person to Jesus, that person being willing to come, and that person learning from Father God all happen at the same time.
+
+A person who is being taught by Father God, comes to Jesus (**[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)**).
+
+This person must be holding fast to what they hear. So as we learn from God's word we need to hold fast to what
+
+> **[Matthew 13:9-15](https://www.biblegateway.com/passage/?search=Matthew%2013%3A9-15&version=ESV)** - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven, but to them it has not been given. For **to the one who has, more will be given, and he will have an abundance, but from the one who has not, even what he has will be taken away.** This is why I speak to them in parables, because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their heart and turn, and I would heal them. (ESV)
+
+We must be willing to come to Jesus:
+
+> **[John 5:39-40](https://www.biblegateway.com/passage/?search=John%205%3A39-40&version=ESV)** - You search the Scriptures because you think that in them you have eternal life; and it is they that bear witness about me, yet you refuse to come to me that you may have life. (ESV)
 
 Jesus Christ is our High Priest who we must come to:
 
@@ -1115,6 +1127,7 @@ We need to love God's word to come to Jesus Christ the Son of God. We have faith
 
 They receive the seed of the word of God in them (**[Mark 4:14-20](https://www.biblegateway.com/passage/?search=Mark%204%3A14-20&version=ESV)**) which actually is the new person (**[I Peter 1:22-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22-25&version=ESV)**).
 That seed grows up (**[Matthew 13:37-42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-42&version=ESV)**) and the person gets **born** <ins>again</ins>, born of the spirit.
+But being born-again, they must continue holding their faith in Jesus Christ, and if they do so then they will never die.
 
 The children of the devil believe lies from the devil and subsequently do the devil's will (**[John 8:31-47](https://www.biblegateway.com/passage/?search=John%208%3A31-47&version=ESV)**), rather than believe the words of God and subsequently do the will of God. Bad seed produces the weeds. Good seed produces good trees that bear good fruit for God:
 
@@ -1136,14 +1149,39 @@ The field is the world, and so the the good soil (**[Luke 8:15](https://www.bibl
 
 No-one can come to Jesus Christ (believe in Him) unless Father God draws them (**[John 6:35-45](https://www.biblegateway.com/passage/?search=John%206%3A35-45&version=ESV),53-69**) to Him.
 A person learning from Father God comes to Jesus Christ (**[John 6:44-45](https://www.biblegateway.com/passage/?search=John%206%3A44-45&version=ESV),64-65**).
-So this person coming to Jesus Christ is someone who is believing and holding fast to the word of God as they do so.
-They are receiving the word of God and holding fast to it, and retaining it, learning.
+So this person coming to Jesus Christ is someone who is believing and holding fast to the word of God as they do so, particularly Jesus Christ's words. Father God gave Jesus words to speak. So a person learning from Jesus Christ and retaining His wordo is coming to Him. Such a person, Jesus will never cast out:
 
-A person who is good soil (**[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)**) is somebody of the world (**[John 17:6](https://www.biblegateway.com/passage/?search=John%2017%3A6&version=ESV)**) which is field who receives and hold fasts the seed of the word of God (i.e. so they are a believer, treasuring the word of God) and eventually will bear good fruit for God. But we need to be born-again in order to bear fruit.
+> **[John 6:68](https://www.biblegateway.com/passage/?search=John%206%3A68&version=ESV)** - Simon Peter answered him, Lord, to whom shall we go? You have the words of eternal life, (ESV)
+
+> **[John 6:63](https://www.biblegateway.com/passage/?search=John%206%3A63&version=ESV)** - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are spirit and life. (ESV)
+
+> **[Jn 6:37](https://www.biblegateway.com/passage/?search=John%206%3A37&version=ESV),44,64-65** - All that the Father gives me will come to me, and whoever comes to me I will never cast out. No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. But there are some of you who do not believe. (For Jesus knew from the beginning who those were who did not believe, and who it was who would betray him.) And he said, This is why I told you that no one can come to me unless it is granted him by the Father. (ESV)
+
+So the person who comes to Jesus is receiving the word of God and holding fast to what they have learned so far, and doing the word too, and should be rebuking those who contradict the word of God as they go, but not being hypocrites as they go, but actually doing the word in reality for God to see:
+
+> **[James 1:22-24](https://www.biblegateway.com/passage/?search=James%201%3A22-24&version=ESV)** - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. (ESV)
+
+> **[Titus 1:9-14](https://www.biblegateway.com/passage/?search=Titus%201%3A9-14&version=ESV)** - He must hold firm to the trustworthy word as taught, so that he may be able to give instruction in sound doctrine and also to rebuke those who contradict it. For there are many who are insubordinate, empty talkers and deceivers, especially those of the circumcision party. They must be silenced, since they are upsetting whole families by teaching for shameful gain what they ought not to teach. One of the Cretans, a prophet of their own, said, Cretans are always liars, evil beasts, lazy gluttons. This testimony is true. Therefore rebuke them sharply, that they may be sound in the faith, not devoting themselves to Jewish myths and the commands of people who turn away from the truth. (ESV)
+
+Hold fast to what we have attained already (**[Philippians 3:12-21](https://www.biblegateway.com/passage/?search=Philippians%203%3A12-21&version=ESV)**), and continue integrating more of the truth, taking captive every thought for obedience to Christ Jesus, until one's obedience is complete (**[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)**, **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)**), but continuing on also.
+
+The one born of God who is seated with Christ in heavenly places (**[Ephesians 2:6](https://www.biblegateway.com/passage/?search=Ephesians%202%3A6&version=ESV)**), far from sinners ([Hebrews 7:26](https://www.biblegateway.com/passage/?search=Hebrews%207%3A26&version=ESV)), simultaneously agrees with and speaks the truth about Jesus Christ (**[I John 4:15](https://www.biblegateway.com/passage/?search=1%20John%204%3A15&version=ESV)**, [I John 4:3](https://www.biblegateway.com/passage/?search=1%20John%204%3A3&version=ESV)), and they love as commanded and they do not sin ([I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)). The one born of God is not a sinner by nature (**[I Peter 4:12-19](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A12-19&version=ESV)**).
+
+While in the flesh (**[Romans 7:16-20](https://www.biblegateway.com/passage/?search=Romans%207%3A16-20&version=ESV)**) there is a struggle with the flesh, but we still do need to be/become the one who is born of God, and so we should certainly strive to do this, abstaining from sin, overcomig evil with good, loving as commanded, abiding in the teaching of and about Jesus Christ.
+As a believer is holding their faith in Jesus Christ, coming to Jesus, they are retaining God's word, God's seed, and they will at some point (**[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)**) die and be born-again while they are believing and become the new person who has been born of the seed of the word of God. The good seed are the children of the Kingdom of God and the good plants which came from the good seed are the oaks of righteousness (**[Isaiah 61:3](https://biblehub.com/interlinear/isaiah/61-3.htm)**) who have been created in Christ Jesus for good works (**[Ephesians 2:1-10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-10&version=ESV)**) and need to be bearers of good fruit. The seed needs to die (**[I Corinthians 15:36](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A36&version=ESV)**), a believer needs to get born-again at some point that they may bear fruit for God:
+
+> **[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)** - We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, being ready to punish every disobedience, when your obedience is complete. (ESV)
+
+> **[Romans 7:16-20](https://www.biblegateway.com/passage/?search=Romans%207%3A16-20&version=ESV)** - Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. (ESV)
+
+> **[Romans 7:10-11](https://www.biblegateway.com/passage/?search=Romans%207%3A10-11&version=ESV)** - The very commandment that promised life proved to be death to me. For sin, seizing an opportunity through the commandment, deceived me and through it killed me. (ESV)
+
+A person who is good soil (**[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)**) is somebody of the world (**[John 17:6](https://www.biblegateway.com/passage/?search=John%2017%3A6&version=ESV)**) which is the field (i.e. the world is the field). But this good soil from the world receives and hold fast the seed of the word of God (i.e. so they are a believer, treasuring the word of God) and eventually will bear good fruit for God. But we need to be born-again in order to bear fruit. So that person will get born-again as they are believing.
 So the good soil gets born-again of the good seed in order to bear fruit for God (**[Romans 7:1-12](https://read.lsbible.org/?q=Romans+7)**).
+
 As Romans 7:1-12 describes, we need Jesus to be our Master (as opposed to Mosaic Law) in order to bear fruit for God.
-So the good soil believer of the field of the world, with indwelling sin empowered by the Law, dies and is born-again. They are baptized into Christ's death (**[Romans 6:3-8](https://www.biblegateway.com/passage/?search=Romans%206%3A3-8&version=ESV)**).
-They are born-again.
+So the good soil believer of the field of the world, with indwelling sin empowered by the Law, dies due to the sin, but since they are a believer, they are born-again.
+They are baptized into Christ's death (**[Romans 6:3-8](https://www.biblegateway.com/passage/?search=Romans%206%3A3-8&version=ESV)**) and they are born-again.
 
 > **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet shall he live, and everyone who lives and believes in me shall never [(G3756 οὐ)](G3756) [(G3361 μή)](G3361) die. Do you believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world. (ESV)
 
@@ -18384,7 +18422,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9d8335c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgf12659a) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24149,7 +24187,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orga5146ae).
+I didn't know but it turned out to be the last day of my [sentence](#org61900fd).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -48657,7 +48695,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgdcd75ba)
+See: [33.4.1](#orgb6e97d2)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -70167,7 +70205,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgdcd75ba)
+See: [33.4.1](#orgb6e97d2)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -72821,7 +72859,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orged4cb17) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgae1e877) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -81051,7 +81089,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orged4cb17) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgae1e877) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82389,7 +82427,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org0d1aa7f)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgbabe50a)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
