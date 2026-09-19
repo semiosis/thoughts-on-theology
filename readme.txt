@@ -2392,7 +2392,8 @@ all happen at the same time.
 
 A person who is being taught by Father God, comes to Jesus (John 6:45).
 
-This person must be holding fast to what they hear. So as we learn from God's word we need to hold fast to what
+This person must be holding fast to what they hear. So as we learn from God's word we need to hold fast to what we
+have heard:
 
   Matthew 13:9-15 - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to
   them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven,
@@ -2587,16 +2588,23 @@ So a person needs to be both the good soil and have the seed of the word of God 
 born-again of that seed in order to bear good fruit for God.
 
 If a person is not a good soil believer (the rocky ground, or the path, or among thorns) then they won't continue
-on in faith to bearing good fruit (Luke 8:11-15). So then, a person can clearly be a believer for a while and stop
-being a believer.
+on in faith to bearing good fruit (Luke 8:11-15). So then, a person can clearly be a believer for a while (Luke
+8:11-15) and stop being a believer (John 8:31-47) but Jesus did instruct such people that if they abide (remain)
+in His word then they would be come set free from sin.
 
-And I doubt a person such a person had ever been "born-again". But it's clearly possible for a person to be a
-believer for a while and not end up bearing fruit.
+And I doubt a person such a person had ever been "born-again", as a person who has been born-again has died and
+been aquitted (some translations say 'set free') from sin (Romans 6:6-8). A born-again person still does need to
+go on in faith in Jesus Christ to never die (John 11:25-27) and that means also not going back to sin (II Peter
+2:20-22) and whatever does not proceed from faith is sin. A born-again person, if they go on as a believer they
+will never die.
 
-This is evident again here. Here we can see that there were some Jews who had believed in Jesus Christ but who
-went on to then hate Jesus and so not believe, and so in not believing anymore the devil had taken the word of God
-from their heart (Luke 8:12-15). They then desired to do the devil's will. Jesus instructed them to continue in
-His word to become set free from sin:
+But it's clearly possible for a person to be a believer for a while and not end up bearing fruit. A person needs
+to be born-again in order to bear fruit.
+
+That a person may "fall away" from faith is evident again here in John 8:31-47. Here we can see that there were
+some Jews who had believed in Jesus Christ but who went on to then hate Jesus and so not believe, and so in not
+believing anymore the devil had taken the word of God from their heart (Luke 8:12-15). They then desired to do the
+devil's will. Jesus instructed them to continue in His word to become set free from sin:
 
   John 8:31-47 - So Jesus said to the Jews who had believed (G4100 pepisteukotas: having believed 'V-RPA-AMP past
   tense') in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth
@@ -139426,11 +139434,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-19 Sat 20:40
+Date: 2026-09-19 Sat 22:41
 
 Author: Shane Mulligan
 
-Created: 2026-09-19 Sat 21:00
+Created: 2026-09-19 Sat 22:46
 
 Validate
 
