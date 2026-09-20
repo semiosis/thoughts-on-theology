@@ -2590,7 +2590,7 @@ born-again of that seed in order to bear good fruit for God.
 If a person is not a good soil believer (the rocky ground, or the path, or among thorns) then they won't continue
 on in faith to bearing good fruit (Luke 8:11-15). So then, a person can clearly be a believer for a while (Luke
 8:11-15) and stop being a believer (John 8:31-47) but Jesus did instruct such people that if they abide (remain)
-in His word then they would be come set free from sin.
+in His word then they would become set free from sin.
 
 And I doubt a person such a person had ever been "born-again", as a person who has been born-again has died and
 been aquitted (some translations say 'set free') from sin (Romans 6:6-8). A born-again person still does need to
@@ -3912,6 +3912,110 @@ alive. Someone who is born-again is not a sinner by nature. We don't want to be 
   the apostles of our Lord Jesus Christ. They said to you, In the last time there will be scoffers, following
   their own ungodly passions. (ESV)
 
+youtube.com: Can a TRUE Christian Still Struggle With Sin ? The Bible Is Clear {@ Marcusdixon1clips }
+
+I commented,
+
+I'm not infallible, but this is how I understand this to work.
+
+"Born of God" is the person who is seated in heavenly places with Christ. Hebrews says Jesus is in the heavenly
+places far from sinners. The one born of God doesn't sin, and loves as commanded and confesses the truth about
+Jesus Christ who is the Son of God. But in Romans 7 Paul says that if he desires to do the right thing but doesn't
+do what he wants then it is not him who does it, but sin which dwells in his flesh.
+
+The Paul who is born of God isn't a sinner. But the sin which dwelt in Paul's flesh was doing the bad deeds rather
+than Paul when Paul was desiring to do what is right but failing to do it.
+
+If someone says to another person that they are the one who is born of God, then they are commending themself
+instead of leaving the justifying to God because they'd essentially be saying to others that God is pleased with
+them in this moment.
+
+Jesus says the good seed are the children of the Kingdom. Peter says we are born-again of the seed of the word of
+God. Jesus says the seed needs to die to bear fruit (John 12:24). We need to be "born-again to bear fruit", and so
+this seed dying I think coincides with getting born-again. The good soil is still a believer.
+
+And the good soil is someone who receives the word. We need to be a believer to get born-again. And need to go on
+as a believer after being born-again.
+
+John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die, yet
+shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you believe
+this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into the world.
+(ESV)
+
+The good seed, the word of God, is a child of the Kingdom.
+
+A person who is good soil (Luke 8:15) is somebody of the world (John 17:6) which is the field (i.e. the world is
+the field). But this good soil from the world receives and hold fast the seed of the word of God (i.e. so they are
+a believer, treasuring the word of God) and eventually will bear good fruit for God. But we need to be born-again
+in order to bear fruit. So that person will get born-again as they are believing. So the good soil gets born-again
+of the good seed in order to bear fruit for God (Romans 7:1-12).
+
+So I think the good seed is the new person (unborn) and the good soil is the old person, and then the good seed
+dies and turns into a plant and the person becomes the plant, they get born again. Their new nature is then one of
+a child of the Kingdom. The person's new nature is to love as commanded, to not sin, and also to agree with and
+confess the truth about Jesus Christ.
+
+As Romans 7:1-12 describes, we need Jesus to be our Master (as opposed to Mosaic Law) in order to bear fruit for
+God. So the good soil believer of the field of the world, with indwelling sin empowered by the Law, dies due to
+the sin, but since they are a believer, they are born-again. They are baptized into Christ's death (Romans 6:3-8)
+and they are born-again.
+
+A born-again of the spirit person has been reborn spiritually from that good seed but still carries around the
+sinful flesh.
+
+The sinful flesh also needs to die for the person to receive their resurrection body later, or if they are
+raptured alive.
+
+A person who is "the good soil" is a believer. Jesus said the field is the world. And in John 17, Jesus said His
+Father gave people to him from out of the world. So the good soil receives the seed of the word of God and then
+they get born again.
+
+A believer gets born again. A believer needs to be born-again in order to bear good fruit for God. Jesus said
+whoever is believing in Him, even though they die, they will live and whoever lives and believes in Him will never
+die.
+
+So if a born-again person continues on as a believer then they will not die again.
+
+While in the sinful flesh, there will be a battle with sin, I'd imagine. But a person who has been born-again of
+the spirit is not by nature a sinner anymore, by the grace of God. The believer who has not been born-again is
+still a sinner by nature.
+
+John 8:31-47 - So Jesus said to the Jews who had believed (G4100 pepisteukotas: having believed 'V-RPA-AMP past
+tense') in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth
+will set you free. They answered him, We are offspring of Abraham and have never been enslaved to anyone. How is
+it that you say, You will become free? Jesus answered them, Truly, truly, I say to you, everyone who commits sin
+is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you
+free, you will be free indeed. I know that you are offspring of Abraham; yet you seek to kill me because my word
+finds no place in you. I speak of what I have seen with my Father, and you do what you have heard from your
+father. They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be
+doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God. This
+is not what Abraham did. You are doing what your father did. They said to him, We were not born of sexual
+immorality. We have one Father—even God. Jesus said to them, If God were your Father, you would love me, for I
+came from God and I am here. I came not of my own accord, but he sent me. Why do you not understand what I say? It
+is because you cannot bear to hear my word. You are of your father the devil, and your will is to do your father's
+desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is no truth in
+him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. But because I tell
+the truth, you do not believe me. Which one of you convicts me of sin? If I tell the truth, why do you not believe
+me? Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of God.
+(ESV)
+
+I pointed John 8:31-47 to say that a person who has believed at some point still may not have been "born-again"
+yet. Because getting born-again, a person is baptised into Christ's death and their old self is crucified and they
+died to sin.
+
+So I think a believer will at some point die as they are believing. I think this may be what Paul was talking
+about when he said that when the commandment came, sin came alive and I died. But for the believer, if they die,
+then they will live, as Jesus has said. And a living (born-again of the spirit) person who continues on in faith
+in Jesus Christ will never die.
+
+Jesus said whoever believes in Him will do the deeds He did, and Jesus didn't sin. So a believer who is struggling
+with sin before getting born-again will at some stage get born again so they can bear good fruit for God, good
+deeds done in faith rather than committing sin. But even a born-again person may be struggling with the sinful
+flesh.
+
+And water baptism being an appeal to God for a good conscience through Jesus Christ's resurrection, if the person
+has not been born-again yet then it's also appealing to God to be born-again.
+
 People perish for lack of knowledge, knowledge that necessitates love for the truth:
 
   Deuteronomy 30:17 - But if your heart turns away, and you will not hear, but are drawn away to worship other
@@ -4720,7 +4824,7 @@ Those people who are set free from committing sin are disciples of Jesus Christ:
   you will know the truth (G225 alētheia; truth, reality; i.e. walking in reality), and the truth will set you
   free. (ESV)
 
-Jesus instructed His disciples to call no man on earth "father". This instruction, therefore, is for the
+Jesus instructed His disciples to call no man on earth their "father". This instruction, therefore, is for the
 Christian. After all, Jesus' father was not Joseph and yet Jesus was able to keep the 5th commandment to honor
 father and mother, and Jesus said Himself that He honors His father, and says that His father is God. And Father
 God said that Jesus is His Son who He is well pleased with:
@@ -4742,7 +4846,7 @@ title belongs to God:
   if I am a master, where is my fear? says the LORD of hosts to you, O priests, who despise my name. But you say,
   How have we despised your name? (ESV)
 
-With regard to Jesus Christ's commandment to call no man on earth "father", the [Mark 4:17] "trouble or
+With regard to Jesus Christ's commandment to call no man on earth "your father", the [Mark 4:17] "trouble or
 persecution on account of the word" might refer to any difficulties as people oppose the fact that one practices
 this commandment in reality. The good soil would not fall away:
 
@@ -4810,8 +4914,8 @@ financially by saying that all your resources are a corban or a gift to God but 
 help your parents as your parents would rather starve to death than steal from God. Then you keep those resources
 for your own benefit.
 
-The title of 'father' belongs to God for the person to keeps Jesus' commandment to call no man on earth father for
-they have one father who is in heaven.
+The title of 'father' when ascribing it to a person as their own father belongs to God for the person who keeps
+Jesus' commandment to call no man on earth their father for they have one father who is in heaven.
 
   Matthew 22:21 - They said, Caesar's. Then he said to them, Therefore render to Caesar the things that are
   Caesar's, and to God the things that are God's. (ESV)
@@ -12146,7 +12250,7 @@ they call on God as Father, then they are legitimate children of God. But God di
 
 I believe that what matters most in this instruction to call no man your father on earth, is the faith. So if it
 was an accident or "slip of the tongue" or "force of habit" that a person accidentally called their "previous
-father" on earth "father", or some other legitimate exception, then I think God deals leaniently. It's very
+father" on earth their "father", or some other legitimate exception, then I think God deals leaniently. It's very
 important for us to call upon God the Father of Jesus Christ as our Father. God sees our hearts:
 
   II Kings 5:17-19 - Then Naaman said, If not, please let there be given to your servant two mules' load of earth,
@@ -12160,7 +12264,7 @@ because I have been so pressured by the people around me including the governmen
 rather than my new birthday, and my previous Dad as being Dad rather than my new Dad who is God the father of my
 Lord Jesus Christ, I believe I can claim by faith in God's word which says that all who have faith in Jesus
 Christ's name have the right to become children of God and because of Jesus Christ's instruction to call no man on
-earth "father" for I have one father who is in heaven:
+earth their "father" for I have one father who is in heaven:
 
   II Kings 5:18 - In this matter may the LORD pardon your servant: when my master goes into the house of Rimmon to
   worship there, leaning on my arm, and I bow myself in the house of Rimmon, when I bow myself in the house of
@@ -14377,7 +14481,7 @@ Journal <2026-05-19 Tue>
 If one's previous 'mother and father' (i.e. From their first birth. An in, the people who gave the "meat suit",
 but not the new spirit) (Psalms 51:5) are born-again believers, then as a born-again person who's father is now
 Father God, the Father of Jesus Christ, then the best way to honour them (one's previous parents) is to not call
-one's previous father "father" because we should be walking by faith obedient to Jesus Christ like Abraham's
+one's previous father their "father" because we should be walking by faith obedient to Jesus Christ like Abraham's
 faith, walking like Jesus did, referring to Father God as father and Heavenly Jerusalem as mother.
 
   I John 5:2 - By this we know that we love the children of God, when we love God and obey his commandments. (ESV)
@@ -14675,6 +14779,140 @@ I know I'm unworthy to call God my dad, but I'm trusting Jesus that it's OK for 
   is mine is yours. It was fitting to celebrate and be glad, for this your brother was dead, and is alive; he was
   lost, and is found. (ESV)
 
+Journal <2026-09-20 Sun 19:19>
+This guy appears very patient and kind-natured and I felt as though I received some correction because he pointed
+out the nuance which is there in the KJV:
+
+youtube.com: No , Jesus does NOT say " call no man father " {@ FrLawrenceFarley }
+
+I commented,
+
+Thanks for pointing out the nuance there in the KJV. Here's my thoughts, and I'm not infallible. As Jesus says,
+"To you it has been given to know the secrets of the kingdom of heaven, but to them it has not been given. For to
+the one who has, more will be given, and he will have an abundance, but from the one who has not, even what he has
+will be taken away", so therefore I am trying to understand the theology behind this rigorously, holding fast to
+what I have attained so far.
+
+Jesus Christ said that those who have faith in Him will do His deeds. And in the New Testament, Jesus only
+referred to God as his father. When a person gets born-again of the spirit, they receive a new spirit from God.
+Adam's father was God. Jesus' father is Father God. Jesus still kept the commandment to honor his mother and
+father. A born-again Christian who has been born of the spirit (received a new spirit) who is going on in faith in
+Jesus Christ has spiritual "fathers" who are in Heaven, but in obedience to Jesus who said call no man on earth
+your father, we should do as Jesus instructs.
+
+The son of man sows the seed, and when a person is born again of the spirit they are baptised into Jesus' death,
+so I would consider Jesus to be not only brother, but also the penultimate spiritual father. But even though I
+consider Jesus to be a spiritual father of mine, I think it makes the most sense to me to only use the word father
+for Father God. Jesus taught to pray, "our father", and so "our father" including Jesus as one of us means this
+prayer, I think is directed at Father God.
+
+Calling someone 'father' as a believer would at the very least be affirming that this person is seated in Christ
+in heavenly places and is one's spiritual father. But do we really know for sure who is our spiritual father?
+(thinking of a new genaeology in Christ rather than in Adam) When Jesus said, "my Father and your father, my God
+and your God", I think Jesus probably wants us to call His father our father. The one born of God seated in
+heavenly places does not sin, loves as commanded and confesses and agrees with the person of Jesus who is the
+Christ the Son of God. So when calling a person 'father', they are saying they are this person. But in the flesh,
+as Romans 7 says, sometimes it is sin which works deeds rather than our inward desire to do good.
+
+If someone claims that Jesus Christ is their brother, then surely they then consider God to be their Father, as
+Jesus Christ's father is God the father of Jesus Christ. But that God is their father is especially true if Jesus
+Christ considers them to be a brother because if Jesus calls a person brother then that person's father is Jesus'
+father:
+
+Romans 8:29 - For those whom he foreknew he also predestined to be conformed to the image of his Son, in order
+that he might be the firstborn among many brothers. (ESV)
+
+Psalms 22:22 - I will tell of your name to my brothers; in the midst of the congregation I will praise you: (ESV)
+
+When Jesus Christ is one's Master, then they follow Jesus. So, for example, out of a love for Jesus, they would
+"call no man on Earth their father" in obedience to Christ's commandments. If a person is walking by the spirit,
+keeping Jesus Christ's commandments, then they are not under the law and will not gratify the desires of the
+flesh:
+
+Galatians 5:17-18 - For the desires of the flesh are against the Spirit, and the desires of the Spirit are against
+the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are
+led by the Spirit, you are not under the law. (ESV)
+
+Hebrews 11:24-25 - By faith Moses, when he was grown up, refused to be called the son of Pharaoh's daughter,
+choosing rather to be mistreated with the people of God than to enjoy the fleeting pleasures of sin. (ESV)
+
+Romans 8:14 - For all who are led by the Spirit of God are sons of God. (ESV)
+
+Galatians 5:16 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. (ESV)
+
+Matthew 8:21-22 - Another of the disciples said to him, Lord, let me first go and bury my father. And Jesus said
+to him, Follow me, and leave the dead to bury their own dead. (ESV)
+
+By this point, Abraham was no longer on Earth when Stephen here spoke this so has not broken Christ's commandment.
+Abraham is not dead in the ground of the earth, but rather he is alive in the Kingdom of God. Stephen has a new
+genaeology which includes the Abraham who is born of God:
+
+Acts 7:2 - And Stephen said: Brothers and fathers, hear me. The God of glory appeared to our father Abraham when
+he was in Mesopotamia, before he lived in Haran, (ESV)
+
+Romans 4:16-17 - That is why it depends on faith, in order that the promise may rest on grace and be guaranteed to
+all his offspring—not only to the adherent of the law but also to the one who shares the faith of Abraham, who is
+the father of us all, as it is written, I have made you the father of many nations—in the presence of the God in
+whom he believed, who gives life to the dead and calls into existence the things that do not exist. (ESV)
+
+Mark 12:24-27 - Jesus said to them, Is this not the reason you are wrong, because you know neither the Scriptures
+nor the power of God? For when they rise from the dead, they neither marry nor are given in marriage, but are like
+angels in heaven. And as for the dead being raised, have you not read in the book of Moses, in the passage about
+the bush, how God spoke to him, saying, I am the God of Abraham, and the God of Isaac, and the God of Jacob? He is
+not God of the dead, but of the living. You are quite wrong. (ESV)
+
+Paul has not here instructed his disciples to call him father. Also, there is the new creation Paul who is born of
+God, born-again by the living and abiding Word of God (I Peter 1:23) who is seated in heavenly places in Christ
+Jesus, Christ Jesus who is firstborn of the dead (Revelation of John 1:4-6). So there is a Paul who is seated in
+heaven who is a "spiritual father" to others. Paul has a new genaeology of people who are in heaven, and which
+includes Abraham and Christ:
+
+I Corinthians 4:15 - For though you have countless guides in Christ, you do not have many fathers. For I became
+your father in Christ Jesus through the gospel. (ESV)
+
+Ephesians 2:4-7 - But God, being rich in mercy, because of the great love with which he loved us, even when we
+were dead in our trespasses, made us alive together with Christ—by grace you have been saved— and raised us up
+with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show
+the immeasurable riches of his grace in kindness toward us in Christ Jesus. (ESV)
+
+This is a matter of sanctification.
+
+If we see others not doing the will of God, then we should in similar fashion to Jesus teach others what to do
+(i.e. what Jesus' instruction is) but not judge them if they do not appear do it after instructing them, but
+rather quote John 12:44-50 to them. Let them know that Jesus' word will judge on the last day but that Jesus has
+come to save and we should imitate His patience. Let them know that you'll still endeavour to keep Jesus'
+commandment. Saying it once is enough. Staying silent is also an option if they insist that Jesus' commandment is
+wrong:
+
+John 12:44-50 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
+And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may
+not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to
+judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word
+that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the Father who
+sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is
+eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+
+"Our Father in Heaven" refers to God who is father of us all, even of Abraham, father to all those who have been
+born of Him. Our Father in Heaven is God. Paul may be a spiritual father to many of us who are born of God, but
+he's not Our Father (the father of all of us) who is in Heaven.
+
+Jesus said, "Call no man on earth your father, for you have one father who is in heaven". One father. And so I
+believe Jesus is speaking of His father and instructing His disciples to call His Father, their Father.
+
+But this doesn't mean a person can't use the title of 'father', as the Apostle Paul used. Following Jesus'
+commandment is about who we say has fathered us, rather than who somebody says they fathered through the gospel.
+But I mean, how would we know who we have fathered through the gospel unless we were told by God. Or also, how do
+we know who exactly fathered us through the gospel?
+
+Spiritual fathers are seated with Christ in heavenly places and are born of God and do not sin. Christ who is in
+heaven is far from sinners, Hebrews says.
+
+Perhaps for a similar reason to why we might not make an oath because we cannot make one hair on our head white or
+black, we should not call any man father here on earth because the person we are talking to might be their flesh
+rather than the one born of God. How to know for sure they are your spiritual father unless they are walking in
+love speaking the same Jesus Christ and not committing sin and God has revealed it? Only God knows their heart for
+sure, and where everyone is positioned in His Kingdom.
+
 God being our only Father
 
 The implanted word is the new person and this person agrees with who Jesus Christ is, and hears and agrees with
@@ -14802,8 +15040,8 @@ I think of Yahweh/Jehovah/Yehovah as a surname belonging to God, rather than bei
 True God is the God of Abraham and of Isaac and of Jacob.
 
 The natural man does not understand the things of the spirit. So out of love for Jesus who has commanded us to
-stop calling any man on earth "father", we do indeed stop calling one's previous father "father" and at the same
-time begin calling God our father, and in doing this it seems to spark offence from anyone who is
+stop calling any man on earth one's "father". we do indeed stop calling one's previous father "father" and at the
+same time begin calling God our father, and in doing this it seems to spark offence from anyone who is
 thinking/walking/talking by the flesh (the natural man) who hears us call God our father while insisting that we
 no longer have a father on earth.
 
@@ -14820,13 +15058,13 @@ We should be speaking the truth to one-another, and practicing in reality for Go
 to do the same, but it's not our duty to police other people's faith (Romans 14:4-6). It's God who we want other
 people to be seeking glory from in their own walk of faith in God who can see their hearts.
 
-It's loving God to call Him Father and to stop calling any man on earth "father". Jesus says whoever keeps His
-commandments is the one who loves Him and He also said that whoever hates Him also hates His Father. So in
-reality, because Jesus has commanded it, it's loving to call no man on earth "father" (to literally put a stop to
-using the title for any man on earth), and this includes "dad", "pa", "pop" or "abba", etc. and the spiritual man
-(the person who agrees with Jesus Christ) will understand this but the natural/carnal man will not like it at all.
-It's loving to stop calling any man on earth "father" or "dad", etc. if affirming that now God who is in heaven is
-your only father, out of faith in Jesus Christ the Son of God.
+It's loving God to call Him Father and to stop calling any man on earth one's "father". Jesus says whoever keeps
+His commandments is the one who loves Him and He also said that whoever hates Him also hates His Father. So in
+reality, because Jesus has commanded it, it's loving to call no man on earth one's "father" (to literally put a
+stop to using the title for any man on earth), and this includes "dad", "pa", "pop" or "abba", etc. and the
+spiritual man (the person who agrees with Jesus Christ) will understand this but the natural/carnal man will not
+like it at all. It's loving to stop calling any man on earth one's "father" or "dad", etc. if affirming that now
+God who is in heaven is your only father, out of faith in Jesus Christ the Son of God.
 
 And when a person is of the true circumcision, circumcised in their heart then in keeping Jesus' commandment to
 stop calling any man on earth their father, in doing so they are not dishonouring their mother and father as their
@@ -14960,9 +15198,10 @@ but especially to those who are of the household of faith. This is not to say th
 sister in Christ and at the same time someone who is a brother of the flesh, but since the person born-again of
 the spirit has a new identity that is in agreement with the truth which is the spirit then the title "brother" or
 "sister" on their own are reserved for one's family in Christ and not for those outside. Because it's Christ's
-teaching, it's essential to abide in the teaching that the title of "father" is for God and God alone, God who is
-in heaven. Because it's Christ's teaching, it's essential to put a stop to using the title of "father" to any man
-who is on the earth:
+teaching, it's essential to abide in the teaching that the title of "one's father" is for God and God alone, God
+who is in heaven. Because it's Christ's teaching, it's essential to put a stop to using the title of "one's
+father" (as in, their actual father) to any man who is on the earth. To call somebody on earth a father is fine,
+but to call them one's own father is against the commandment:
 
   I Peter 2:15-25 - For this is the will of God, that by doing good you should put to silence the ignorance of
   foolish people. Live as people who are free, not using your freedom as a cover-up for evil, but living as
@@ -16469,7 +16708,7 @@ Walking "by the flesh" is a different concept to walking "in the flesh". Walking
 thing where a person is obeys the old nature, i.e. not believing God's words nor believing in God. Walking a
 person can walk "by the spirit" "in the flesh", but a person cannot walk "by the spirit" and "by the flesh".
 
-Jesus instructed His disciples to call no man on earth "father". This instruction, therefore, is for the
+Jesus instructed His disciples to call no man on earth their "father". This instruction, therefore, is for the
 Christian:
 
   Matthew 23:1 - Then Jesus said to the crowds and to his disciples, (ESV)
@@ -24952,8 +25191,8 @@ agape-loving God and at the same time agape-loving our neighbour as ourself.
   Deuteronomy 30:6 - And the LORD your God will circumcise your heart and the heart of your offspring, so that you
   will love the LORD your God with all your heart and with all your soul, that you may live. (ESV)
 
-It's loving God to call Him Father and to stop calling any man on earth "father" (I John 5:1-6) out of a loving
-trusting obedience to Jesus Christ.
+It's loving God to call Him Father and to stop calling any man on earth one's "father".(I John 5:1-6) out of a
+loving trusting obedience to Jesus Christ.
 
 The title of "father" belongs to God and to God alone and it's actually loving Jesus Christ to do as He says which
 is to stop using the title of 'father' for any man on earth. There is nothing wrong with doing so despite what
@@ -24971,7 +25210,7 @@ on earth), and this includes "dad", "pa", "pop" or "abba", etc.
 
 Since Jesus Christ has commanded us to do it, if we are doing so in loving faith in Jesus Christ, then it's
 actually done in love as well. So if done in a love for the truth, then it's loving to stop calling any man on
-earth "father" or "dad", etc. affirming that now God who is in heaven is your only father.
+earth one's "father" or "dad", etc. affirming that now God who is in heaven is your only father.
 
 And when a person is of the true circumcision, circumcised in their heart, then they keep the commandment to honor
 their mother and father when they honor God who is in heaven and Jerulasem which is in heaven. A person who is
@@ -138535,7 +138774,7 @@ God sees the hearts of the people who got "excommunicated". God-willing, He is t
 
   Psalms 27:10 - When my father and my mother Have forsaken me, then doth Jehovah gather me. (YLT)
 
-Jesus instructed His disciples to call no man on earth "father". This instruction, therefore, is for the
+Jesus instructed His disciples to call no man on earth their "father". This instruction, therefore, is for the
 Christian:
 
   Matthew 23:1 - Then Jesus said to the crowds and to his disciples, (ESV)
@@ -139434,11 +139673,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-19 Sat 22:41
+Date: 2026-09-20 Sun 19:51
 
 Author: Shane Mulligan
 
-Created: 2026-09-19 Sat 22:46
+Created: 2026-09-20 Sun 19:58
 
 Validate
 
