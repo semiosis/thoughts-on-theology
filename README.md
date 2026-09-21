@@ -213,6 +213,30 @@ So we should "do good". Putting on the new self, and be renewed in mind, and tru
 
 > **[John 17:26](https://www.biblegateway.com/passage/?search=John%2017%3A26&version=ESV)** - I made known to them your name, and I will continue to make it known, that the love with which you have loved me may be in them, and I in them. (ESV)
 
+God still uses our shortcomings and when our works appear to have not worked out from the natural. We should do good from the love of God and leave the justifying to God. And persevere with being wise for what is good and innocent as to evil, to conquer:
+
+> **[Romans 8:28](https://www.biblegateway.com/passage/?search=Romans%208%3A28&version=ESV)** - And we know that for those who love God all things work together for good, for those who are called according to his purpose. (ESV)
+
+> **[II Corinthians 12:9](https://www.biblegateway.com/passage/?search=2%20Corinthians%2012%3A9&version=ESV)** - But he said to me, My grace is sufficient for you, for my power is made perfect in weakness. Therefore I will boast all the more gladly of my weaknesses, so that the power of Christ may rest upon me. (ESV)
+
+> **[II Corinthians 5:9-12](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A9-12&version=ESV)** - So whether we are at home or away, we make it our aim to please him. For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But what we are is known to God, and I hope it is known also to your conscience. We are not commending ourselves to you again but giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance and not about what is in the heart. (ESV)
+
+> **[Matthew 25:31-40](https://www.biblegateway.com/passage/?search=Matthew%2025%3A31-40&version=ESV)** - When the Son of Man comes in his glory, and all the angels with him, then he will sit on his glorious throne. Before him will be gathered all the nations, and he will separate people one from another as a shepherd separates the sheep from the goats. And he will place the sheep on his right, but the goats on the left. Then the King will say to those on his right, Come, you who are blessed by my Father, inherit the kingdom prepared for you from the foundation of the world. For I was hungry and you gave me food, I was thirsty and you gave me drink, I was a stranger and you welcomed me, <ins>I was naked and you clothed me, I was sick and you visited me, I was in prison and you came to me.</ins> Then the righteous will answer him, saying, Lord, when did we see you hungry and feed you, or thirsty and give you drink? And when did we see you a stranger and welcome you, or naked and clothe you? And when did we see you sick or in prison and visit you? And the King will answer them, Truly, I say to you, <ins>as you did it to one of the least of these my brothers, you did it to me.</ins>
+
+> **[Romans 16:19-20](https://www.biblegateway.com/passage/?search=Romans%2016%3A19-20&version=ESV)** - For your obedience is known to all, so that I rejoice over you, but I want you to be wise as to what is good and innocent as to what is evil. The God of peace will soon crush Satan under your feet. The grace of our Lord Jesus Christ be with you. (ESV)
+
+> **[Romans 12:19-21](https://www.biblegateway.com/passage/?search=Romans%2012%3A19-21&version=ESV)** - Beloved, never avenge yourselves, but leave it to the wrath of God, for it is written, Vengeance is mine, I will repay, says the Lord. To the contrary, if your enemy is hungry, feed him; if he is thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be overcome by evil, but overcome evil with good. (ESV)
+
+By faith, in obedience to Jesus Christ we are to overcome evil with good loving as Father God loves:
+
+> **[Hebrews 12:4-8](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A4-8&version=ESV)** - In your struggle against sin you have not yet resisted to the point of shedding your blood. And have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son whom he receives. It is for discipline that you have to endure. God is treating you as sons. For what son is there whom his father does not discipline? If you are left without discipline, in which all have participated, then you are illegitimate children and not sons. (ESV)
+
+> **[Revelation of John 21:7](https://www.biblegateway.com/passage/?search=Revelation%2021%3A7&version=ESV)** - The one who conquers will have this heritage, and I will be his God and he will be my son. (ESV)
+
+> **[Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)** - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+> **[John 17:26](https://www.biblegateway.com/passage/?search=John%2017%3A26&version=ESV)** - I made known to them your name, and I will continue to make it known, that **the love with which you have loved me may be in them**, and I in them. (ESV)
+
 All things being new from my perspective, I believe God's will for me is to go on bearing with my family in Christ in love and forgiveness (**[Colossians 3:12-13](https://www.biblegateway.com/passage/?search=Colossians%203%3A12-13&version=ESV)**) towards them. As for my neighbour generally, I forgive any offences against me personally. I'll endeavour in the imitation of Jesus to preach the gospel of God, and not be quick to judge ([Polycarp 6:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html)), perhaps quote **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** to them and let them know that Jesus' word will judge on the last day but that Jesus has come to save and we should imitate His patience (**[II Peter 3:15](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A15&version=ESV)**) with others. Whoever is having faith in Jesus Christ is not judged, but whoever rejects Him and His words has a judge (**[John 12:47-48](https://www.biblegateway.com/passage/?search=John%2012%3A47-48&version=ESV)**). Whoever is disbelieving in Jesus Christ (i.e. rejects the truth of, hates the truth of God revealed in Jesus Christ) is judged already (**[John 3:14-21](https://www.biblegateway.com/passage/?search=John%203%3A14-21&version=ESV)**). Even if I myself forgive others for any perceived wrong against me, if they remain against Jesus then that remains a problem for them. I can only bear fruit for God while done in Christ (**[John 15:4](https://www.biblegateway.com/passage/?search=John%2015%3A4&version=ESV)**) abiding in His teachings. There's no other name under heaven among men by which we must be saved other than the name of Jesus Christ (**[Acts 4:8-12](https://www.biblegateway.com/passage/?search=Acts%204%3A8-12&version=ESV)**):
 
 > **[Luke 13:3](https://www.biblegateway.com/passage/?search=Luke%2013%3A3&version=ESV)** - No, I tell you; but unless you repent ([3340. metanoeó](https://biblehub.com/greek/3340.htm)), you will all likewise perish. (ESV)
@@ -6175,6 +6199,40 @@ This song also I think accurately reflects the truth of Scripture which shows th
         6  To hear the diesels hummin'
         7  Don't need no ticket
         8  You just thank the Lord
+
+-   **[youtube.com:  People Get Ready , Jesus Is Comin '](https://www.youtube.com/watch?v=ijs1fr2pl3g):** [Verse 1]
+    Lord I'm ready now
+    I'm waiting for Your triumphant return
+    You're coming so soon
+    This world has nothing for me
+    I find my peace and joy solely in You
+    Only in You
+    I want the world to see that
+    You're alive and living well in me
+    Let me be a part of the harvest
+    For the days are few
+    He's coming soon
+    
+    [Chorus]
+    People get ready Jesus is comin'
+    Soon we'll be going home
+    People get ready Jesus is comin'
+    To take from the world His own
+    
+    [Verse 2]
+    There will be a day
+    When we will be divided right and left
+    For those who know Him
+    And those who do not know
+    Those who know Him well
+    Will meet Him in the air
+    Hallelujah
+    God is with us
+    Those who do not know
+    They will hear "Depart, I knew you not"
+    For my friends you see
+    There will be a day when we'll be counted
+    So know Him well, know Him well
 
 I believe we say thank you to God in advance with hope of salvation. But it's not without seeking commendation from God. If we pat ourselves on the back and commend ourselves for having done the will of God and think we "did it already" and then stop actually doing it, then that's not abiding in Jesus Christ anymore. Because Jesus' family continues doing the will of God. Everything we do should be done in faith. In Christ, no-one hates one-another:
 
@@ -18536,7 +18594,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9cad6a2) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1299da2) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24301,7 +24359,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgf83158b).
+I didn't know but it turned out to be the last day of my [sentence](#orgf8df3f2).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -48809,7 +48867,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orge853d38)
+See: [33.4.1](#org37ffa44)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -70319,7 +70377,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orge853d38)
+See: [33.4.1](#org37ffa44)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -72973,7 +73031,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgaece932) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org27e977f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -81203,7 +81261,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgaece932) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org27e977f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82541,7 +82599,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgda8512d)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orga9123df)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
