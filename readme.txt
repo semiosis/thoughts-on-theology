@@ -2603,7 +2603,32 @@ taking captive every thought for obedience to Christ Jesus, until one's obedienc
 
 The one born of God who is seated with Christ in heavenly places (Ephesians 2:6), far from sinners (Hebrews 7:26),
 simultaneously agrees with and speaks the truth about Jesus Christ (I John 4:15, I John 4:3), and they love as
-commanded and they do not sin (I John 5:18). The one born of God is not a sinner by nature (I Peter 4:12-19).
+commanded and they do not sin (I John 5:18). The one born of God is not a sinner by nature (I Peter 4:12-19,
+Ephesians 2:1-3, Ephesians 2:4-9).
+
+  Ephesians 2:1-3 - And you were dead in the trespasses and sins in which you once walked, following the course of
+  this world, following the prince of the power of the air, the spirit that is now at work in the sons of
+  disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body
+  and the mind, and were by nature children of wrath, like the rest of mankind. (ESV)
+
+  Ephesians 2:4-9 - But God, being rich in mercy, because of the great love with which he loved us, even when we
+  were dead in our trespasses, made us alive together with Christ—by grace you have been saved— and raised us up
+  with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show
+  the immeasurable riches of his grace in kindness toward us in Christ Jesus. For by grace you have been saved
+  through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may
+  boast. (ESV)
+
+  Hebrews 7:26 - For it was indeed fitting that we should have such a high priest, holy, innocent, unstained,
+  separated from sinners, and exalted above the heavens. (ESV)
+
+  1Jn 3:4,6,8,9 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. No one
+  who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Whoever makes
+  a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of
+  God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's
+  seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
+
+  I John 5:18 - We know that everyone who has been born of God does not keep on sinning, but he who was born of
+  God protects him, and the evil one does not touch him. (ESV)
 
 While in the flesh (Romans 7:16-20) there is a struggle with the flesh, but we still do need to be/become the one
 who is born of God, and so we should certainly strive to do this, abstaining from sin, overcomig evil with good,
@@ -4128,6 +4153,21 @@ People perish for lack of knowledge, knowledge that necessitates love for the tr
   loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother
   whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever loves God
   must also love his brother. (ESV)
+
+Jesus loved us first. But we must go on in love for our family in Christ to abide (remain) in Christ:
+
+  John 15:9-14 - As the Father has loved me, so have I loved you. Abide in my love. If you keep my commandments,
+  you will abide in my love, just as I have kept my Father's commandments and abide in his love. These things I
+  have spoken to you, that my joy may be in you, and that your joy may be full. This is my commandment, that you
+  love one another as I have loved you. Greater love has no one than this, that someone lays down his life for his
+  friends. You are my friends if you do what I command you. (ESV)
+
+  I John 4:19-21 - We love because he first loved us. If anyone says, I love God, and hates his brother, he is a
+  liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this
+  commandment we have from him: whoever loves God must also love his brother. (ESV)
+
+  I John 3:14 - We know that we have passed out of death into life, because we love the brothers. Whoever does not
+  love abides in death. (ESV)
 
 Where the Bible says "people loved the darkness rather than the light because their deeds were evil", it's saying
 that these people who have evil deeds (for example, Cain) have done them from the love of evil. But people who do
@@ -139747,11 +139787,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-21 Mon 11:12
+Date: 2026-09-21 Mon 17:43
 
 Author: Shane Mulligan
 
-Created: 2026-09-21 Mon 11:20
+Created: 2026-09-21 Mon 17:48
 
 Validate
 
