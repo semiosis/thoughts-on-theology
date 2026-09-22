@@ -7300,7 +7300,7 @@ The way these Scriptures talk about "two in one bed, one will be taken and the o
     
     > **[Hebrews 12:9](https://www.biblegateway.com/passage/?search=Hebrews%2012%3A9&version=ESV)** - Besides this, we have had earthly fathers who disciplined us and we respected them. Shall we not much more be subject to the Father of spirits and live? (ESV)
     
-    It's also probably not really improper to use the word "mother" or "mum" for a woman in Christ who is born of God and doing the will of God and one's spiritual ancestor in Christ (e.g. Mary mother of Jesus)Z
+    It's also probably not really improper to use the word "mother" or "mum" for a woman in Christ who is born of God and doing the will of God and one's spiritual ancestor in Christ (e.g. Mary mother of Jesus):
     
     > **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
     
@@ -7665,6 +7665,24 @@ The way these Scriptures talk about "two in one bed, one will be taken and the o
     > **[John 19:26](https://www.biblegateway.com/passage/?search=John%2019%3A26&version=ESV)** - When Jesus saw his mother and the disciple whom he loved standing nearby, he said to his mother, Woman, behold, your son! (ESV)
     
     > **[Galatians 4:24-26](https://www.biblegateway.com/passage/?search=Galatians%204%3A24-26&version=ESV)** - Now this may be interpreted allegorically: these women are two covenants. One is from Mount Sinai, bearing children for slavery; she is Hagar. Now Hagar is Mount Sinai in Arabia; she corresponds to the present Jerusalem, for she is in slavery with her children. But the Jerusalem above is free, and she is our mother. (ESV)
+    
+    Thinking logically about this (though I am not infallible), on the topic of Mary the mother of Jesus, I think that any generational sin that might have come through Jesus' genaeology from Adam's side, Jesus would have "taken on" when he took on flesh. All those who were born of promise from Abraham to Mary, Jesus would have "taken on their sin":
+    
+    > **[Matthew 1:1](https://www.biblegateway.com/passage/?search=Matthew%201%3A1&version=ESV)** - The book of the genealogy of Jesus Christ, the son of David, the son of Abraham. (ESV)
+    
+    > **[Galatians 4:28-29](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-29&version=ESV)** - Now you, brothers, like Isaac, are children of promise. But just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
+    
+    Apart from Jesus, we cannot do anything, nor have any inheritance in Christ. A person must be "in Christ" to partake of the promise to Abraham and of Christ:
+    
+    > **[Philippians 3:8-11](https://www.biblegateway.com/passage/?search=Philippians%203%3A8-11&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. (ESV)
+    
+    > **[Galatians 4:31](https://www.biblegateway.com/passage/?search=Galatians%204%3A31&version=ESV)** - So, brothers, we are not children of the slave but of the free woman. (ESV)
+    
+    > **[John 15:5](https://www.biblegateway.com/passage/?search=John%2015%3A5&version=ESV)** - I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. (ESV)
+    
+    > **[Galatians 3:16](https://www.biblegateway.com/passage/?search=Galatians%203%3A16&version=ESV)** - Now the promises were made to Abraham and to his offspring. It does not say, And to offsprings, referring to many, but referring to one, And to your offspring, who is Christ. (ESV)
+    
+    > **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? (ESV)
     
     The spirit is the truth. The spirit is reality. For the person who lives by the spirit, walking by the spirit is walking in the truth. We should be learning from God and agreeing with God, coming to Jesus, trusting and obeying Jesus, coming to know the truth:
     
@@ -18612,7 +18630,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1ee2804) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org26288f4) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24377,7 +24395,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgf299d7d).
+I didn't know but it turned out to be the last day of my [sentence](#org60dae5d).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -48885,7 +48903,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org563e484)
+See: [33.4.1](#orgb0f7d22)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -70395,7 +70413,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org563e484)
+See: [33.4.1](#orgb0f7d22)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -73049,7 +73067,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org8f2e3d8) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orga48ae5a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -77938,11 +77956,118 @@ This should never replace Jesus, but glorifies Jesus because it's being a discip
 
 If someone's lord is money and not Jesus and then they try to do good works such as setting up businesses, I feel like this glorifies money, not Jesus.
 
-Here, Zacchaeus, renounces money and makes Jesus his Lord. This must happen first.
+The glory we seek must come from Father God rather from anyone else:
+
+-   **[John 5:41](https://www.biblegateway.com/passage/?search=John%205%3A41&version=ESV) (Interlinear):** Glory [(G1391 Doxan)](G1391)
+    from [(G3844 para)](G3844)
+    men [(G444 anthrōpōn)](G444)
+    not [(G3756 ou)](G3756)
+    I take [(G2983 lambanō)](G2983)
+
+> **[John 5:44](https://www.biblegateway.com/passage/?search=John%205%3A44&version=ESV)** - How can you believe, when you receive glory from one another and do not seek the glory that comes from the only God? (ESV)
+
+-   **[I Thessalonians 2:6](https://www.biblegateway.com/passage/?search=1%20Thessalonians%202%3A6&version=ESV) (Interlinear):** nor
+    seeking
+    from
+    men [(G444 anthrōpōn)](G444)
+    glory
+    nor
+    from
+    you [(G4771 hymōn)](G4771)
+    nor
+    from
+    others [(G243 allōn)](G243)
+    [though] having authority
+    in [it]
+    burden
+    to be
+    as
+    Christ's
+    apostles
+
+Glory which comes from Father God to Jesus' disciples comes also through Jesus Christ the Son of God from Father God, and this glory
+glorifies Jesus Christ. Jesus Christ glorifies Father God:
+
+> **[John 17:1](https://www.biblegateway.com/passage/?search=John%2017%3A1&version=ESV),22** - When Jesus had spoken these words, he lifted up his eyes to heaven, and said, Father, the hour has come; glorify your Son that the Son may glorify you, The glory that you have given me I have given to them, that they may be one even as we are one, (ESV)
+
+Thinking logically about this (though I am not infallible), on the topic of Mary the mother of Jesus, I think that any generational sin that might have come through Jesus' genaeology from Adam's side, Jesus would have "taken on" when he took on flesh. All those who were born of promise from Abraham to Mary, Jesus would have "taken on their sin":
+
+> **[Matthew 1:1](https://www.biblegateway.com/passage/?search=Matthew%201%3A1&version=ESV)** - The book of the genealogy of Jesus Christ, the son of David, the son of Abraham. (ESV)
+
+> **[Galatians 4:28-29](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-29&version=ESV)** - Now you, brothers, like Isaac, are children of promise. But just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
+
+Apart from Jesus, we cannot do anything, nor have any inheritance in Christ. A person must be "in Christ" to partake of the promise to Abraham and of Christ:
+
+> **[Philippians 3:8-11](https://www.biblegateway.com/passage/?search=Philippians%203%3A8-11&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. (ESV)
+
+> **[Galatians 4:31](https://www.biblegateway.com/passage/?search=Galatians%204%3A31&version=ESV)** - So, brothers, we are not children of the slave but of the free woman. (ESV)
+
+> **[John 15:5](https://www.biblegateway.com/passage/?search=John%2015%3A5&version=ESV)** - I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. (ESV)
+
+> **[Galatians 3:16](https://www.biblegateway.com/passage/?search=Galatians%203%3A16&version=ESV)** - Now the promises were made to Abraham and to his offspring. It does not say, And to offsprings, referring to many, but referring to one, And to your offspring, who is Christ. (ESV)
+
+> **[James 2:5](https://www.biblegateway.com/passage/?search=James%202%3A5&version=ESV)** - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith and heirs of the kingdom, which he has promised to those who love him? (ESV)
+
+This glory from Father God glorifies Jesus Christ:
+
+> **[II Thessalonians 2:14](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A14&version=ESV)** - To this he called you through our gospel, so that you may obtain the glory of our Lord Jesus Christ. (ESV)
+
+> **[John 17:10](https://www.biblegateway.com/passage/?search=John%2017%3A10&version=ESV)** - All mine are yours, and yours are mine, and I am glorified in them. (ESV)
+
+When others see our good works and give glory to our Father who is in heaven, we are not giving Father God that glory,
+but Father God is glorifying Himself through those people:
+
+> **[Matthew 5:16](https://www.biblegateway.com/passage/?search=Matthew%205%3A16&version=ESV)** - In the same way, let your light shine before others, so that they may see your good works and give glory to your Father who is in heaven. (ESV)
+
+Father God glorifies Jesus:
+
+> **[John 8:54](https://www.biblegateway.com/passage/?search=John%208%3A54&version=ESV)** - Jesus answered, If I glorify myself, my glory is nothing. It is my Father who glorifies me, of whom you say, He is our God. (ESV)
+
+Father God glorifies those who do good:
+
+> **[Romans 2:10](https://www.biblegateway.com/passage/?search=Romans%202%3A10&version=ESV)** - but glory and honor and peace for everyone who does good, the Jew first and also the Greek. (ESV)
+
+> **[Romans 8:21](https://www.biblegateway.com/passage/?search=Romans%208%3A21&version=ESV)** - that the creation itself will be set free from its bondage to decay and obtain the freedom of the glory of the children of God. (ESV)
+
+Father God glorifies Jesus Christ through Jesus' disciples:
+
+> **[Romans 15:7](https://www.biblegateway.com/passage/?search=Romans%2015%3A7&version=ESV)** - Therefore welcome one another as Christ has welcomed you, for the glory of God. (ESV)
+
+> **[II Corinthians 4:17](https://www.biblegateway.com/passage/?search=2%20Corinthians%204%3A17&version=ESV)** - For this slight momentary affliction is preparing for us an eternal weight of glory beyond all comparison, (ESV)
+
+> **[II Corinthians 8:23](https://www.biblegateway.com/passage/?search=2%20Corinthians%208%3A23&version=ESV)** - As for Titus, he is my partner and fellow worker for your benefit. And as for our brothers, they are messengers of the churches, the glory of Christ. (ESV)
+
+> **[John 17:10](https://www.biblegateway.com/passage/?search=John%2017%3A10&version=ESV)** - All mine are yours, and yours are mine, and I am glorified in them. (ESV)
+
+> **[Ephesians 3:16](https://www.biblegateway.com/passage/?search=Ephesians%203%3A16&version=ESV)** - that according to the riches of his glory he may grant you to be strengthened with power through his Spirit in your inner being, (ESV)
+
+And Father God glorified Jesus' disciples in the people who they led to Jesus Christ:
+
+> **[I Thessalonians 2:19-20](https://www.biblegateway.com/passage/?search=1%20Thessalonians%202%3A19-20&version=ESV)** - For what is our hope or joy or crown of boasting before our Lord Jesus at his coming? Is it not you? For you are our glory and joy. (ESV)
+
+We wish for Father God to glorify Himself in Jesus Christ:
+
+> **[Romans 16:27](https://www.biblegateway.com/passage/?search=Romans%2016%3A27&version=ESV)** - to the only wise God be glory forevermore through Jesus Christ! Amen. (ESV)
+
+> **[Ephesians 3:21](https://www.biblegateway.com/passage/?search=Ephesians%203%3A21&version=ESV)** - to him be glory in the church and in Christ Jesus throughout all generations, forever and ever. Amen. (ESV)
+
+Father God will glorify Himself through people as will one way or another confess that Jesus Christ is Lord::
+
+> **[Philippians 2:11](https://www.biblegateway.com/passage/?search=Philippians%202%3A11&version=ESV)** - and every tongue confess that Jesus Christ is Lord, to the glory of God the Father. (ESV)
+
+But to be saved a person needs a real faith which loves the truth in the heart. That type of faith a demon does not have:
+
+> **[Mark 5:7](https://www.biblegateway.com/passage/?search=Mark%205%3A7&version=ESV)** - And crying out with a loud voice, he said, What have you to do with me, Jesus, Son of the Most High God? I adjure you by God, do not torment me. (ESV)
+
+> **[II Thessalonians 2:9-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-12&version=ESV)** - The coming of the lawless one is by the activity of Satan with all power and false signs and wonders, and with all wicked deception for those who are perishing, because they refused to love the truth and so be saved. Therefore God sends them a strong delusion, so that they may believe what is false, in order that all may be condemned who did not believe the truth but had pleasure in unrighteousness. (ESV)
+
+> **[James 2:19](https://www.biblegateway.com/passage/?search=James%202%3A19&version=ESV)** - You believe that God is one; you do well. Even the demons believe—and shudder! (ESV)
+
+Here, Zacchaeus, renounces money and "makes Jesus his Lord." This must happen first:
 
 > **[Luke 19:8](https://www.biblegateway.com/passage/?search=Luke%2019%3A8&version=ESV)** - And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor. And if I have defrauded anyone of anything, I restore it fourfold. (ESV)
 
-Abram did this too. It's a necessary act of faith.
+Abram did this too. It's a necessary act of faith:
 
 > **[Genesis 14:20-24](https://www.biblegateway.com/passage/?search=Genesis%2014%3A20-24&version=ESV)** - and blessed be God Most High, who has delivered your enemies into your hand! And Abram gave him a tenth of everything. And the king of Sodom said to Abram, Give me the persons, but take the goods for yourself. But Abram said to the king of Sodom, I have lifted my hand to the Lord, God Most High, Possessor of heaven and earth, that I would not take a thread or a sandal strap or anything that is yours, lest you should say, I have made Abram rich. I will take nothing but what the young men have eaten, and the share of the men who went with me. Let Aner, Eshcol, and Mamre take their share.
 
@@ -81279,7 +81404,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org8f2e3d8) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orga48ae5a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82617,7 +82742,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgb8a495a)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6863f7c)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
