@@ -7694,18 +7694,18 @@ The way these Scriptures talk about "two in one bed, one will be taken and the o
     
     > **[Psalms 51:5](https://www.biblegateway.com/passage/?search=Psalms%2051%3A5&version=ESV)** - Behold, I was brought forth in iniquity, and in sin did my mother conceive me. (ESV)
     
-    > **[II Corinthians 5:21-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A21-6&version=ESV):1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
+    > **[II Corinthians 5:21-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A21-6&version=ESV):1** - **For our sake he made him to be sin who knew no sin,** so that in him we might become the righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain. (ESV)
     
     Jesus took a lot of persecution by the hands of unrighteous people, right up until He went to that cross. But He did that as a sinless person, not as a person who had any sin:
     
     > **[Isaiah 53:3-7](https://www.biblegateway.com/passage/?search=Isaiah%2053%3A3-7&version=ESV)** - He is despised and rejected of men; a man of sorrows, and acquainted with grief: and we hid as it were our faces from him; he was despised, and we esteemed him not. Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted. But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed. All we like sheep have gone astray; we have turned every one to his own way; and the LORD hath laid on him the iniquity of us all. He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth. (KJV)
     
     Another argument to be made is that it was Mary who was "born of God" rather than "sin in Mary's flesh" (**[Romans 7:17-23](https://www.biblegateway.com/passage/?search=Romans%207%3A17-23&version=ESV)**) in whom Holy Spirit had conceived Jesus.
-    The May who is "born of God from the word of God" together with Holy Spirit conceieved Jesus (Let's call that Theory B, my present favourite theory).
+    The Mary who is "born of God from the word of God" together with Holy Spirit conceieved Jesus (Let's call that Theory B, my present favourite theory).
     
     So for Theory A, all those who were born according to the spirit (**[Galatians 4:28-29](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-29&version=ESV)**) from Abraham to Mary, Jesus would have "taken on their sin" when taking on their humanity, because I am of the pursuasion that Mary had flesh with indwelling sin in it, and that Jesus inherited flesh nature from Mary when the Word of God became flesh when Holy Spirit conceived Jesus.
     
-    I'm not strongly convinced that sin is inherited from only the father because of **[Psalms 51:5](https://www.biblegateway.com/passage/?search=Psalms%2051%3A5&version=ESV). That the Word \*became** flesh (**[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)**) indicates that Jesus' flesh was not ordinary flesh, but rather His flesh originated as the Word of God, and was conceived by Mary and by God's Holy Spirit. Now putting that together, I do think that then there is a good argument to be made that the Mary who conceived was the Mary who was "born of God", because the one "born of God" originated as the seed of the word of God. And so there would be the "word of God" (**[Matthew 13:37-42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-42&version=ESV)**) in Mary "good soil" (**[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)**) becoming the Mary who is "born of God", and this Mary being a "child of the Kingdom" who is "born of God" and Holy Spirit together conceiving Jesus. So **Theory B** would be that the Word of God "become flesh" because Mary was a believer and was born of God, and Holy Spirit conceived with this Mary who was born of God.
+    I'm not strongly convinced that sin is inherited from only the father because of **[Psalms 51:5](https://www.biblegateway.com/passage/?search=Psalms%2051%3A5&version=ESV)**. That the Word **became** flesh (**[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)**) indicates that Jesus' flesh was not ordinary flesh, but rather His flesh originated as the Word of God, and was conceived by Mary and by God's Holy Spirit. Now putting that together, I do think that then there is a good argument to be made that the Mary who conceived was the Mary who was "born of God", because the one "born of God" originated as the seed of the word of God. And so there would be the "word of God" (**[Matthew 13:37-42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-42&version=ESV)**) in Mary "good soil" (**[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)**) becoming the Mary who is "born of God", and this Mary being a "child of the Kingdom" who is "born of God" and Holy Spirit together conceiving Jesus. So **Theory B** would be that the Word of God "become flesh" because Mary was a believer and was born of God, and Holy Spirit conceived with this Mary who was born of God.
     
     > **[Luke 1:34-35](https://www.biblegateway.com/passage/?search=Luke%201%3A34-35&version=ESV)** - And Mary said to the angel, How will this be, since I am a virgin? And the angel answered her, The Holy Spirit will come upon you, and the power of the Most High will overshadow you; therefore the child to be born will be called holy—the Son of God. (ESV)
     
@@ -7749,7 +7749,7 @@ The way these Scriptures talk about "two in one bed, one will be taken and the o
     
     > **[Hebrews 9:13-14](https://www.biblegateway.com/passage/?search=Hebrews%209%3A13-14&version=ESV)** - For if the sprinkling of defiled persons with the blood of goats and bulls and with the ashes of a heifer sanctifies for the purification of the flesh, how much more will the blood of Christ, who through the eternal Spirit offered himself without blemish to God, purify our conscience from dead works to serve the living God. (ESV)
     
-    I recalled Sproul's [sermon on the Holiness of Godo](https://www.youtube.com/watch?v=K96e1tK7eN4) and did a little search for Bible verse which might relate to when something becomes "holy" by "touch" ([Leviticus 6:27](https://www.biblegateway.com/passage/?search=Leviticus%206%3A27&version=ESV), [Exodus 30:29](https://www.biblegateway.com/passage/?search=Exodus%2030%3A29&version=ESV), [Isaiah 6:5-7](https://www.biblegateway.com/passage/?search=Isaiah%206%3A5-7&version=ESV)).
+    I recalled Sproul's [sermon on the Holiness of God](https://www.youtube.com/watch?v=K96e1tK7eN4) and did a little search for Bible verse which might relate to when something becomes "holy" by "touch" ([Leviticus 6:27](https://www.biblegateway.com/passage/?search=Leviticus%206%3A27&version=ESV), [Exodus 30:29](https://www.biblegateway.com/passage/?search=Exodus%2030%3A29&version=ESV), [Isaiah 6:5-7](https://www.biblegateway.com/passage/?search=Isaiah%206%3A5-7&version=ESV)).
     
     -   **[youtube.com:  The Meaning of Holiness : The Holiness of God with R . C . Sproul {@ ligonier }](https://www.youtube.com/watch?v=K96e1tK7eN4):** Why is it that we are drawn to take something that
         is common and make it extraordinary
@@ -18749,7 +18749,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1ff7144) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org19a553e) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24514,7 +24514,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org13afe47).
+I didn't know but it turned out to be the last day of my [sentence](#org9c6d407).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -49022,7 +49022,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org3831656)
+See: [33.4.1](#org7c4d5e4)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -70532,7 +70532,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org3831656)
+See: [33.4.1](#org7c4d5e4)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -73186,7 +73186,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgad7eaf3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org990e33b) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -81523,7 +81523,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgad7eaf3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org990e33b) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82861,7 +82861,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org353b3e5)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org79248fa)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

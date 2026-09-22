@@ -15308,7 +15308,7 @@ did that as a sinless person, not as a person who had any sin:
   (KJV)
 
 Another argument to be made is that it was Mary who was "born of God" rather than "sin in Mary's flesh" (Romans
-7:17-23) in whom Holy Spirit had conceived Jesus. The May who is "born of God from the word of God" together with
+7:17-23) in whom Holy Spirit had conceived Jesus. The Mary who is "born of God from the word of God" together with
 Holy Spirit conceieved Jesus (Let's call that Theory B, my present favourite theory).
 
 So for Theory A, all those who were born according to the spirit (Galatians 4:28-29) from Abraham to Mary, Jesus
@@ -15316,11 +15316,11 @@ would have "taken on their sin" when taking on their humanity, because I am of t
 with indwelling sin in it, and that Jesus inherited flesh nature from Mary when the Word of God became flesh when
 Holy Spirit conceived Jesus.
 
-I'm not strongly convinced that sin is inherited from only the father because of Psalms 51:5. That the Word
-*became flesh (John 1:14) indicates that Jesus' flesh was not ordinary flesh, but rather His flesh originated as
-the Word of God, and was conceived by Mary and by God's Holy Spirit. Now putting that together, I do think that
-then there is a good argument to be made that the Mary who conceived was the Mary who was "born of God", because
-the one "born of God" originated as the seed of the word of God. And so there would be the "word of God" (Matthew
+I'm not strongly convinced that sin is inherited from only the father because of Psalms 51:5. That the Word became
+flesh (John 1:14) indicates that Jesus' flesh was not ordinary flesh, but rather His flesh originated as the Word
+of God, and was conceived by Mary and by God's Holy Spirit. Now putting that together, I do think that then there
+is a good argument to be made that the Mary who conceived was the Mary who was "born of God", because the one
+"born of God" originated as the seed of the word of God. And so there would be the "word of God" (Matthew
 13:37-42) in Mary "good soil" (Luke 8:15) becoming the Mary who is "born of God", and this Mary being a "child of
 the Kingdom" who is "born of God" and Holy Spirit together conceiving Jesus. So Theory B would be that the Word of
 God "become flesh" because Mary was a believer and was born of God, and Holy Spirit conceived with this Mary who
@@ -15398,7 +15398,7 @@ Jesus was without blemish:
   the eternal Spirit offered himself without blemish to God, purify our conscience from dead works to serve the
   living God. (ESV)
 
-I recalled Sproul's sermon on the Holiness of Godo and did a little search for Bible verse which might relate to
+I recalled Sproul's sermon on the Holiness of God and did a little search for Bible verse which might relate to
 when something becomes "holy" by "touch" (Leviticus 6:27, Exodus 30:29, Isaiah 6:5-7).
 
 youtube.com: The Meaning of Holiness : The Holiness of God with R . C . Sproul {@ ligonier }
@@ -140139,7 +140139,7 @@ Date: 2026-09-22 Tue 18:38
 
 Author: Shane Mulligan
 
-Created: 2026-09-22 Tue 19:06
+Created: 2026-09-22 Tue 19:49
 
 Validate
 
