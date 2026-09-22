@@ -5118,6 +5118,8 @@ heaven. Paul has a new genaeology of people who are in heaven, and which include
   with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show
   the immeasurable riches of his grace in kindness toward us in Christ Jesus. (ESV)
 
+  Galatians 3:29 - And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+
 Some good gospel preaching in Watchman River's video here. I'd clarify, though, by saying "if newly saved, then
 still being saved" because the newly saved person must continue walking by faith being sanctified. We must
 continue on in the teaching of Christ:
@@ -14606,7 +14608,7 @@ We had (past-tense) earthly fathers. God is the Father of our spirits. God makes
   much more be subject to the Father of spirits and live? (ESV)
 
 It's also probably not really improper to use the word "mother" or "mum" for a woman in Christ who is born of God
-and doing the will of God and one's spiritual ancestor in Christ (e.g. Mary mother of Jesus)Z
+and doing the will of God and one's spiritual ancestor in Christ (e.g. Mary mother of Jesus):
 
   Luke 8:21 - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
 
@@ -15266,6 +15268,233 @@ honouring Jesus Christ's commandments:
   Sinai, bearing children for slavery; she is Hagar. Now Hagar is Mount Sinai in Arabia; she corresponds to the
   present Jerusalem, for she is in slavery with her children. But the Jerusalem above is free, and she is our
   mother. (ESV)
+
+youtube.com: The Importance of Holiness : The Holiness of God with R . C . Sproul {@ ligonier }
+Our Father and our God, when we approach this subject of your Holy character, we know that we are embarking on an
+impossible task, that even at this moment we are standing upon holy ground, ground that were it not for your
+abiding mercy and grace would open up beneath our feet and swallow us into the pit. And so tonight we ask, nay, we
+beg you for a double measure of your grace and mercy upon us as we seek to understand these things that are so
+important to our understanding of you; and we invoke the presence of the Spirit of Truth, who is at the same time
+the Holy Spirit, that He may assist us in this endeavor. For we ask these things in the name of Christ, Amen.
+
+Honestly, I do not understand this well enough to know for sure exactly, how this works. I'm thinking aloud in my
+writing. May God correct any errors in these writings, and lead me and whoever is reading into all the truth.
+
+Thinking logically about the topic of Mary the mother of Jesus, one thought I had is that any generational sin
+that might have come through Jesus' mother's side through Abraham, Jesus may have "taken on" (II Corinthians 5:21)
+when he took on flesh through Mary (Psalms 51:5). But there might be a problem with this because Jesus is the
+"Word become flesh", and God's word is immaculate.
+
+The reason why I considered that Jesus may have "taken on" generational sin though Jesus' mother's side (let's
+call that Theory A) is that these two verses made it seem plausible. But after thinking about it, I might have a
+more plausible explanation (Theory B):
+
+  Psalms 51:5 - Behold, I was brought forth in iniquity, and in sin did my mother conceive me. (ESV)
+
+  II Corinthians 5:21-6:1 - For our sake he made him to be sin who knew no sin, so that in him we might become the
+  righteousness of God. Working together with him, then, we appeal to you not to receive the grace of God in vain.
+  (ESV)
+
+Jesus took a lot of persecution by the hands of unrighteous people, right up until He went to that cross. But He
+did that as a sinless person, not as a person who had any sin:
+
+  Isaiah 53:3-7 - He is despised and rejected of men; a man of sorrows, and acquainted with grief: and we hid as
+  it were our faces from him; he was despised, and we esteemed him not. Surely he hath borne our griefs, and
+  carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted. But he was wounded for our
+  transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his
+  stripes we are healed. All we like sheep have gone astray; we have turned every one to his own way; and the LORD
+  hath laid on him the iniquity of us all. He was oppressed, and he was afflicted, yet he opened not his mouth: he
+  is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth.
+  (KJV)
+
+Another argument to be made is that it was Mary who was "born of God" rather than "sin in Mary's flesh" (Romans
+7:17-23) in whom Holy Spirit had conceived Jesus. The May who is "born of God from the word of God" together with
+Holy Spirit conceieved Jesus (Let's call that Theory B, my present favourite theory).
+
+So for Theory A, all those who were born according to the spirit (Galatians 4:28-29) from Abraham to Mary, Jesus
+would have "taken on their sin" when taking on their humanity, because I am of the pursuasion that Mary had flesh
+with indwelling sin in it, and that Jesus inherited flesh nature from Mary when the Word of God became flesh when
+Holy Spirit conceived Jesus.
+
+I'm not strongly convinced that sin is inherited from only the father because of Psalms 51:5. That the Word
+*became flesh (John 1:14) indicates that Jesus' flesh was not ordinary flesh, but rather His flesh originated as
+the Word of God, and was conceived by Mary and by God's Holy Spirit. Now putting that together, I do think that
+then there is a good argument to be made that the Mary who conceived was the Mary who was "born of God", because
+the one "born of God" originated as the seed of the word of God. And so there would be the "word of God" (Matthew
+13:37-42) in Mary "good soil" (Luke 8:15) becoming the Mary who is "born of God", and this Mary being a "child of
+the Kingdom" who is "born of God" and Holy Spirit together conceiving Jesus. So Theory B would be that the Word of
+God "become flesh" because Mary was a believer and was born of God, and Holy Spirit conceived with this Mary who
+was born of God.
+
+  Luke 1:34-35 - And Mary said to the angel, How will this be, since I am a virgin? And the angel answered her,
+  The Holy Spirit will come upon you, and the power of the Most High will overshadow you; therefore the child to
+  be born will be called holy—the Son of God. (ESV)
+
+In that way, it's easy to see that Jesus was spiritually totally without sin. And following on from that, knowing
+that Jesus committed no sin, yet was tempted, it's possible that Jesus was still tempted by the flesh. In fact I
+think He really was. Yet He still did not sin. So this taking on board of Mary's nature was inclusive of her heart
+and of her flesh, being "born of God" (so a good heart, and good inner nature) yet also the sinful flesh (Mary did
+not have her immaculate resurrection body).
+
+So for Jesus it may have felt at times as though the flesh may war against His inner desire to do good. Jesus was
+certainly tempted. Yet Jesus did not commit sin.
+
+Also, I think Jesus didn't suffer from the problem of having "deeds worked by indwelling sin" which Paul describes
+in Romans 7. Jesus totally conquered temptation, and did not have indwelling sin doing evil deeds against His
+desire to do the Father's will. And also, Jesus had at all not "sown to His flesh" (Galatians 6:7-10) and was
+never "dead in sin". So concerning any warring between the spirit and the flesh that is typical for a believer in
+Jesus after getting born-again of the spirit which involves "putting to death the deeds of the flesh", while Jesus
+did face temptation in every point that we have (Hebrews 4:15) but without sin, I do not think that Jesus had to
+deal with "putting to death the deeds of the body of sin" because Jesus was fully in charge of His own body. He is
+the perfect man:
+
+  James 3:2 - For we all stumble in many ways, and if anyone does not stumble in what he says, he is a perfect
+  man, able also to bridle his whole body. (ESV)
+
+I think that Jesus' flesh was "Word become flesh", and not merely "God inside a meatsuit from Adam", but that
+Jesus' flesh was also special as the Word became flesh, and from Jesus' conception He was a perfect man, able to
+bridle the body He was born with. I believe that Jesus in His flesh never sinned (I Peter 2:15-25). So even if
+Jesus took on the flesh of 'sinful' humanity, Jesus still never committed any sin Himself and had an inward desire
+to do the will of God, and bridled His whole body and so Jesus simply embraced the likeness of human flesh.
+
+So Jesus took on the likeness of human flesh but had an immaculate heart and a bridled body. And Jesus sanctified
+Himself (John 17:19). So Jesus simply ruled flawlessly over the flesh in obedience to Father God.
+
+I also imagine that "whatever God touches becomes holy" and so when Jesus was conceived, He was still holy even
+with this flesh, and in God touching flesh and taking on board the likeness of man (Philippians 2:7), the Word of
+God took on board this flesh of His simply in its state and was able to bridle this body of His. Jesus was both
+God and man even as a baby:
+
+  Philippians 2:7 - but made himself nothing, taking the form of a servant, being born in the likeness of men.
+  (ESV)
+
+And so if there was sinful flesh in Mary then Jesus Christ would have taken on the likeness of this flesh, yet His
+inward desire still would have been to do the will of God while having this flesh and He was able to bridle this
+flesh body.
+
+Jesus never committed any sin while He walked in a body that was in the likeness of man. It would be wrong to call
+Jesus' flesh "fallen" even though it was in the likeness of fallen man's flesh, but rather it might be better to
+say that the Son of God took on this flesh body in the likeness that He took it on, but that He had a perfect
+soul, and simply recognised this flesh as His own flesh, and there was no sin in Him, even though His flesh
+resembled that of fallen man.
+
+Jesus was conceived, I believe, both of the virgin Mary (who I believe was born of God at the time), and of Holy
+Spirit. Jesus' body and soul was immaculate and holy from birth, I believe, and having this flesh from birth, the
+flesh was simply His flesh, with nothing "sinful" about it, asides from resembling fallen man's flesh. God chose
+His vessel.
+
+If someone chose a table which they liked and said, this is my chosen table, and I'm pleased with it, who can
+argue with that? So in Jesus taking on board flesh, God has chosen this flesh.
+
+Jesus' word-become-flesh body was made an offering for sin, as was His soul:
+
+  Hebrews 10:10 - And by that will we have been sanctified through the offering of the body of Jesus Christ once
+  for all. (ESV)
+
+Jesus was without blemish:
+
+  Hebrews 9:13-14 - For if the sprinkling of defiled persons with the blood of goats and bulls and with the ashes
+  of a heifer sanctifies for the purification of the flesh, how much more will the blood of Christ, who through
+  the eternal Spirit offered himself without blemish to God, purify our conscience from dead works to serve the
+  living God. (ESV)
+
+I recalled Sproul's sermon on the Holiness of Godo and did a little search for Bible verse which might relate to
+when something becomes "holy" by "touch" (Leviticus 6:27, Exodus 30:29, Isaiah 6:5-7).
+
+youtube.com: The Meaning of Holiness : The Holiness of God with R . C . Sproul {@ ligonier }
+Why is it that we are drawn to take something that is common and make it extraordinary because of its
+significance? It's not because of the intrinsic value of these objects, but what makes something sacred, what
+makes something holy is the touch of God upon it. When the one who himself is other and different touches that
+which is ordinary, it becomes extraordinary.
+
+More evidence for Jesus' body and soul being a perfect sacrifice for sin that He sanctifies Himself (John 17:19).
+
+The fact is that He is the sinless Lamb of God (John 1:29). If we are to say that Mary mother of Jesus was sinless
+(as Roman Catholic doctrine affirms an "Immaculate Conception"), then we might say that this could only refer to
+the Mary who is "born of God" rather than to her "flesh" which carries sin (Romans 7:17-23) from Adam. At it's
+core, the difference between the person of the flesh and who is born of God is a heart issue, I think, but I think
+also involves the soul, and the soul animates the body. So somebody could have an inner desire to please God, but
+the exterior flesh nature may fight against that inner nature. But if a person's body is well-bridled and they
+have their body under control, then their exterior flesh should reflect what's going on inside. And I think that
+Mary is somebody who would have been like that (a good nature inside, with a well-bridled body), yet still having
+the "Adamic" flesh (not without sin). But perhaps under the influence of the power of God, her body was "totally
+bridled" when Jesus was conceived. Like if when doing a surgical operation, the Doctor might "sedate", God's power
+ensured that Jesus' conception was immaculate (Luke 1:34-35). Perhaps that could be what happened. Only God knows,
+but those are my thoughts:
+
+  Luke 1:34-35 - And Mary said to the angel, How will this be, since I am a virgin? And the angel answered her,
+  The Holy Spirit will come upon you, and the power of the Most High will overshadow you; therefore the child to
+  be born will be called holy—the Son of God. (ESV)
+
+That's how I could presently envisage an "Immaculate Conception" being possible there. I think it's a plausible
+theory, though, but I do not have enough confidence in my own understanding on this, though, to say I think it
+works this way for sure:
+
+  Matthew 1:1 - The book of the genealogy of Jesus Christ, the son of David, the son of Abraham. (ESV)
+
+  Galatians 4:28-29 - Now you, brothers, like Isaac, are children of promise. But just as at that time he who was
+  born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
+
+  II Corinthians 5:17-21 - Therefore, if anyone is in Christ, he is a new creation. The old has passed away;
+  behold, the new has come. All this is from God, who through Christ reconciled us to himself and gave us the
+  ministry of reconciliation; that is, in Christ God was reconciling the world to himself, not counting their
+  trespasses against them, and entrusting to us the message of reconciliation. Therefore, we are ambassadors for
+  Christ, God making his appeal through us. We implore you on behalf of Christ, be reconciled to God. For our sake
+  he made him to be sin who knew no sin, so that in him we might become the righteousness of God. (ESV)
+
+  Genesis 3:14-15 - The LORD God said to the serpent, Because you have done this, cursed are you above all
+  livestock and above all beasts of the field; on your belly you shall go, and dust you shall eat all the days of
+  your life. I will put enmity between you and the woman, and between your offspring and her offspring; he shall
+  bruise your head, and you shall bruise his heel. (ESV)
+
+  Psalms 51:5 - Behold, I was brought forth in iniquity, and in sin did my mother conceive me. (ESV)
+
+It makes sense to me that Jesus has to be sinless and immaculately conceived for the tree to be good:
+
+  Matthew 12:33-37 - Either make the tree good and its fruit good, or make the tree bad and its fruit bad, for the
+  tree is known by its fruit. You brood of vipers! How can you speak good, when you are evil? For out of the
+  abundance of the heart the mouth speaks. The good person out of his good treasure brings forth good, and the
+  evil person out of his evil treasure brings forth evil. I tell you, on the day of judgment people will give
+  account for every careless word they speak, for by your words you will be justified, and by your words you will
+  be condemned. (ESV)
+
+  John 15:4-7 - Remain in Me, and I will remain in you. Just as no branch can bear fruit by itself unless it
+  remains in the vine, neither can you bear fruit unless you remain in Me. I am the vine and you are the branches.
+  The one who remains in Me, and I in him, will bear much fruit. For apart from Me you can do nothing. If anyone
+  does not remain in Me, he is like a branch that is thrown away and withers. Such branches are gathered up,
+  thrown into the fire, and burned. If you remain in Me and My words remain in you, ask whatever you wish, and it
+  will be done for you. (engbsb2020eb)
+
+Also to take into consideration is that God "passed over" former sins (Romans 3:25), and overlooked the times of
+ignorance (Acts 17:30-31).
+
+  Romans 3:25 - whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
+
+  Acts 17:30-31 - The times of ignorance God overlooked, but now he commands all people everywhere to repent,
+  because he has fixed a day on which he will judge the world in righteousness by a man whom he has appointed; and
+  of this he has given assurance to all by raising him from the dead. (ESV)
+
+Apart from Jesus, we cannot do anything, nor have any inheritance in Christ. A person must be "in Christ" to
+partake of the promise to Abraham and of Christ:
+
+  Philippians 3:8-11 - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus
+  my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
+  Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes
+  through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of
+  his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may
+  attain the resurrection from the dead. (ESV)
+
+  Galatians 4:31 - So, brothers, we are not children of the slave but of the free woman. (ESV)
+
+  John 15:5 - I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much
+  fruit, for apart from me you can do nothing. (ESV)
+
+  Galatians 3:16 - Now the promises were made to Abraham and to his offspring. It does not say, And to offsprings,
+  referring to many, but referring to one, And to your offspring, who is Christ. (ESV)
+
+  James 2:5 - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith
+  and heirs of the kingdom, which he has promised to those who love him? (ESV)
 
 The spirit is the truth. The spirit is reality. For the person who lives by the spirit, walking by the spirit is
 walking in the truth. We should be learning from God and agreeing with God, coming to Jesus, trusting and obeying
@@ -124365,12 +124594,131 @@ This should never replace Jesus, but glorifies Jesus because it's being a discip
 If someone's lord is money and not Jesus and then they try to do good works such as setting up businesses, I feel
 like this glorifies money, not Jesus.
 
-Here, Zacchaeus, renounces money and makes Jesus his Lord. This must happen first.
+The glory we seek must come from Father God rather from anyone else:
+
+John 5:41 (Interlinear)
+Glory (G1391 Doxan) from (G3844 para) men (G444 anthrōpōn) not (G3756 ou) I take (G2983 lambanō)
+
+  John 5:44 - How can you believe, when you receive glory from one another and do not seek the glory that comes
+  from the only God? (ESV)
+
+I Thessalonians 2:6 (Interlinear)
+nor seeking from men (G444 anthrōpōn) glory nor from you (G4771 hymōn) nor from others (G243 allōn) [though]
+having authority in [it] burden to be as Christ's apostles
+
+Glory which comes from Father God to Jesus' disciples comes also through Jesus Christ the Son of God from Father
+God, and this glory glorifies Jesus Christ. Jesus Christ glorifies Father God:
+
+  John 17:1,22 - When Jesus had spoken these words, he lifted up his eyes to heaven, and said, Father, the hour
+  has come; glorify your Son that the Son may glorify you, The glory that you have given me I have given to them,
+  that they may be one even as we are one, (ESV)
+
+Thinking logically about this (though I am not infallible), on the topic of Mary the mother of Jesus, I think that
+any generational sin that might have come through Jesus' genaeology from Adam's side, Jesus would have "taken on"
+when he took on flesh. All those who were born of promise from Abraham to Mary, Jesus would have "taken on their
+sin":
+
+  Matthew 1:1 - The book of the genealogy of Jesus Christ, the son of David, the son of Abraham. (ESV)
+
+  Galatians 4:28-29 - Now you, brothers, like Isaac, are children of promise. But just as at that time he who was
+  born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
+
+Apart from Jesus, we cannot do anything, nor have any inheritance in Christ. A person must be "in Christ" to
+partake of the promise to Abraham and of Christ:
+
+  Philippians 3:8-11 - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus
+  my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain
+  Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes
+  through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of
+  his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may
+  attain the resurrection from the dead. (ESV)
+
+  Galatians 4:31 - So, brothers, we are not children of the slave but of the free woman. (ESV)
+
+  John 15:5 - I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much
+  fruit, for apart from me you can do nothing. (ESV)
+
+  Galatians 3:16 - Now the promises were made to Abraham and to his offspring. It does not say, And to offsprings,
+  referring to many, but referring to one, And to your offspring, who is Christ. (ESV)
+
+  James 2:5 - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith
+  and heirs of the kingdom, which he has promised to those who love him? (ESV)
+
+This glory from Father God glorifies Jesus Christ:
+
+  II Thessalonians 2:14 - To this he called you through our gospel, so that you may obtain the glory of our Lord
+  Jesus Christ. (ESV)
+
+  John 17:10 - All mine are yours, and yours are mine, and I am glorified in them. (ESV)
+
+When others see our good works and give glory to our Father who is in heaven, we are not giving Father God that
+glory, but Father God is glorifying Himself through those people:
+
+  Matthew 5:16 - In the same way, let your light shine before others, so that they may see your good works and
+  give glory to your Father who is in heaven. (ESV)
+
+Father God glorifies Jesus:
+
+  John 8:54 - Jesus answered, If I glorify myself, my glory is nothing. It is my Father who glorifies me, of whom
+  you say, He is our God. (ESV)
+
+Father God glorifies those who do good:
+
+  Romans 2:10 - but glory and honor and peace for everyone who does good, the Jew first and also the Greek. (ESV)
+
+  Romans 8:21 - that the creation itself will be set free from its bondage to decay and obtain the freedom of the
+  glory of the children of God. (ESV)
+
+Father God glorifies Jesus Christ through Jesus' disciples:
+
+  Romans 15:7 - Therefore welcome one another as Christ has welcomed you, for the glory of God. (ESV)
+
+  II Corinthians 4:17 - For this slight momentary affliction is preparing for us an eternal weight of glory beyond
+  all comparison, (ESV)
+
+  II Corinthians 8:23 - As for Titus, he is my partner and fellow worker for your benefit. And as for our
+  brothers, they are messengers of the churches, the glory of Christ. (ESV)
+
+  John 17:10 - All mine are yours, and yours are mine, and I am glorified in them. (ESV)
+
+  Ephesians 3:16 - that according to the riches of his glory he may grant you to be strengthened with power
+  through his Spirit in your inner being, (ESV)
+
+And Father God glorified Jesus' disciples in the people who they led to Jesus Christ:
+
+  I Thessalonians 2:19-20 - For what is our hope or joy or crown of boasting before our Lord Jesus at his coming?
+  Is it not you? For you are our glory and joy. (ESV)
+
+We wish for Father God to glorify Himself in Jesus Christ:
+
+  Romans 16:27 - to the only wise God be glory forevermore through Jesus Christ! Amen. (ESV)
+
+  Ephesians 3:21 - to him be glory in the church and in Christ Jesus throughout all generations, forever and ever.
+  Amen. (ESV)
+
+Father God will glorify Himself through people as they will one way or another confess that Jesus Christ is Lord::
+
+  Philippians 2:11 - and every tongue confess that Jesus Christ is Lord, to the glory of God the Father. (ESV)
+
+But to be saved a person needs a real faith which loves the truth in the heart. That type of faith a demon does
+not have:
+
+  Mark 5:7 - And crying out with a loud voice, he said, What have you to do with me, Jesus, Son of the Most High
+  God? I adjure you by God, do not torment me. (ESV)
+
+  II Thessalonians 2:9-12 - The coming of the lawless one is by the activity of Satan with all power and false
+  signs and wonders, and with all wicked deception for those who are perishing, because they refused to love the
+  truth and so be saved. Therefore God sends them a strong delusion, so that they may believe what is false, in
+  order that all may be condemned who did not believe the truth but had pleasure in unrighteousness. (ESV)
+
+  James 2:19 - You believe that God is one; you do well. Even the demons believe—and shudder! (ESV)
+
+Here, Zacchaeus, renounces money and "makes Jesus his Lord." This must happen first:
 
   Luke 19:8 - And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor. And
   if I have defrauded anyone of anything, I restore it fourfold. (ESV)
 
-Abram did this too. It's a necessary act of faith.
+Abram did this too. It's a necessary act of faith:
 
   Genesis 14:20-24 - and blessed be God Most High, who has delivered your enemies into your hand! And Abram gave
   him a tenth of everything. And the king of Sodom said to Abram, Give me the persons, but take the goods for
@@ -139787,11 +140135,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-21 Mon 17:43
+Date: 2026-09-22 Tue 18:38
 
 Author: Shane Mulligan
 
-Created: 2026-09-21 Mon 17:48
+Created: 2026-09-22 Tue 19:06
 
 Validate
 

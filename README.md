@@ -2390,6 +2390,8 @@ Paul has not here instructed his disciples to call him father. Also, there is th
 
 > **[Ephesians 2:4-7](https://www.biblegateway.com/passage/?search=Ephesians%202%3A4-7&version=ESV)** - But God, being rich in mercy, because of the great love with which he loved us, even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved— and raised us up with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show the immeasurable riches of his grace in kindness toward us in Christ Jesus. (ESV)
 
+> **[Galatians 3:29](https://www.biblegateway.com/passage/?search=Galatians%203%3A29&version=ESV)** - And if you are Christ's, then you are Abraham's offspring, heirs according to promise. (ESV)
+
 Some good gospel preaching in Watchman River's video here. I'd clarify, though, by saying "if newly saved, then still being saved" because the newly saved person must continue walking by faith being sanctified. We must continue on in the teaching of Christ:
 
 -   [youtube.com:  MAYBE THESE AREN ' T THE LAST DAYS ?? {@ WatchmanRiver }](https://www.youtube.com/watch?v=H8UQQCE5pZM)
@@ -7666,11 +7668,128 @@ The way these Scriptures talk about "two in one bed, one will be taken and the o
     
     > **[Galatians 4:24-26](https://www.biblegateway.com/passage/?search=Galatians%204%3A24-26&version=ESV)** - Now this may be interpreted allegorically: these women are two covenants. One is from Mount Sinai, bearing children for slavery; she is Hagar. Now Hagar is Mount Sinai in Arabia; she corresponds to the present Jerusalem, for she is in slavery with her children. But the Jerusalem above is free, and she is our mother. (ESV)
     
-    Thinking logically about this (though I am not infallible), on the topic of Mary the mother of Jesus, I think that any generational sin that might have come through Jesus' genaeology from Adam's side, Jesus would have "taken on" when he took on flesh. All those who were born of promise from Abraham to Mary, Jesus would have "taken on their sin":
+    -   **[youtube.com:  The Importance of Holiness : The Holiness of God with R . C . Sproul {@ ligonier }](https://www.youtube.com/watch?v=eIGAjoqBhhU&list=PL30acyfm60fVpGc7Eo--3S6w1kdhXY9Cb&index=1):** Our Father and our God, when we approach
+        this subject of your Holy character, we
+        know that we are embarking on an
+        impossible task, that even at this moment
+        we are standing upon holy ground, ground
+        that were it not for your abiding mercy
+        and grace would open up beneath our feet
+        and swallow us into the pit. And so
+        tonight we ask, nay, we beg you for a
+        double measure of your grace and mercy
+        upon us as we seek to understand these
+        things that are so important to our
+        understanding of you; and we invoke the
+        presence of the Spirit of Truth, who is at
+        the same time the Holy Spirit, that He may
+        assist us in this endeavor. For we ask
+        these things in the name of Christ, Amen.
+    
+    Honestly, I do not understand this well enough to know for sure exactly, how this works. I'm thinking aloud in my writing. May God correct any errors in these writings, and lead me and whoever is reading into all the truth.
+    
+    Thinking logically about the topic of Mary the mother of Jesus, one thought I had is that any generational sin that might have come through Jesus' mother's side through Abraham, Jesus may have "taken on" (**[II Corinthians 5:21](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A21&version=ESV)**) when he took on flesh through Mary (**[Psalms 51:5](https://www.biblegateway.com/passage/?search=Psalms%2051%3A5&version=ESV)**). But there might be a problem with this because Jesus is the "Word become flesh", and God's word is immaculate.
+    
+    The reason why I considered that Jesus may have "taken on" generational sin though Jesus' mother's side (let's call that Theory A) is that these two verses made it seem plausible. But after thinking about it, I might have a more plausible explanation (Theory B):
+    
+    > **[Psalms 51:5](https://www.biblegateway.com/passage/?search=Psalms%2051%3A5&version=ESV)** - Behold, I was brought forth in iniquity, and in sin did my mother conceive me. (ESV)
+    
+    > **[II Corinthians 5:21-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A21-6&version=ESV):1** - For our sake he made him to be sin who knew no sin, so that in him **we might become the righteousness of God. Working together with him**, then, we appeal to you not to receive the grace of God in vain. (ESV)
+    
+    Jesus took a lot of persecution by the hands of unrighteous people, right up until He went to that cross. But He did that as a sinless person, not as a person who had any sin:
+    
+    > **[Isaiah 53:3-7](https://www.biblegateway.com/passage/?search=Isaiah%2053%3A3-7&version=ESV)** - He is despised and rejected of men; a man of sorrows, and acquainted with grief: and we hid as it were our faces from him; he was despised, and we esteemed him not. Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted. But he was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed. All we like sheep have gone astray; we have turned every one to his own way; and the LORD hath laid on him the iniquity of us all. He was oppressed, and he was afflicted, yet he opened not his mouth: he is brought as a lamb to the slaughter, and as a sheep before her shearers is dumb, so he openeth not his mouth. (KJV)
+    
+    Another argument to be made is that it was Mary who was "born of God" rather than "sin in Mary's flesh" (**[Romans 7:17-23](https://www.biblegateway.com/passage/?search=Romans%207%3A17-23&version=ESV)**) in whom Holy Spirit had conceived Jesus.
+    The May who is "born of God from the word of God" together with Holy Spirit conceieved Jesus (Let's call that Theory B, my present favourite theory).
+    
+    So for Theory A, all those who were born according to the spirit (**[Galatians 4:28-29](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-29&version=ESV)**) from Abraham to Mary, Jesus would have "taken on their sin" when taking on their humanity, because I am of the pursuasion that Mary had flesh with indwelling sin in it, and that Jesus inherited flesh nature from Mary when the Word of God became flesh when Holy Spirit conceived Jesus.
+    
+    I'm not strongly convinced that sin is inherited from only the father because of **[Psalms 51:5](https://www.biblegateway.com/passage/?search=Psalms%2051%3A5&version=ESV). That the Word \*became** flesh (**[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)**) indicates that Jesus' flesh was not ordinary flesh, but rather His flesh originated as the Word of God, and was conceived by Mary and by God's Holy Spirit. Now putting that together, I do think that then there is a good argument to be made that the Mary who conceived was the Mary who was "born of God", because the one "born of God" originated as the seed of the word of God. And so there would be the "word of God" (**[Matthew 13:37-42](https://www.biblegateway.com/passage/?search=Matthew%2013%3A37-42&version=ESV)**) in Mary "good soil" (**[Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)**) becoming the Mary who is "born of God", and this Mary being a "child of the Kingdom" who is "born of God" and Holy Spirit together conceiving Jesus. So **Theory B** would be that the Word of God "become flesh" because Mary was a believer and was born of God, and Holy Spirit conceived with this Mary who was born of God.
+    
+    > **[Luke 1:34-35](https://www.biblegateway.com/passage/?search=Luke%201%3A34-35&version=ESV)** - And Mary said to the angel, How will this be, since I am a virgin? And the angel answered her, The Holy Spirit will come upon you, and the power of the Most High will overshadow you; therefore the child to be born will be called holy—the Son of God. (ESV)
+    
+    In that way, it's easy to see that Jesus was spiritually totally without sin. And following on from that, knowing that Jesus committed no sin, yet was tempted, it's possible that Jesus was still tempted by the flesh. In fact I think He really was. Yet He still did not sin. So this taking on board of Mary's nature was inclusive of her heart and of her flesh, being "born of God" (so a good heart, and good inner nature) yet also the sinful flesh (Mary did not have her immaculate resurrection body).
+    
+    So for Jesus it may have felt at times as though the flesh may war against His inner desire to do good. Jesus was certainly tempted. Yet Jesus did not commit sin.
+    
+    Also, I think Jesus didn't suffer from the problem of having "deeds worked by indwelling sin" which Paul describes in Romans 7. Jesus totally conquered temptation, and did not have indwelling sin doing evil deeds against His desire to do the Father's will. And also, Jesus had at all not "sown to His flesh" (**[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)**) and was never "dead in sin". So concerning any warring between the spirit and the flesh that is typical for a believer in Jesus after getting born-again of the spirit which involves "putting to death the deeds of the flesh", while Jesus did face temptation in every point that we have (**[Hebrews 4:15](https://www.biblegateway.com/passage/?search=Hebrews%204%3A15&version=ESV)**) but without sin, I do not think that Jesus had to deal with "putting to death the deeds of the body of sin" because Jesus was fully in charge of His own body. He is the perfect man:
+    
+    > **[James 3:2](https://www.biblegateway.com/passage/?search=James%203%3A2&version=ESV)** - For we all stumble in many ways, and if anyone does not stumble in what he says, he is a perfect man, able also to bridle his whole body. (ESV)
+    
+    I think that Jesus' flesh was "Word become flesh", and not merely "God inside a meatsuit from Adam", but that Jesus' flesh was also special as the Word **became** flesh, and from Jesus' conception He was a perfect man, able to bridle the body He was born with. I believe that Jesus in His flesh never sinned (**[I Peter 2:15-25](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A15-25&version=ESV)**). So even if Jesus took on the flesh of 'sinful' humanity, Jesus still never committed any sin Himself and had an inward desire to do the will of God, and bridled His whole body and so Jesus simply embraced the likeness of human flesh.
+    
+    So Jesus took on the likeness of human flesh but had an immaculate heart and a bridled body.
+    And Jesus sanctified Himself ([John 17:19](https://www.biblegateway.com/passage/?search=John%2017%3A19&version=ESV)).
+    So Jesus simply ruled flawlessly over the flesh in obedience to Father God.
+    
+    I also imagine that "whatever God touches becomes holy" and so when Jesus was conceived, He was still holy even with this flesh, and in God touching flesh and taking on board the likeness of man ([Philippians 2:7](https://www.biblegateway.com/passage/?search=Philippians%202%3A7&version=ESV)), the Word of God took on board this flesh of His simply in its state and was able to bridle this body of His. Jesus was both God and man even as a baby:
+    
+    > **[Philippians 2:7](https://www.biblegateway.com/passage/?search=Philippians%202%3A7&version=ESV)** - but made himself nothing, taking the form of a servant, being born in the likeness of men. (ESV)
+    
+    And so if there was sinful flesh in Mary then Jesus Christ would have taken on the likeness of this flesh, yet His inward desire still would have been to do the will of God while having this flesh and He was able to bridle this flesh body.
+    
+    Jesus never committed any sin while He walked in a body that was in the likeness of man.
+    It would be wrong to call Jesus' flesh "fallen" even though it was in the likeness of fallen man's flesh,
+    but rather it might be better to say that the Son of God took on this flesh body in the likeness that He took it on,
+    but that He had a perfect soul, and simply recognised this flesh as His own flesh, and there was no sin in Him,
+    even though His flesh resembled that of fallen man.
+    
+    Jesus was conceived, I believe, both of the virgin Mary (who I believe was born of God at the time), and of Holy Spirit.
+    Jesus' body and soul was immaculate and holy from birth, I believe, and having this flesh from birth, the flesh was simply His flesh, with nothing "sinful" about it, asides from resembling fallen man's flesh. God chose His vessel.
+    
+    If someone chose a table which they liked and said, this is my chosen table, and I'm pleased with it, who can argue with that?
+    So in Jesus taking on board flesh, God has chosen this flesh.
+    
+    Jesus' word-become-flesh body was made an offering for sin, as was His soul:
+    
+    > **[Hebrews 10:10](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A10&version=ESV)** - And by that will we have been sanctified through the offering of the body of Jesus Christ once for all. (ESV)
+    
+    Jesus was without blemish:
+    
+    > **[Hebrews 9:13-14](https://www.biblegateway.com/passage/?search=Hebrews%209%3A13-14&version=ESV)** - For if the sprinkling of defiled persons with the blood of goats and bulls and with the ashes of a heifer sanctifies for the purification of the flesh, how much more will the blood of Christ, who through the eternal Spirit offered himself without blemish to God, purify our conscience from dead works to serve the living God. (ESV)
+    
+    I recalled Sproul's [sermon on the Holiness of Godo](https://www.youtube.com/watch?v=K96e1tK7eN4) and did a little search for Bible verse which might relate to when something becomes "holy" by "touch" ([Leviticus 6:27](https://www.biblegateway.com/passage/?search=Leviticus%206%3A27&version=ESV), [Exodus 30:29](https://www.biblegateway.com/passage/?search=Exodus%2030%3A29&version=ESV), [Isaiah 6:5-7](https://www.biblegateway.com/passage/?search=Isaiah%206%3A5-7&version=ESV)).
+    
+    -   **[youtube.com:  The Meaning of Holiness : The Holiness of God with R . C . Sproul {@ ligonier }](https://www.youtube.com/watch?v=K96e1tK7eN4):** Why is it that we are drawn to take something that
+        is common and make it extraordinary
+        because of its significance? It's not
+        because of the intrinsic value of these
+        objects, but what makes something sacred,
+        what makes something holy is the touch of
+        God upon it. When the one who himself is
+        other and different touches that which is
+        ordinary, it becomes extraordinary.
+    
+    More evidence for Jesus' body and soul being a perfect sacrifice for sin that He sanctifies Himself (**[John 17:19](https://www.biblegateway.com/passage/?search=John%2017%3A19&version=ESV)**).
+    
+    The fact is that He is the sinless Lamb of God (**[John 1:29](https://www.biblegateway.com/passage/?search=John%201%3A29&version=ESV)**). If we are to say that Mary mother of Jesus was sinless (as Roman Catholic doctrine affirms an "Immaculate Conception"), then we might say that this could only refer to the Mary who is "born of God" rather than to her "flesh" which carries sin (**[Romans 7:17-23](https://www.biblegateway.com/passage/?search=Romans%207%3A17-23&version=ESV)**) from Adam. At it's core, the difference between the person of the flesh and who is born of God is a heart issue, I think, but I think also involves the soul, and the soul animates the body. So somebody could have an inner desire to please God, but the exterior flesh nature may fight against that inner nature. But if a person's body is well-bridled and they have their body under control, then their exterior flesh should reflect what's going on inside. And I think that Mary is somebody who would have been like that (a good nature inside, with a well-bridled body), yet still having the "Adamic" flesh (not without sin). But perhaps under the influence of the power of God, her body was "totally bridled" when Jesus was conceived. Like if when doing a surgical operation, the Doctor might "sedate", God's power ensured that Jesus' conception was immaculate (**[Luke 1:34-35](https://www.biblegateway.com/passage/?search=Luke%201%3A34-35&version=ESV)**). Perhaps that could be what happened. Only God knows, but those are my thoughts:
+    
+    > **[Luke 1:34-35](https://www.biblegateway.com/passage/?search=Luke%201%3A34-35&version=ESV)** - And Mary said to the angel, How will this be, since I am a virgin? And the angel answered her, The Holy Spirit will come upon you, and the power of the Most High will overshadow you; therefore the child to be born will be called holy—the Son of God. (ESV)
+    
+    That's how I could presently envisage an "Immaculate Conception" being possible there. I think it's a plausible theory, though, but I do not have enough confidence in my own understanding on this, though, to say I think it works this way for sure:
     
     > **[Matthew 1:1](https://www.biblegateway.com/passage/?search=Matthew%201%3A1&version=ESV)** - The book of the genealogy of Jesus Christ, the son of David, the son of Abraham. (ESV)
     
     > **[Galatians 4:28-29](https://www.biblegateway.com/passage/?search=Galatians%204%3A28-29&version=ESV)** - Now you, brothers, like Isaac, are children of promise. But just as at that time he who was born according to the flesh persecuted him who was born according to the Spirit, so also it is now. (ESV)
+    
+    > **[II Corinthians 5:17-21](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A17-21&version=ESV)** - Therefore, if anyone is in Christ, he is a new creation. The old has passed away; behold, the new has come. All this is from God, who through Christ reconciled us to himself and gave us the ministry of reconciliation; that is, in Christ God was reconciling the world to himself, not counting their trespasses against them, and entrusting to us the message of reconciliation. Therefore, we are ambassadors for Christ, God making his appeal through us. We implore you on behalf of Christ, be reconciled to God. For our sake he made him to be sin who knew no sin, so that in him we might become the righteousness of God. (ESV)
+    
+    > **[Genesis 3:14-15](https://www.biblegateway.com/passage/?search=Genesis%203%3A14-15&version=ESV)** - The LORD God said to the serpent, Because you have done this, cursed are you above all livestock and above all beasts of the field; on your belly you shall go, and dust you shall eat all the days of your life. I will put enmity between you and the woman, and between your offspring and her offspring; he shall bruise your head, and you shall bruise his heel. (ESV)
+    
+    > **[Psalms 51:5](https://www.biblegateway.com/passage/?search=Psalms%2051%3A5&version=ESV)** - Behold, I was brought forth in iniquity, and in sin did my mother conceive me. (ESV)
+    
+    It makes sense to me that Jesus has to be sinless and immaculately conceived for the tree to be good:
+    
+    > **[Matthew 12:33-37](https://www.biblegateway.com/passage/?search=Matthew%2012%3A33-37&version=ESV)** - Either make the tree good and its fruit good, or make the tree bad and its fruit bad, for the tree is known by its fruit. You brood of vipers! How can you speak good, when you are evil? For out of the abundance of the heart the mouth speaks. The good person out of his good treasure brings forth good, and the evil person out of his evil treasure brings forth evil. I tell you, on the day of judgment people will give account for every careless word they speak, for by your words you will be justified, and by your words you will be condemned. (ESV)
+    
+    > **[John 15:4-7](https://www.biblegateway.com/passage/?search=John%2015%3A4-7&version=ESV)** - Remain in Me, and I will remain in you. Just as no branch can bear fruit by itself unless it remains in the vine, neither can you bear fruit unless you remain in Me. I am the vine and you are the branches. The one who remains in Me, and I in him, will bear much fruit. For apart from Me you can do nothing. If anyone does not remain in Me, he is like a branch that is thrown away and withers. Such branches are gathered up, thrown into the fire, and burned. If you remain in Me and My words remain in you, ask whatever you wish, and it will be done for you. (engbsb2020eb)
+    
+    Also to take into consideration is that God "passed over" former sins (**[Romans 3:25](https://www.biblegateway.com/passage/?search=Romans%203%3A25&version=ESV)**), and overlooked the times of ignorance (**[Acts 17:30-31](https://www.biblegateway.com/passage/?search=Acts%2017%3A30-31&version=ESV)**).
+    
+    > **[Romans 3:25](https://www.biblegateway.com/passage/?search=Romans%203%3A25&version=ESV)** - whom God put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
+    
+    > **[Acts 17:30-31](https://www.biblegateway.com/passage/?search=Acts%2017%3A30-31&version=ESV)** - The times of ignorance God overlooked, but now he commands all people everywhere to repent, because he has fixed a day on which he will judge the world in righteousness by a man whom he has appointed; and of this he has given assurance to all by raising him from the dead. (ESV)
     
     Apart from Jesus, we cannot do anything, nor have any inheritance in Christ. A person must be "in Christ" to partake of the promise to Abraham and of Christ:
     
@@ -18630,7 +18749,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org26288f4) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1ff7144) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24395,7 +24514,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org60dae5d).
+I didn't know but it turned out to be the last day of my [sentence](#org13afe47).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -48903,7 +49022,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgb0f7d22)
+See: [33.4.1](#org3831656)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -70413,7 +70532,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgb0f7d22)
+See: [33.4.1](#org3831656)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -73067,7 +73186,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orga48ae5a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgad7eaf3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -78051,7 +78170,7 @@ We wish for Father God to glorify Himself in Jesus Christ:
 
 > **[Ephesians 3:21](https://www.biblegateway.com/passage/?search=Ephesians%203%3A21&version=ESV)** - to him be glory in the church and in Christ Jesus throughout all generations, forever and ever. Amen. (ESV)
 
-Father God will glorify Himself through people as will one way or another confess that Jesus Christ is Lord::
+Father God will glorify Himself through people as they will one way or another confess that Jesus Christ is Lord::
 
 > **[Philippians 2:11](https://www.biblegateway.com/passage/?search=Philippians%202%3A11&version=ESV)** - and every tongue confess that Jesus Christ is Lord, to the glory of God the Father. (ESV)
 
@@ -81404,7 +81523,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orga48ae5a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgad7eaf3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82742,7 +82861,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6863f7c)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org353b3e5)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
