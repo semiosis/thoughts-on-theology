@@ -15465,6 +15465,44 @@ It makes sense to me that Jesus has to be sinless and immaculately conceived for
   thrown into the fire, and burned. If you remain in Me and My words remain in you, ask whatever you wish, and it
   will be done for you. (engbsb2020eb)
 
+I believe that Holy Spirit coming upon Mary and God's power over shadowing her is instrumental to there being an
+immaculate conception of Jesus:
+
+  Luke 1:34-35 - And Mary said to the angel, How will this be, since I am a virgin? And the angel answered her,
+  The Holy Spirit will come upon you, and the power of the Most High will overshadow you; therefore the child to
+  be born will be called holy—the Son of God. (ESV)
+
+The Apostle's Creed affirms that Jesus was conceived by Holy Spirit and that looks to be backed up by Matthew
+1:20. But I think it's not possible to avoid that both Holy Spirit and Mary conceived, because of these verses:
+
+• Isaiah 7:14 - Therefore the Lord himself will give you a sign. Behold, the virgin shall conceive and bear a
+son, and shall call his name Immanuel. (ESV)
+• Matthew 1:23 - Behold, the virgin shall conceive and bear a son, and they shall call his name Immanuel (which
+means, God with us). (ESV)
+• Matthew 1:20 - But as he considered these things, behold, an angel of the Lord appeared to him in a dream,
+saying, Joseph, son of David, do not fear to take Mary as your wife, for that which is conceived in her is
+from the Holy Spirit. (ESV)
+• Galatians 4:4 - But when the fullness of time had come, God sent forth his Son, born of woman, born under the
+law, (ESV)
+
+And since I take John 1:14 to really mean that Jesus' flesh originated as God's word, then Mary having been
+involved in conception must have herself been born of God. Sinner from birth, but at the time Jesus was conceived
+I think that Mary must surely have been participating as the one "born of God", born of the word of God.
+
+  John 1:14 - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son
+  from the Father, full of grace and truth. (ESV)
+
+So that's my reasoning towards believing that the "Mary who conceived" was herself born of the word of God (i.e.
+born of God) and presently acting as the one born of God (rather than from her flesh).
+
+  I John 3:9 - every one who hath been begotten of God, sin he doth not, because his seed in him doth remain, and
+  he is not able to sin, because of God he hath been begotten. (YLT)
+
+Similarly to the way in which I believe this lady was "not a sinner" while she was worshipping Jesus:
+
+  Luke 7:39 - Now when the Pharisee who had invited him saw this, he said to himself, If this man were a prophet,
+  he would have known who and what sort of woman this is who is touching him, for she is a sinner. (ESV)
+
 Also to take into consideration is that God "passed over" former sins (Romans 3:25), and overlooked the times of
 ignorance (Acts 17:30-31).
 
@@ -140135,11 +140173,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-22 Tue 18:38
+Date: 2026-09-22 Tue 21:38
 
 Author: Shane Mulligan
 
-Created: 2026-09-22 Tue 19:49
+Created: 2026-09-22 Tue 21:43
 
 Validate
 
