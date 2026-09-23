@@ -15503,6 +15503,28 @@ Similarly to the way in which I believe this lady was "not a sinner" while she w
   Luke 7:39 - Now when the Pharisee who had invited him saw this, he said to himself, If this man were a prophet,
   he would have known who and what sort of woman this is who is touching him, for she is a sinner. (ESV)
 
+I think that to say, "It was the sinless 'component' of Mary who conceived together with Holy Spirit," I think is
+not as accurate as saying that the Mary mother of Jesus Christ who was sinless is the born-of-God child of the
+Kingdom who was birthed from God's word when Mary was born-again of the spirit, born-again from the word of God,
+as opposed to the "Mary of the flesh", and this seed from God which gave birth to the Mary who is born of God was
+God's seed and she was from God (I John 4:6, I John 4:1-3, I John 4:4). So it would be the Mary mother of Jesus
+Christ who was born-again of the spirit and walking by the spirit who conceived together with Holy Spirit to form
+the baby Jesus.
+
+I think that talking about a person as having both a good nature (not a sinner) and an evil nature (a sinner),
+i.e. a good and a bad "component" making up a whole, isn't as accurate as calling the good nature the actual
+person and the evil nature their sin who they are not any longer. The person who is born of God is not the "sin
+that dwells within their flesh". But I believe that it is the Mary who was "not a sinner" who with Holy Spirit
+conceived the baby Jesus Christ:
+
+  Romans 7:17-23 - So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good
+  dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it
+  out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do
+  not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want
+  to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my
+  members another law waging war against the law of my mind and making me captive to the law of sin that dwells in
+  my members. (ESV)
+
 Also to take into consideration is that God "passed over" former sins (Romans 3:25), and overlooked the times of
 ignorance (Acts 17:30-31).
 
@@ -140173,11 +140195,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-22 Tue 21:38
+Date: 2026-09-23 Wed 12:46
 
 Author: Shane Mulligan
 
-Created: 2026-09-22 Tue 21:43
+Created: 2026-09-23 Wed 18:18
 
 Validate
 
