@@ -15504,10 +15504,10 @@ Similarly to the way in which I believe this lady was "not a sinner" while she w
   he would have known who and what sort of woman this is who is touching him, for she is a sinner. (ESV)
 
 I think that to say, "It was the sinless 'component' of Mary who conceived together with Holy Spirit," I think is
-not as accurate as saying that the Mary mother of Jesus Christ who was sinless is the born-of-God child of the
-Kingdom who was birthed from God's word when Mary was born-again of the spirit, born-again from the word of God,
-as opposed to the "Mary of the flesh", and this seed from God which gave birth to the Mary who is born of God was
-God's seed and she was from God (I John 4:6, I John 4:1-3, I John 4:4). So it would be the Mary mother of Jesus
+not as accurate as saying that the Mary mother of Jesus Christ who is the born-of-God child of the Kingdom who was
+birthed from God's word when she was born-again of the spirit, born-again from the word of God, as opposed to "sin
+in Mary's flesh", and this seed from God which gave birth to the Mary who is born of God was God's seed and that
+born of God Mary was 'from God' (I John 4:6, I John 4:1-3, I John 4:4). So it would be the Mary mother of Jesus
 Christ who was born-again of the spirit and walking by the spirit who conceived together with Holy Spirit to form
 the baby Jesus.
 
@@ -140199,7 +140199,7 @@ Date: 2026-09-23 Wed 12:46
 
 Author: Shane Mulligan
 
-Created: 2026-09-23 Wed 18:18
+Created: 2026-09-23 Wed 19:16
 
 Validate
 
