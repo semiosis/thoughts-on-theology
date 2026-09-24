@@ -79,6 +79,7 @@ A person is blessed if they have faith accompanied by deeds (**[James 1:21-25](h
 Speaking the truth, even regarding sin is important (**[Ephesians 4:20-32](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-32&version=ESV)**).
 It's also correct to separate from people who love evil while professing to be family to a Christian (**[I Corinthians 5:9-13](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A9-13&version=ESV)**) but we have to be careful to not judge on matters that are not truly sinful (**[Romans 14:3](https://www.biblegateway.com/passage/?search=Romans%2014%3A3&version=ESV)**, **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**). But there certainly are sinful behaviours that qualify one believer to judge or separate from another (**[I Timothy 1:8-11](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A8-11&version=ESV)**). Substance abuse is one such thing (**[I Corinthians 5:9-13](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A9-13&version=ESV)**), but some things in moderation could be OK (**[Titus 2:1-8](https://www.biblegateway.com/passage/?search=Titus%202%3A1-8&version=ESV)**).
 Truth without grace is judgemental, but truth with grace is truthful while patient (**[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)**), even though real grace is given to someone so that they may be sanctified by the truth (**[Titus 2:11-14](https://www.biblegateway.com/passage/?search=Titus%202%3A11-14&version=ESV)**) but "having grace" such as "time to repent" (**[Revelation of John 2:21](https://www.biblegateway.com/passage/?search=Revelation%202%3A21&version=ESV)**, **[Revelation of John 16:8-11](https://www.biblegateway.com/passage/?search=Revelation%2016%3A8-11&version=ESV)**) could mean simply that a person is not yet in hell and so grace doesn't mean "saved" necessarily.
+Without repentance (i.e. without a change of mind), there is no salvation (**[Luke 13:3](https://www.biblegateway.com/passage/?search=Luke%2013%3A3&version=ESV)**).
 Truth is convicting (**[John 16:8-9](https://www.biblegateway.com/passage/?search=John%2016%3A8-9&version=ESV)**).
 Grace without the truth that convicts is not true grace because both grace and truth have come through Jesus Christ (**[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)**, **[John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)**).
 Real love loves the truth and hates evil (**[Romans 12:9](https://www.biblegateway.com/passage/?search=Romans%2012%3A9&version=ESV)**).
@@ -402,6 +403,14 @@ When Jesus says that He has made "known", it's implied that the people that Jesu
 > **[John 17:3](https://www.biblegateway.com/passage/?search=John%2017%3A3&version=ESV)** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed [(G4100 pepisteukotas; having believed)](G4100) in him, **If** you abide [(G3306 meinēte; remain, abide, stay, continue, dwell, endure)](G3306) in my word, you are truly my disciples, and you will know the truth [(G225 alētheia; truth, reality; i.e. walking in reality)](G225), and the truth will set you free. (ESV)
+
+> **[John 17:8](https://www.biblegateway.com/passage/?search=John%2017%3A8&version=ESV)** - For I have given them the words that you gave me, and they have received them and have come to know in truth that I came from you; and they have believed that you sent me. (ESV)
+
+> **[John 14:23-24](https://www.biblegateway.com/passage/?search=John%2014%3A23-24&version=ESV)** - Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
 A person who has been forgiven much, loves much. So somebody who is forgiven by Jesus will love Jesus, and a person who loves Jesus will be "law of faith"-abiding (**[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**, **[Romans 3:27](https://www.biblegateway.com/passage/?search=Romans%203%3A27&version=ESV)**, **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)**, **[Matthew 13:41](https://www.biblegateway.com/passage/?search=Matthew%2013%3A41&version=ESV)**):
 
@@ -2280,9 +2289,27 @@ If we do what Jesus commands us then we will love one-another (**[John 15:14-17]
     if any man be occupied with these, he hath fulfilled the commandment
     of righteousness; for he that hath love is far from all sin.
 
-Those people who are set free from committing sin are disciples of Jesus Christ:
+Those people who are set free from committing sin are disciples of Jesus Christ who have love for their family in Christ:
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed [(G4100 pepisteukotas; having believed)](G4100) in him, **If** you abide [(G3306 meinēte; remain, abide, stay, continue, dwell, endure)](G3306) in my word, you are truly my disciples, and you will know the truth [(G225 alētheia; truth, reality; i.e. walking in reality)](G225), and the truth will set you free. (ESV)
+
+> **[John 17:8](https://www.biblegateway.com/passage/?search=John%2017%3A8&version=ESV)** - For I have given them the words that you gave me, and they have received them and have come to know in truth that I came from you; and they have believed that you sent me. (ESV)
+
+> **[John 14:23-24](https://www.biblegateway.com/passage/?search=John%2014%3A23-24&version=ESV)** - Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+> **[I John 3:3-11](https://www.biblegateway.com/passage/?search=1%20John%203%3A3-11&version=ESV)** - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. (ESV)
+
+> **[I John 3:13-16](https://www.biblegateway.com/passage/?search=1%20John%203%3A13-16&version=ESV)** - Do not be surprised, brothers, that the world hates you. We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+Someone who has true faith in Jesus Christ is somebody who loves the brethren (family in Christ):
+
+> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that **all may honor the Son, just as they honor the Father.** <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes [(G4100 pisteuo)](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/) him who sent me has eternal life</ins>. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has **passed from death to life**.
+
+> **[I John 3:13-16](https://www.biblegateway.com/passage/?search=1%20John%203%3A13-16&version=ESV)** - Do not be surprised, brothers, that the world hates you. We know that we have **passed out of death into life, because we love the brothers. Whoever does not love abides in death.** Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
 
 Jesus instructed His disciples to call no man on earth their "father". This instruction, therefore, is for the Christian. After all, Jesus' father was not Joseph and yet Jesus was able to keep the 5th commandment to honor father and mother, and Jesus said Himself that He honors His father, and says that His father is God. And Father God said that Jesus is His Son who He is well pleased with:
 
@@ -3687,7 +3714,7 @@ The believer went to work and their work may have abided or it may have burned u
 
 The believer is a "doer of the word" (**[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)**) who obeys the gospel and does good as opposed to evil (**[I Peter 4:12-19](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A12-19&version=ESV)**), after all Jesus Christ didn't do evil and so someone who is walking by faith in Jesus does good (**[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)**, **[John 3:16-21](https://www.biblegateway.com/passage/?search=John%203%3A16-21&version=ESV)**).
 
-> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
 There is a certain "performing" of one's salvation (**[Philippians 2:12-16](https://www.biblegateway.com/passage/?search=Philippians%202%3A12-16&version=ESV)**) that a Christian must do, and that is to **carry out** the process of sanctification (**[II Thessalonians 2:10-13](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A10-13&version=ESV)**, **[II Corinthians 3:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%203%3A18&version=ESV)**) by obedience to Jesus Christ (**[I Peter 1:14-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A14-25&version=ESV)**, **[II Corinthians 10:4-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A4-6&version=ESV)**).
 
@@ -6197,7 +6224,31 @@ John the Baptist's call of repentance, to repent, turn from sin, forsake sin and
 
 > **[Malachi 4:4-6](https://www.biblegateway.com/passage/?search=Malachi%204%3A4-6&version=ESV)** - Remember the law of my servant Moses, the statutes and rules that I commanded him at Horeb for all Israel. Behold, I will send you Elijah the prophet before the great and awesome day of the LORD comes. And he will turn the hearts of fathers to their children and the hearts of children to their fathers, lest I come and strike the land with a decree of utter destruction. (ESV)
 
-Our faith mustn't be a superficial faith but we must trust God's word and do it so that in time of testing we do not fall away:
+Having faith in Jesus, abiding in Him comandments, rather than committing sin, we come to know Him and Father God:
+
+> **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And by this we know that we have come to know him, if we keep his commandments. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+> **[I John 3:6](https://www.biblegateway.com/passage/?search=1%20John%203%3A6&version=ESV)** - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. (ESV)
+
+> **[I Corinthians 15:34](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A34&version=ESV)** - Wake up from your drunken stupor, as is right, and do not go on sinning. For some have no knowledge of God. I say this to your shame. (ESV)
+
+> **[I Timothy 2:4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A4&version=ESV)** - who desires all people to be saved and to come to the knowledge of the truth. (ESV)
+
+> **[II Timothy 2:25](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A25&version=ESV)** - correcting his opponents with gentleness. God may perhaps grant them repentance leading to a knowledge of the truth, (ESV)
+
+> **[II Peter 3:17-18](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A17-18&version=ESV)** - You therefore, beloved, knowing this beforehand, take care that you are not carried away with the error of lawless people and lose your own stability. But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and to the day of eternity. Amen. (ESV)
+
+> **[Philippians 3:8-11](https://www.biblegateway.com/passage/?search=Philippians%203%3A8-11&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. (ESV)
+
+> **[Jn 14:7](https://www.biblegateway.com/passage/?search=John%2014%3A7&version=ESV)**: If you had known me, you would have known my Father also. From now on you do know him and have seen him.
+
+Someone who has true faith in Jesus Christ is somebody who loves the brethren (family in Christ):
+
+> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that **all may honor the Son, just as they honor the Father.** <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes [(G4100 pisteuo)](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/) him who sent me has eternal life</ins>. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has **passed from death to life**.
+
+> **[I John 3:13-16](https://www.biblegateway.com/passage/?search=1%20John%203%3A13-16&version=ESV)** - Do not be surprised, brothers, that the world hates you. We know that we have **passed out of death into life, because we love the brothers. Whoever does not love abides in death.** Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+Our faith mustn't be a superficial faith but we must trust and treasure God's word and do it so that in time of testing we do not fall away:
 
 > **[Luke 8:13](https://www.biblegateway.com/passage/?search=Luke%208%3A13&version=ESV)** - And the ones on the rock are those who, when they hear the word, receive it with joy. But these have no root; they believe for a while, and in time of testing fall away. (ESV)
 
@@ -7600,6 +7651,10 @@ The way these Scriptures talk about "two in one bed, one will be taken and the o
         Spiritual fathers are seated with Christ in heavenly places and are born of God and do not sin. Christ who is in heaven is far from sinners, Hebrews says.
         
         Perhaps for a similar reason to why we might not make an oath because we cannot make one hair on our head white or black, we should not call any man father here on earth because the person we are talking to might be their flesh rather than the one born of God. How to know for sure they are your spiritual father unless they are walking in love speaking the same Jesus Christ and not committing sin and God has revealed it? Only God knows their heart for sure, and where everyone is positioned in His Kingdom.
+
+The Apostle Paul evidently was not a spiritual father to Andronicus and Junia as Paul was writing this:
+
+> **[Romans 16:7](https://www.biblegateway.com/passage/?search=Romans%2016%3A7&version=ESV)** - Greet Andronicus and Junia, my kinsmen and my fellow prisoners. They are well known to the apostles, and they were in Christ before me. (ESV)
 
 -   **God being our only Father:** The implanted word is the new person and this person agrees with who Jesus Christ is, and hears and agrees with what Jesus says, and so after first coming to believe in Jesus Christ we need to continue holding our faith in Him and renewing our mind which means thinking more and more like Jesus thinks and what He commands. The mind of the flesh is the mind of the previous person. The person born-again of the spirit needs to learn who their new family is in Christ, who their new brothers and sisters are in Christ, but we must reject the idea that we have 2 fathers. The person born of God has has only one father now and he is not on the earth but is in heaven. The person born of God doesn't identify with the flesh (which is like a tent), but rather with the new spirit that they have.
     In heaven, one's previous father, if there, would be "brother" or "friend".
@@ -14906,6 +14961,109 @@ As more evidence that justification is a state of righteousness which we don't c
 
 > **[Luke 18:9-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A9-14&version=ESV)** - He also told this parable to some who trusted in themselves that they were righteous, and treated others with contempt: Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be merciful to me, a sinner! I tell you, this man went down to his house justified, rather than the other. For everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
 
+-   ****[youtube.com:  Is Repentance Required To Be Saved ?! {@ medic4christ777 }](https://www.youtube.com/watch?v=mbSLLlyLhLo)**:** I commented,
+    
+    It's not possible to "rape in faith", or to "murder in faith", or to "bear false witness in faith", or to "worship a demon in faith".
+    When a person is believing in Jesus Christ, they are not committing sin.
+    
+    We repent by changing our mind to go from disbelief to belief in Jesus Christ, and we must not change mind back to unbelief as the Jews here in **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** had returned to unbelief, but rather we must continue believing in Jesus Christ:
+    
+    > **[Mark 1:14-15](https://www.biblegateway.com/passage/?search=Mark%201%3A14-15&version=ESV)** - Now after John was arrested, Jesus came into Galilee, proclaiming the gospel of God, and saying, The time is fulfilled, and the kingdom of God is at hand; repent and believe in the gospel. (ESV)
+    
+    It's possible to have sin/defilement while having faith:
+    
+    > **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Since we have these promises, beloved, let us cleanse ourselves from every defilement of body and spirit, bringing holiness to completion in the fear of God. (ESV)
+    
+    > **[I John 1:8](https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV)** - If we say we have no sin, we deceive ourselves, and the truth is not in us. (ESV)
+    
+    But it's not possible to simultaneously have faith while committing sin:
+    
+    > **[II Thessalonians 3:2](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A2&version=ESV)** - and that we may be delivered from wicked and evil men. For not all have faith. (ESV)
+    
+    > **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+    
+    > **[John 16:9](https://www.biblegateway.com/passage/?search=John%2016%3A9&version=ESV)** - concerning sin, because they do not believe in me; (ESV)
+    
+    > **[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
+    
+    And if a person's body does something they do not want while they are having faith (with good treasure in their heart, i.e. faith in Jesus), then it's not them who did it but it is sin in their flesh which did it: 
+    
+    > **[Romans 7:17-23](https://www.biblegateway.com/passage/?search=Romans%207%3A17-23&version=ESV)** - So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. (ESV)
+    
+    This lady had stopped sinning because she was worshiping Jesus:
+    
+    > **[Luke 7:39](https://www.biblegateway.com/passage/?search=Luke%207%3A39&version=ESV)** - Now when the Pharisee who had invited him saw this, he said to himself, If this man were a prophet, he would have known who and what sort of woman this is who is touching him, for she is a sinner. (ESV)
+    
+    The person who is born of God is seated in heavenly places with Christ and is not sinning:
+    
+    > **[I John 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**,8,9 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
+    
+    The saved person practices righteousness:
+    
+    > **[Romans 6:16-18](https://www.biblegateway.com/passage/?search=Romans%206%3A16-18&version=ESV)** - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. (ESV)
+    
+    We can say that we formerly were practitioners of sinning while we were unbelievers but by the grace of God no longer:
+    
+    > **[I Timothy 1:13](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A13&version=ESV)** - though formerly I was a blasphemer, persecutor, and insolent opponent. But I received mercy because I had acted ignorantly in unbelief, (ESV)
+    
+    > **[Romans 11:32](https://www.biblegateway.com/passage/?search=Romans%2011%3A32&version=ESV)**,35 - For God has consigned all to disobedience, that he may have mercy on all. Or who has given a gift to him that he might be repaid? (ESV)
+    
+    Jesus didn't commit sin. While having faith in Jesus we do His deeds which are good deeds:
+    
+    > **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+    
+    > **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+    
+    Turning to faith in Jesus Christ and His words and away from sin. Trusting in Jesus is not trusting in sin. Look away from evil and towards Jesus:
+    
+    > **[II Timothy 2:19](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A19&version=ESV)** - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and, Let everyone who names the name of the Lord depart from iniquity. (ESV)
+    
+    > **[Luke 6:49](https://www.biblegateway.com/passage/?search=Luke%206%3A49&version=ESV)** - But the one who hears and does not do them is like a man who built a house on the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that house was great. (ESV)
+    
+    See this video (seems to be made private presently, though):
+    
+    -   <https://youtube.com/watch?v=BRTki5haWIs&t=102> (youtube.com: Is repentance an aspect of faith, or is repentance a good work? {@ligonier} @time: 1 min 42 sec)
+    
+    If that video is down/private, here is an article from the same ministry:
+    
+    -   <https://learn.ligonier.org/articles/what-faith>
+    
+    Those who have faith in Jesus Christ are saved from committing sin:
+    
+    > **[John 1:12-13](https://www.biblegateway.com/passage/?search=John%201%3A12-13&version=ESV)** - But to all who did receive him, who believed in his name, he gave the right to become children of God, who were born, not of blood nor of the will of the flesh nor of the will of man, but of God. (ESV)
+    
+    > **[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
+    
+    John the Baptist also came in the "way of righteousness". John the Baptist preaching repentance is not contrary to Jesus' preaching. So while John the Baptist was preaching the truth, he himself preached to believe in Jesus Christ. In **[Matthew 21:24-32](https://www.biblegateway.com/passage/?search=Matthew%2021%3A24-32&version=ESV)**, Jesus said to some  "you did not believe him". Similarly, in **[John 5:42-47](https://www.biblegateway.com/passage/?search=John%205%3A42-47&version=ESV)**, Jesus said, "If you believed Moses, you would believe me, for he wrote of me". So if someone truly believes John the Baptist or Moses then they would believe Jesus. But we must come to Jesus (**[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)**):
+    
+    > **[II Peter 2:19-22](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A19-22&version=ESV)**, **[Matthew 21:24-32](https://www.biblegateway.com/passage/?search=Matthew%2021%3A24-32&version=ESV)**
+    
+    If a person loves Jesus then they will keep His commandments (i.e. while having a love for the truth, faith in Jesus, a person produces good deeds):
+    
+    > **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
+    
+    > **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+    
+    > **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+    
+    So repenting to have faith in Jesus, we then have good treasure in our heart and produce good rather than evil.
+    
+    We must continue in faith though:
+    
+    > **[II John 1:9-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-11&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his wicked works. (ESV)
+    
+    > **[Hebrews 10:37-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37-39&version=ESV)** - For, Yet a little while, and the coming one will come and will not delay; \_but my righteous one shall live by faith, and if he shrinks back, my soul has no pleasure in him. **But we are not of those who shrink back and are destroyed, but of those who have faith and preserve their souls**. (ESV)
+    
+    > **[I Peter 1:6-9](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A6-9&version=ESV)** - In this you rejoice, though now for a little while, if necessary, you have been grieved by various trials, so that the tested genuineness of your faith—more precious than gold that perishes though it is tested by fire—may be found to result in praise and glory and honor at the revelation of Jesus Christ. Though you have not seen him, you love him. Though you do not now see him, you believe in him and rejoice with joy that is inexpressible and filled with glory, obtaining the outcome of your faith, the salvation of your souls. (ESV)
+    
+    > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed **[(G4100 pepisteukotas; having believed)](G4100)** in him, If you abide **[(G3306 meinēte; remain, abide, stay, continue, dwell, endure)](G3306)** in my word, you are truly my disciples, and you will know the truth **[(G225 alētheia; truth, reality; i.e. walking in reality)](G225)**, and the truth will set you free. (ESV)
+
+I think there is "ongoing repentance" (ongoing mind-changing) as we continue being corrected by God; That is, not repenting away from the truth, but being corrected by God as we learn from Him:
+
+> **[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)** - It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— (ESV)
+
+> **[II Peter 3:17-18](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A17-18&version=ESV)** - You therefore, beloved, knowing this beforehand, take care that you are not carried away with the error of lawless people and lose your own stability. But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and to the day of eternity. Amen. (ESV)
+
 -   **[youtube.com: The Whole of the Christian Life Is Repentance {@ligonier}](https://www.youtube.com/shorts/TEWawYvV6Iw):** Most of you know the story of Martin
     Luther nailing his 95 theses to the door
     of the castle church in Wittenberg. The
@@ -16228,6 +16386,20 @@ If a person does not stop committing deliberate sin after receiving the knowledg
     to and repentance is the turning away from,
     and you can't have one without the
     other. I mean, it's a package deal.
+
+-   **[learn.ligonier.org:  What is Faith ? by Guy Richard](https://learn.ligonier.org/articles/what-faith):** My fear is that many of us in the church today may be dangerously close to
+    violating this precept in our preaching of the gospel. There is no question
+    that the call of the gospel is to believe in Jesus Christ, which is why our
+    preaching must regularly call people to faith. But if our preaching stops there
+    without ever calling people to repentance, it is dangerously close to
+    presenting a half-truth as though it were the whole truth. Repentance and faith
+    are inseparable. They are two sides of the same coin. Faith is the positive
+    side of turning to Christ, and repentance is the negative side of turning away
+    from sin. It is impossible to turn to Christ and to turn to sin, just as it is
+    impossible to travel in two different directions at the same time. By
+    definition, traveling east means not traveling west, and turning to Christ
+    correspondingly means not turning to sin. Faith and repentance necessarily go
+    together.
 
 I think the reason that repentance and faith work together like this is because saving faith is a faith that loves the truth, as opposed to hates the truth,
 where mere 'belief' could be either love or hate for the truth:
@@ -18960,7 +19132,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8b18e0b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge78c43c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -19902,6 +20074,20 @@ OK, so whoever keeps Jesus Christ's commandments abides in Him, so we should per
 
 > **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed [(G4100 pepisteukotas; having believed)](G4100) in him, **If** you abide [(G3306 meinēte; remain, abide, stay, continue, dwell, endure)](G3306) in my word, you are truly my disciples, and you will know the truth [(G225 alētheia; truth, reality; i.e. walking in reality)](G225), and the truth will set you free. (ESV)
 
+> **[John 17:8](https://www.biblegateway.com/passage/?search=John%2017%3A8&version=ESV)** - For I have given them the words that you gave me, and they have received them and have come to know in truth that I came from you; and they have believed that you sent me. (ESV)
+
+> **[John 14:23-24](https://www.biblegateway.com/passage/?search=John%2014%3A23-24&version=ESV)** - Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we will come to him and make our home with him. Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+Someone who has true faith in Jesus Christ is somebody who loves the brethren (family in Christ):
+
+> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that **all may honor the Son, just as they honor the Father.** <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes [(G4100 pisteuo)](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/) him who sent me has eternal life</ins>. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has **passed from death to life**.
+
+> **[I John 3:13-16](https://www.biblegateway.com/passage/?search=1%20John%203%3A13-16&version=ESV)** - Do not be surprised, brothers, that the world hates you. We know that we have **passed out of death into life, because we love the brothers. Whoever does not love abides in death.** Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
 We are also cleaned from sin if we walk in the light. There is a difference between "having sin" and "committing sin". A person can "have sin" and have faith at the same time. But a person can't "commit sin" and have faith at the same time. So walking in the light involves having faith rather than committing sin. Walking in the light, with faith and love for Jesus Christ not committing sin, a person is cleaned up:
 
 > **[I John 1:7](https://www.biblegateway.com/passage/?search=1%20John%201%3A7&version=ESV)** - But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
@@ -20303,6 +20489,9 @@ Father God, Who is greater than all, is One with Jesus Christ, His Son, His Word
     
     When people are looking at the face of Jesus,
     they are looking at the face of God.
+    
+    > **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+    
     Okay, bro. This is where it gets pretty
     amazing. I'm excited.
     So then, you fast forward to the
@@ -21021,9 +21210,19 @@ Jesus **always** does what is pleasing to Father God. And we are instructed to i
 
 > **[I Thessalonians 4:1-7](https://www.biblegateway.com/passage/?search=1%20Thessalonians%204%3A1-7&version=ESV)** - Finally, then, brothers, we ask and urge you in the Lord Jesus, that as you received from us how you ought to live and to please God, just as you are doing, **that you do so more and more**. For you know what instructions we gave you through the Lord Jesus. For this is the will of God, your sanctification: that you abstain from sexual immorality; that each one of you know how to control his own body in holiness and honor, not in the passion of lust like the Gentiles who do not know God; that no one transgress and wrong his brother in this matter, because the Lord is an avenger in all these things, as we told you beforehand and solemnly warned you. For God has not called us for impurity, but in holiness. (ESV)
 
-The work of God is to 'believe' on (have faith in) whom He (God) sent. This is the type of faith which even believes in Jesus and Jesus and produces saving obedience:
+Someone who has true faith in Jesus Christ is somebody who loves the brethren (family in Christ):
 
-> **[John 6:29](https://www.biblegateway.com/passage/?search=John%206%3A29&version=ESV)** - Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
+> **[John 5:21-24](https://www.biblegateway.com/passage/?search=John%205%3A21-24&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. The Father judges no one, but has given all judgment to the Son, that **all may honor the Son, just as they honor the Father.** <ins>Whoever does not honor the Son does not honor the Father who sent him</ins>. Truly, truly, I say to you, whoever <ins>hears my word and believes [(G4100 pisteuo)](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/) him who sent me has eternal life</ins>. He does not come (**[2064. erchomai](https://biblehub.com/greek/2064.htm)**) into judgment, but has **passed from death to life**.
+
+> **[I John 3:13-16](https://www.biblegateway.com/passage/?search=1%20John%203%3A13-16&version=ESV)** - Do not be surprised, brothers, that the world hates you. We know that we have **passed out of death into life, because we love the brothers. Whoever does not love abides in death.** Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+The work of God is to 'believe' on (have faith in) whom He (God) sent. I believe that this means that God works good deeds through those who are having faith in Him. This type of faith is a love for the truth, and coincides with a love of one's family in Christ. This is the type of faith which from faith in Jesus produces good deeds:
+
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 > **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
 
@@ -21037,7 +21236,7 @@ We must not let the devil steal the word of God from our hearts, but continue on
 
 Obedience is not strictly works unless we are referring to God's work that we are doing, God working through us:
 
-> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
 > **[I Corinthians 15:10](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A10&version=ESV)** - But by the grace of God I am what I am, and his grace toward me was not in vain. On the contrary, I worked harder than any of them, though it was not I, but the grace of God that is with me. (ESV)
 
@@ -24725,7 +24924,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgfba0e62).
+I didn't know but it turned out to be the last day of my [sentence](#orgd370caa).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -27389,7 +27588,7 @@ God works in us as we trust Him and His words and do them:
 
 > **[John 9:3-4](https://www.biblegateway.com/passage/?search=John%209%3A3-4&version=ESV)** - Jesus answered, It was not that this man sinned, or his parents, but that the works of God might be displayed in him. We must work the works of him who sent me while it is day; night is coming, when no one can work. (ESV)
 
-> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
 > **[Galatians 3:5-7](https://www.biblegateway.com/passage/?search=Galatians%203%3A5-7&version=ESV)** - Does he who supplies the Spirit to you and works miracles among you do so by works of the law, or by hearing with faith— just as Abraham believed God, and it was counted to him as righteousness? Know then that it is those of faith who are the sons of Abraham. (ESV)
 
@@ -39274,9 +39473,13 @@ Whoever trusts in Jesus Christ shouldn't perish, but they should have eternal li
 
 > **[John 3:16-21](https://www.biblegateway.com/passage/?search=John%203%3A16-21&version=ESV)** - For God so loved the world, that he gave his only Son, that whoever ([G3956 pas](https://www.blueletterbible.org/lexicon/g3956/kjv/tr/0-1/)) believes ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but **whoever does not believe is condemned already**, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But <ins>whoever does what is true comes to the light</ins>, so that <ins>it may be clearly seen that his deeds have been carried out in God</ins>. (ESV)
 
-The gospel *involves* having <ins>believing</ins> **and** <ins>obedient</ins> heart. The entrypoint is believing in Jesus Christ to be saved - that itself is an act of obedience.
+The gospel *involves* having <ins>believing</ins> **and** <ins>obedient</ins> heart. The entrypoint is believing in Jesus Christ to be saved - that itself is an act of obedience to the commandment of faith (**[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV)**):
 
 > **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 The obedience of heart:
 
@@ -48479,6 +48682,10 @@ Some people think that this obedience means it's no longer a free gift, where I 
 
 > **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
 True faith is always obedient; faith is always prepared to obey more:
 
 > **[John 7:17](https://www.biblegateway.com/passage/?search=John%207%3A17&version=ESV)**- If anyone's will is to do God's will, he will know whether the teaching is from God or whether I am speaking on my own authority.
@@ -49233,7 +49440,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org9fc1d5f)
+See: [33.4.1](#org4566146)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -51143,6 +51350,8 @@ Faith without work doesn't exist I think because the work of God is to believe o
 
 > **[John 6:29](https://www.biblegateway.com/passage/?search=John%206%3A29&version=ESV)** - Jesus answered them, This is the *work of God*, that you believe in him whom he has sent. (ESV)
 
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
 God worked in this person's life:
 
 > **[Romans 14:18-21](https://www.biblegateway.com/passage/?search=Romans%2014%3A18-21&version=ESV)** - Whoever thus serves Christ is acceptable to God and approved by men. So then let us pursue what makes for peace and for mutual upbuilding. Do not, for the sake of food, destroy the **work of God**. Everything is indeed clean, but it is wrong for anyone to make another stumble by what he eats. It is good not to eat meat or drink wine or do anything that causes your brother to stumble. (ESV)
@@ -51194,7 +51403,11 @@ Faith is obedient, so faith alone (without any work on our part) is <ins>obedien
 
 God's work happens through us when we are trusting in, trusting Jesus Christ:
 
-> **[John 6:29](https://www.biblegateway.com/passage/?search=John%206%3A29&version=ESV)** - Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 The penitent criminal on the cross next to Jesus had this saving faith in Jesus, as did Zacchaeus ([Luke 19:8-9](https://www.biblegateway.com/passage/?search=Luke%2019%3A8-9&version=ESV)).
 
@@ -52415,6 +52628,10 @@ Without love, faith is dead:
 
 > **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
 `pisteuo` is obedient faith as it is the verb for faith (pistis).
 
 > **[James 2:22-26](https://www.biblegateway.com/passage/?search=James%202%3A22-26&version=ESV)** - You see that **faith was active along with his works, and faith was completed by his works**; and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him as righteousness-and he was called a friend of God. You see that a person is justified by works and not by faith alone. And in the same way was not also Rahab the prostitute justified by works when she received the messengers and sent them out by another way? For as the body apart from the spirit is dead, so also faith apart from works is dead. (ESV)
@@ -52426,6 +52643,10 @@ Without faith, work is dead. Whatever actions we make outside of faith is sin:
 But the work of God is to believe in whom He has sent. So even believing in Jesus is work that is done in faith:
 
 > **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 
 ### Faith vector illustration
@@ -55500,7 +55721,11 @@ We should seek to build one another up rather than damage our neighbour's faith 
 
 The work of God in trusting in Jesus:
 
-> **[John 6:29](https://www.biblegateway.com/passage/?search=John%206%3A29&version=ESV)** - Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 > **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
 
@@ -56654,17 +56879,35 @@ MERCY.
 
 MERCY.
 
-Faith without work is dead; it's useless.
+Faith without deeds is inanimate, as in "non-impactful".
 
-That person is completely at the mercy of Jesus and of the saints, I think.
+With true faith, God does deeds through the person who has faith in Him:
+
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+> **[Philippians 2:13](https://www.biblegateway.com/passage/?search=Philippians%202%3A13&version=ESV)** - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
+
+Work may burn up but the person who has faith in Jesus Christ is still saved:
 
 > **[1 Corinthians 3:15](https://www.biblegateway.com/passage/?search=1%20Corinthians%203%3A15&version=ESV)** - If anyone's work is burned up, he will suffer loss, though he himself will be saved, but only as through fire. (ESV)
 
-But having true faith in Jesus is work.
+God **saves** those who are justified by faith in Jesus Christ. God saves a person **as** they are holding faith:
 
-Sometimes a person's work is all burned up but they are **still saved**.
+> **[Romans 5:9](https://www.biblegateway.com/passage/?search=Romans%205%3A9&version=ESV)** - Since, therefore, we have now been justified by his blood, much more shall we be saved by him from the wrath of God. (ESV)
+
+> **[Acts 16:31](https://www.biblegateway.com/passage/?search=Acts%2016%3A31&version=ESV)** - And they said, Believe in the Lord Jesus, and you will be saved, you and your household. (ESV)
+
+By grace we are saved, being saved, will be saved, through faith in Jesus Christ. The works which those who have faith in Jesus Christ do were prepared for me in advance that they should walk in them.
+
+> **[Ephesians 2:8-10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A8-10&version=ESV)** - For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
+
+Sometimes a person's work is all burned up but they are **still saved**:
 
 > **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 1.  Salvation is through grace alone, but through sanctification by the Spirit and faith in the truth, which is cooperative
 
@@ -63086,7 +63329,11 @@ We have to do the will of the Father to enter - receive Jesus, have faith in Him
 
 > **[Matthew 21:27-32](https://www.biblegateway.com/passage/?search=Matthew%2021%3A27-32&version=ESV)** - So they answered Jesus, We do not know. And he said to them, Neither will I tell you by what authority I do these things. What do you think? A man had two sons. And he went to the first and said, **Son, go and work in the vineyard today. And he answered, I will not, but afterward he changed his mind and went.** And he went to the other son and said the same. And he answered, I go, sir, but did not go. Which of the two did the will of his father? They said, The first. Jesus said to them, Truly, I say to you, the tax collectors and the prostitutes go into the **kingdom of God** before you. For John came to you in the way of righteousness, and you did not believe him, but the tax collectors and the prostitutes believed him. And even when you saw it, you did not afterward change your minds and believe him. (ESV)
 
-> **[John 6:29](https://www.biblegateway.com/passage/?search=John%206%3A29&version=ESV)** - Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 > **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
 
@@ -63378,6 +63625,10 @@ Whoever believes in Jesus.
 
 > **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
 Whoever believes in him who God has sent.
 
 
@@ -63445,9 +63696,58 @@ He is the Way, the Truth and the Life.
 
 > **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+John 6:56 Talks about a person who is "presently" eating of the flesh of Jesus Christ and drinking of His blood. This is meant to be an ongoing and thing, I believe. Who ever is abiding in Jesus **is** presently eating of the flesh of Jesus Christ and drinking of His blood. It's not just merely discrete event which happens on a Sunday through the Lord's supper, but should, like faith, be happening continuously:
+
+-   **[John 6:56](https://biblehub.com/interlinear/john/6-56.htm) (Interlinear):** the [one] [(G3588 ho)](G3588)
+    eating [(G5176 trōgōn)](G5176)
+    of me [(G1473 mou)](G1473)
+    the [(G3588 tēn)](G3588)
+    flesh [(G4561 sarka)](G4561)
+    and [(G2532 kai)](G2532)
+    drinking [(G4095 pinōn)](G4095)
+    of me [(G1473 mou)](G1473)
+    the [(G3588 to)](G3588)
+    blood [(G129 haima)](G129)
+    in [(G1722 en)](G1722)
+    me [(G1473 emoi)](G1473)
+    abides [(G3306 menei)](G3306)
+    and I [(G2504 kagō)](G2504)
+    in [(G1722 en)](G1722)
+    him [(G846 autō)](G846)
+
+Being joined to the Lord, a person eats of His flesh and drinks of His blood. And in eating of His flesh and drinking of His blood, a person abides in Him:
+
 > **[John 6:56](https://www.biblegateway.com/passage/?search=John%206%3A56&version=ESV)** - He who eats My flesh and drinks My blood abides in Me, and I in him.
 
-Get intimate with Jesus - **really** intimate.
+> **[Matthew 26:26-29](https://www.biblegateway.com/passage/?search=Matthew%2026%3A26-29&version=ESV)** - Now as they were eating, Jesus took bread, and after blessing it broke it and gave it to the disciples, and said, Take, eat; this is my body. And he took a cup, and when he had given thanks he gave it to them, saying, Drink of it, all of you, for this is my blood of the covenant, which is poured out for many for the forgiveness of sins. I tell you I will not drink again of this **fruit of the vine** until that day when I drink it new with you in my Father's kingdom. (ESV)
+
+> **[I Corinthians 6:16-17](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A16-17&version=ESV)** - Or do you not know that he who is joined to a prostitute becomes one body with her? For, as it is written, The two will become one flesh. But he who is joined to the Lord becomes one spirit with him. (ESV)
+
+Abiding in Jesus' commandments has to be "continually";
+
+> **[I John 3:24](https://www.biblegateway.com/passage/?search=1%20John%203%3A24&version=ESV)** - **Whoever keeps his commandments abides in him, and he in them.** And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+> **[John 15:1-6](https://www.biblegateway.com/passage/?search=John%2015%3A1-6&version=ESV)** - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned. (ESV)
+
+So we must get intimate with Jesus - **really** intimate - through abiding in His teachings and commandments, and walk in faith, and get to know Jesus.
+
+> **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And by this we know that we have come to know him, if we keep his commandments. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
+
+> **[I John 3:6](https://www.biblegateway.com/passage/?search=1%20John%203%3A6&version=ESV)** - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. (ESV)
+
+> **[I Corinthians 15:34](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A34&version=ESV)** - Wake up from your drunken stupor, as is right, and do not go on sinning. For some have no knowledge of God. I say this to your shame. (ESV)
+
+> **[I Timothy 2:4](https://www.biblegateway.com/passage/?search=1%20Timothy%202%3A4&version=ESV)** - who desires all people to be saved and to come to the knowledge of the truth. (ESV)
+
+> **[II Timothy 2:25](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A25&version=ESV)** - correcting his opponents with gentleness. God may perhaps grant them repentance leading to a knowledge of the truth, (ESV)
+
+> **[II Peter 3:17-18](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A17-18&version=ESV)** - You therefore, beloved, knowing this beforehand, take care that you are not carried away with the error of lawless people and lose your own stability. But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and to the day of eternity. Amen. (ESV)
+
+> **[Philippians 3:8-11](https://www.biblegateway.com/passage/?search=Philippians%203%3A8-11&version=ESV)** - Indeed, I count everything as loss because of the surpassing worth of knowing Christ Jesus my Lord. For his sake I have suffered the loss of all things and count them as rubbish, in order that I may gain Christ and be found in him, not having a righteousness of my own that comes from the law, but that which comes through faith in Christ, the righteousness from God that depends on faith— that I may know him and the power of his resurrection, and may share his sufferings, becoming like him in his death, that by any means possible I may attain the resurrection from the dead. (ESV)
 
 I believe this means to become a disciple of Jesus and become one in spirit with Jesus; to think like Jesus, to walk as Jesus walked, to love God and obey God as Jesus did, even if one is persecuted for being righteous as happened to Jesus, to do as Jesus commanded, to become one in spirit with Jesus. Also, taking communion is about that.
 
@@ -70743,7 +71043,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org9fc1d5f)
+See: [33.4.1](#org4566146)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -73397,7 +73697,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org51c7485) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orge3fba97) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -75413,7 +75713,11 @@ Being "generous" and "ready to share" are heart attitudes and as we practice the
 
 ### 
 
-> **[John 6:29](https://www.biblegateway.com/passage/?search=John%206%3A29&version=ESV)** - Jesus answered them, This is the work of God, that you believe in him whom he has sent. (ESV)
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+> **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 > **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
 
@@ -81734,7 +82038,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org51c7485) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orge3fba97) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -83072,7 +83376,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org5112082)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org04d0e96)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
