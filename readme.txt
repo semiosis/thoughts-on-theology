@@ -16240,6 +16240,185 @@ have stopped committing sin. Someone who commits sin doesn't remain in the house
 immediately cast out. But a person must put sin to death by sanctification in order to remain in God's house
 forever. God's will for us is our sanctification. The one who does the will of God abides forever.
 
+youtube.com: Comment from @ QuestR - Tv {@ holynope }
+
+I commented,
+
+At 9:09 @holynope says that Acts 10:43 does not define remission as a personal cessation of sin, but as a
+declaration of forgiveness grounded in the blood of Christ.
+
+However, to clarify, it is through "faith" in the blood of Christ we receive propitiation:
+
+  Romans 3:25 - whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
+
+Real faith coincides with a personal cessation of sin:
+
+  Acts 10:41-44 - not to all the people but to us who had been chosen by God as witnesses, who ate and drank with
+  him after he rose from the dead. And he commanded us to preach to the people and to testify that he is the one
+  appointed by God to be judge of the living and the dead. To him all the prophets bear witness that everyone who
+  believes in him receives forgiveness of sins through his name. While Peter was still saying these things, the
+  Holy Spirit fell on all who heard the word. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+I used an analogy in a separate comment for the difference between "having and committing sin" because 1 John 1:8
+talks about "having" sin rather than committing it, but I've noticed people wrongly taking it to say "if we say we
+do not sin", which is not what it says linguistically.
+
+If a person bangs up their car while using it in a destruction derby, then they "sin against the car". If they
+"stop using it in a destruction derby" then they "stop sinning against the car". But the car might still have
+damage. Likewise, even if a person "stops sinning", they may still have damage from having sinned.
+
+Therefore we can say that the lady in Luke 7:39 was not sinning because she was having faith. This lady had
+"stopped sinning".
+
+When a person is faithing, they are not sinning. When a person is sinning, they are not having faith. We need real
+faith in God, in Jesus Christ, in Jesus Christ's blood to have justification. And we need justification to have
+sanctification. So yes, remission of sin is directly linked to having faith and therefore to having "stopped
+sinning".
+
+John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I am
+here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he will
+never see death. (ESV)
+
+8:26 Repentance is also linked directly to forgiveness of sins. It's not only Christ's death and resurrection
+which is linked to forgiveness of sins, but also repentance and faith, and abiding in Jesus Christ.
+
+God does not sin. The word of God does not sin. The "good seed" are the children of the Kingdom. Good seed by
+which with which the "good soil" gets "born again" is the word of God sown by the Son of Man. The one born of God
+by the good seed does not sin, and they are seated in heavenly places with Christ. But a person's deeds sometimes
+come from sin rather from the person who is born of God, as Romans 7 shows.
+
+It would seem as though that when a person claims to no longer sin, they are declaring themselves to be the one
+born of God, and are declaring themselves to have the faith presently that God is presently pleased with.
+
+So the way I see it is that seed of the word of God inside me became the new person who is the true me now. Yet
+Paul says that nothing good dwells in his flesh, and also says that God will destroy the stomach (1 Corinthians
+6:13), that Christ has condemned sin in the flesh. So while still in the flesh, and while not having the flesh
+under control (James says the perfect man bridles his body), the person is susceptible to doing deeds not from
+their inward desire to do good, but deeds originating from sin.
+
+But the one born of God is not a sinner, and does not continue sinning. Claiming to be the person "born of God" is
+a "big call",
+
+and is practically synonymous with saying that "I have faith", "I am not committing sin", "I claim to be pleasing
+to God presently", because the one born of God doesn't sin, and agrees with the person and work of Jesus Christ
+and loves as commanded, so if a person were to make that testimony alone, their testimony wouldn't be credible. I
+would need God's testimony about me, as Jesus Christ had about Him, in order to make it credible.
+
+I John 3:3-11 - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice
+of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him
+there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or
+known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning.
+The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of
+sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it
+is evident who are the children of God, and who are the children of the devil: whoever does not practice
+righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have
+heard from the beginning, that we should love one another. (ESV)
+
+God does save people by making it so that they are no longer slaves to sin.
+
+I feel as though @willforthelord and @holynope could reconcile their teaching with some correction.
+
+Hold fast to what we have attained already (Philippians 3:12-21), and continue integrating more of the truth,
+taking captive every thought for obedience to Christ Jesus, until one's obedience is complete (II Corinthians
+10:5-6, Matthew 5:43-48), but continuing on also.
+
+The one born of God who is seated with Christ in heavenly places (Ephesians 2:6), far from sinners (Hebrews 7:26),
+simultaneously agrees with and speaks the truth about Jesus Christ (I John 4:15, I John 4:3), and they love as
+commanded and they do not sin (I John 5:18). The one born of God is not a sinner by nature (I Peter 4:12-19,
+Ephesians 2:1-3, Ephesians 2:4-9).
+
+Ephesians 2:1-3, Ephesians 2:4-9, Hebrews 7:26, 1Jn 3:4,6,8,9
+
+I John 5:18
+
+While in the flesh (Romans 7:16-20) there is a struggle with the flesh, but we still do need to be/become the one
+who is born of God, and so we should certainly strive to do this, abstaining from sin, overcomig evil with good,
+loving as commanded, abiding in the teaching of and about Jesus Christ. As a believer is holding their faith in
+Jesus Christ, coming to Jesus, they are retaining God's word, God's seed, and they will at some point (John
+11:25-27) die and be born-again while they are believing and become the new person who has been born of the seed
+of the word of God. The good seed are the children of the Kingdom of God and the good plants which came from the
+good seed are the oaks of righteousness (Isaiah 61:3) who have been created in Christ Jesus for good works
+(Ephesians 2:1-10) and need to be bearers of good fruit. The seed needs to die (I Corinthians 15:36), a believer
+needs to get born-again at some point that they may bear fruit for God:
+
+II Corinthians 10:5-6, Romans 7:16-20, Romans 7:10-11
+
+A person who is good soil (Luke 8:15) is somebody of the world (John 17:6) which is the field (i.e. the world is
+the field). But this good soil from the world receives and hold fast the seed of the word of God (i.e. so they are
+a believer, treasuring the word of God) and eventually will bear good fruit for God. But we need to be born-again
+in order to bear fruit. So that person will get born-again as they are believing. So the good soil gets born-again
+of the good seed in order to bear fruit for God (Romans 7:1-12).
+
+As Romans 7:1-12 describes, we need Jesus to be our Master (as opposed to Mosaic Law) in order to bear fruit for
+God. So the good soil believer of the field of the world, with indwelling sin empowered by the Law, dies due to
+the sin, but since they are a believer, they are born-again. They are baptized into Christ's death (Romans 6:3-8)
+and they are born-again.
+
+John 11:25-27
+
+So a person needs to be both the good soil and have the seed of the word of God in them, and they need to be
+born-again of that seed in order to bear good fruit for God.
+
+If a person is not a good soil believer (the rocky ground, or the path, or among thorns) then they won't continue
+on in faith to bearing good fruit (Luke 8:11-15). So then, a person can clearly be a believer for a while (Luke
+8:11-15) and stop being a believer (John 8:31-47) but Jesus did instruct such people that if they abide (remain)
+in His word then they would become set free from sin.
+
+And I doubt such a person had ever been "born-again", as a person who has been born-again has died and been
+aquitted (some translations say 'set free') from sin (Romans 6:6-8). A born-again person still does need to go on
+in faith in Jesus Christ to never die (John 11:25-27) and that means also not going back to sin (II Peter 2:20-22)
+and whatever does not proceed from faith is sin. A born-again person, if they go on as a believer they will never
+die.
+
+But it's clearly possible for a person to be a believer for a while and not end up bearing fruit. A person needs
+to be born-again in order to bear fruit.
+
+That a person may "fall away" from faith is evident again here in John 8:31-47. Here we can see that there were
+some Jews who had believed in Jesus Christ but who went on to then hate Jesus and so not believe, and so in not
+believing anymore the devil had taken the word of God from their heart (Luke 8:12-15). They then desired to do the
+devil's will. Jesus instructed them to continue in His word to become set free from sin:
+
+John 8:31-47
+
+So we need to be a "good soil believer" who is presently believing God's word, in order to get born-again in order
+to bear good fruit for God in Christ:
+
+Romans 7:1-12
+
+That person who is the good soil gets born again (John 11:25-27, I Peter 1:3) at some stage as they are believing
+(John 11:25-27) the word of God.
+
+youtube.com: Comment from @ QuestR - Tv {@ holynope }
+
+Somebody commented the verse 1 John 1:8:
+
+ | “If we say that we have no sin, we deceive ourselves, and the truth is not in us.”
+ | ([[https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV][1 John 1:8]], KJV)
+
+I replied,
+
+This verse is talking about "having" sin, rather than committing it. When a person commits theft they then have
+the sin of theft. A person who has committed sin is inclined to then sin again. But Jesus can set us free from sin
+so that we are no longer inclined to sin again.
+
+Here is an analogy of the difference between "having and committing sin":
+
+If a person bangs up their car while using it in a destruction derby, then they "sin against the car". If they
+"stop using it in a destruction derby" then they "stop sinning against the car". But the car might still have
+damage. Likewise, even if a person "stops sinning", they may still have damage from having sinned.
+
+This is how I have understood this verse, anyway.
+
 For the unsaved, all sin leads to death:
 
   Romans 2:12 - For all who have sinned without the law will also perish without the law, and all who have sinned
@@ -140339,11 +140518,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-24 Thu 12:32
+Date: 2026-09-24 Thu 15:05
 
 Author: Shane Mulligan
 
-Created: 2026-09-24 Thu 12:53
+Created: 2026-09-24 Thu 15:32
 
 Validate
 

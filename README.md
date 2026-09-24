@@ -8215,6 +8215,115 @@ How to abide in Jesus:
 
 When a person gets born-again, they stop sinning because God heals the heart and soul. But the Apostle Paul talks about "having indwelling sin" and the Apostle John about "having sin". So just because a person has stopped making more sin, we still "have it". After all, no-one can suprass the holiness of God. Even the heavens are not pure in God's sight. So a person may still have damage from sin and this is what is meant by "having sin" (**[I John 1:6-10](https://www.biblegateway.com/passage/?search=1%20John%201%3A6-10&version=ESV)**). The person receives a new heart and spirit, but "indwelling sin in the flesh" remains an issue.  If a person commits sin after getting born-again then that is not wise or good because committing sin enslaves a person to sin, but we still have Jesus Christ as our advocate with Father God, and He can help us put the sin to death. But we really do need to stop committing sin. The more knowledge of the truth a person has the more important it is to have stopped committing sin. Someone who commits sin doesn't remain in the house forever. It doesn't mean they're immediately cast out. But a person must put sin to death by sanctification in order to remain in God's house forever. God's will for us is our sanctification. The one who does the will of God abides forever.
 
+-   **[youtube.com:  Comment from @ QuestR - Tv {@ holynope }](https://www.youtube.com/watch?v=zmc_UwDRKEY&lc=UgxPIm6Rst2hOyhVuIt4AaABAg):** I commented,
+    
+    At 9:09 @holynope says that [Acts 10:43](https://www.biblegateway.com/passage/?search=Acts%2010%3A43&version=ESV) does not define remission as a personal cessation of sin, but as a declaration of forgiveness grounded in the blood of Christ.
+    
+    However, to clarify, it is through "faith" in the blood of Christ we receive propitiation:
+    
+    > **[Romans 3:25](https://www.biblegateway.com/passage/?search=Romans%203%3A25&version=ESV)** - whom God put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
+    
+    Real faith coincides with a personal cessation of sin:
+    
+    > **[Acts 10:41-44](https://www.biblegateway.com/passage/?search=Acts%2010%3A41-44&version=ESV)** - not to all the people but to us who had been chosen by God as witnesses, who ate and drank with him after he rose from the dead. And he commanded us to preach to the people and to testify that he is the one appointed by God to be judge of the living and the dead. To him all the prophets bear witness that **everyone who believes in him receives forgiveness of sins through his name.** While Peter was still saying these things, **the Holy Spirit** fell on all who heard the word. (ESV)
+    
+    > **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+    
+    > **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+    
+    I used an analogy in a separate comment for the difference between "having and committing sin" because [1 John 1:8](https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV) talks about "having" sin rather than committing it, but I've noticed people wrongly taking it to say "if we say we do not sin", which is not what it says linguistically.
+    
+    If a person bangs up their car while using it in a destruction derby, then they "sin against the car". If they "stop using it in a destruction derby" then they "stop sinning against the car". But the car might still have damage. Likewise, even if a person "stops sinning", they may still have damage from having sinned.
+    
+    Therefore we can say that the lady in [Luke 7:39](https://www.biblegateway.com/passage/?search=Luke%207%3A39&version=ESV) was not sinning because she was having faith.
+    This lady had "stopped sinning".
+    
+    When a person is faithing, they are not sinning. When a person is sinning, they are not having faith.
+    We need real faith in God, in Jesus Christ, in Jesus Christ's blood to have justification.
+    And we need justification to have sanctification.
+    So yes, remission of sin is directly linked to having faith and therefore to having "stopped sinning".
+    
+    [John 8:34-35](https://www.biblegateway.com/passage/?search=John%208%3A34-35&version=ESV),36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+    
+    8:26  Repentance is also linked directly to forgiveness of sins. It's not only Christ's death and resurrection which is linked to forgiveness of sins, but also repentance and faith, and abiding in Jesus Christ.
+    
+    God does not sin.
+    The word of God does not sin.
+    The "good seed" are the children of the Kingdom.
+    Good seed by which with which the "good soil" gets "born again" is the word of God sown by the Son of Man. 
+    The one born of God by the good seed does not sin, and they are seated in heavenly places with Christ.
+    But a person's deeds sometimes come from sin rather from the person who is born of God, as Romans 7 shows.
+    
+    It would seem as though that when a person claims to no longer sin, they are declaring themselves to be the one born of God, and are declaring themselves to have the faith presently that God is presently pleased with.
+    
+    So the way I  see it is that seed of the word of God inside me became the new person who is the true me now.
+    Yet Paul says that nothing good dwells in his flesh, and also says that God will destroy the stomach ([1 Corinthians 6:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A13&version=ESV)), that Christ has condemned sin in the flesh. So while still in the flesh, and while not having the flesh under control (James says the perfect man bridles his body), the person is susceptible to doing deeds not from their inward desire to do good, but deeds originating from sin.
+    
+    But the one born of God is not a sinner, and does not continue sinning.
+    Claiming to be the person "born of God" is a "big call",
+    
+    and is practically synonymous with saying that "I have faith", "I am not committing sin", "I claim to be pleasing to God presently",
+    because the one born of God doesn't sin, and agrees with the person and work of Jesus Christ and loves as commanded,
+    so if a person were to make that testimony alone, their testimony wouldn't be credible.
+    I would need God's testimony about me, as Jesus Christ had about Him, in order to make it credible.
+    
+    [I John 3:3-11](https://www.biblegateway.com/passage/?search=1%20John%203%3A3-11&version=ESV) - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. (ESV)
+    
+    God does save people by making it so that they are no longer slaves to sin.
+    
+    I feel as though @willforthelord and @holynope could reconcile their teaching with some correction.
+    
+    Hold fast to what we have attained already ([Philippians 3:12-21](https://www.biblegateway.com/passage/?search=Philippians%203%3A12-21&version=ESV)), and continue integrating more of the truth, taking captive every thought for obedience to Christ Jesus, until one's obedience is complete ([II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV), [Matthew 5:43-48](https://www.biblegateway.com/passage/?search=Matthew%205%3A43-48&version=ESV)), but continuing on also.
+    
+    The one born of God who is seated with Christ in heavenly places ([Ephesians 2:6](https://www.biblegateway.com/passage/?search=Ephesians%202%3A6&version=ESV)), far from sinners ([Hebrews 7:26](https://www.biblegateway.com/passage/?search=Hebrews%207%3A26&version=ESV)), simultaneously agrees with and speaks the truth about Jesus Christ ([I John 4:15](https://www.biblegateway.com/passage/?search=1%20John%204%3A15&version=ESV), [I John 4:3](https://www.biblegateway.com/passage/?search=1%20John%204%3A3&version=ESV)), and they love as commanded and they do not sin ([I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)). The one born of God is not a sinner by nature (I Peter 4:12-19, [Ephesians 2:1-3](https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-3&version=ESV), [Ephesians 2:4-9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A4-9&version=ESV)).
+    
+    [Ephesians 2:1-3](https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-3&version=ESV), [Ephesians 2:4-9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A4-9&version=ESV), [Hebrews 7:26](https://www.biblegateway.com/passage/?search=Hebrews%207%3A26&version=ESV), [1Jn 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV),6,8,9
+    
+    [I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)
+    
+    While in the flesh ([Romans 7:16-20](https://www.biblegateway.com/passage/?search=Romans%207%3A16-20&version=ESV)) there is a struggle with the flesh, but we still do need to be/become the one who is born of God, and so we should certainly strive to do this, abstaining from sin, overcomig evil with good, loving as commanded, abiding in the teaching of and about Jesus Christ. As a believer is holding their faith in Jesus Christ, coming to Jesus, they are retaining God's word, God's seed, and they will at some point ([John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)) die and be born-again while they are believing and become the new person who has been born of the seed of the word of God. The good seed are the children of the Kingdom of God and the good plants which came from the good seed are the oaks of righteousness (Isaiah 61:3) who have been created in Christ Jesus for good works (Ephesians 2:1-10) and need to be bearers of good fruit. The seed needs to die (I Corinthians 15:36), a believer needs to get born-again at some point that they may bear fruit for God:
+    
+    [II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV), [Romans 7:16-20](https://www.biblegateway.com/passage/?search=Romans%207%3A16-20&version=ESV), [Romans 7:10-11](https://www.biblegateway.com/passage/?search=Romans%207%3A10-11&version=ESV)
+    
+    A person who is good soil ([Luke 8:15](https://www.biblegateway.com/passage/?search=Luke%208%3A15&version=ESV)) is somebody of the world (John 17:6) which is the field (i.e. the world is the field). But this good soil from the world receives and hold fast the seed of the word of God (i.e. so they are a believer, treasuring the word of God) and eventually will bear good fruit for God. But we need to be born-again in order to bear fruit. So that person will get born-again as they are believing. So the good soil gets born-again of the good seed in order to bear fruit for God ([Romans 7:1-12](https://www.biblegateway.com/passage/?search=Romans%207%3A1-12&version=ESV)).
+    
+    As [Romans 7:1-12](https://www.biblegateway.com/passage/?search=Romans%207%3A1-12&version=ESV) describes, we need Jesus to be our Master (as opposed to Mosaic Law) in order to bear fruit for God. So the good soil believer of the field of the world, with indwelling sin empowered by the Law, dies due to the sin, but since they are a believer, they are born-again. They are baptized into Christ's death ([Romans 6:3-8](https://www.biblegateway.com/passage/?search=Romans%206%3A3-8&version=ESV)) and they are born-again.
+    
+    [John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)
+    
+    So a person needs to be both the good soil and have the seed of the word of God in them, and they need to be born-again of that seed in order to bear good fruit for God.
+    
+    If a person is not a good soil believer (the rocky ground, or the path, or among thorns) then they won't continue on in faith to bearing good fruit ([Luke 8:11-15](https://www.biblegateway.com/passage/?search=Luke%208%3A11-15&version=ESV)). So then, a person can clearly be a believer for a while ([Luke 8:11-15](https://www.biblegateway.com/passage/?search=Luke%208%3A11-15&version=ESV)) and stop being a believer ([John 8:31-47](https://www.biblegateway.com/passage/?search=John%208%3A31-47&version=ESV)) but Jesus did instruct such people that if they abide (remain) in His word then they would become set free from sin.
+    
+    And I doubt such a person had ever been "born-again", as a person who has been born-again has died and been aquitted (some translations say 'set free') from sin ([Romans 6:6-8](https://www.biblegateway.com/passage/?search=Romans%206%3A6-8&version=ESV)). A born-again person still does need to go on in faith in Jesus Christ to never die ([John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)) and that means also not going back to sin (II Peter 2:20-22) and whatever does not proceed from faith is sin. A born-again person, if they go on as a believer they will never die.
+    
+    But it's clearly possible for a person to be a believer for a while and not end up bearing fruit. A person needs to be born-again in order to bear fruit.
+    
+    That a person may "fall away" from faith is evident again here in [John 8:31-47](https://www.biblegateway.com/passage/?search=John%208%3A31-47&version=ESV). Here we can see that there were some Jews who had believed in Jesus Christ but who went on to then hate Jesus and so not believe, and so in not believing anymore the devil had taken the word of God from their heart ([Luke 8:12-15](https://www.biblegateway.com/passage/?search=Luke%208%3A12-15&version=ESV)). They then desired to do the devil's will. Jesus instructed them to continue in His word to become set free from sin:
+    
+    [John 8:31-47](https://www.biblegateway.com/passage/?search=John%208%3A31-47&version=ESV)
+    
+    So we need to be a "good soil believer" who is presently believing God's word, in order to get born-again in order to bear good fruit for God in Christ:
+    
+    [Romans 7:1-12](https://www.biblegateway.com/passage/?search=Romans%207%3A1-12&version=ESV)
+    
+    That person who is the good soil gets born again ([John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV), [I Peter 1:3](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A3&version=ESV)) at some stage as they are believing ([John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)) the word of God.
+
+-   **[youtube.com:  Comment from @ QuestR - Tv {@ holynope }](https://www.youtube.com/watch?v=zmc_UwDRKEY&lc=UgxPIm6Rst2hOyhVuIt4AaABAg):** Somebody commented the verse [1 John 1:8](https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV):
+    
+        1  “If we say that we have no sin, we deceive ourselves, and the truth is not in us.”
+        2  ([[https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV][1 John 1:8]], KJV) 
+    
+    I replied,
+    
+    This verse is talking about "having" sin, rather than committing it. When a person commits theft they then have the sin of theft. A person who has committed sin is inclined to then sin again. But Jesus can set us free from sin so that we are no longer inclined to sin again.
+    
+    Here is an analogy  of the difference between "having and committing sin":
+    
+    If a person bangs up their car while using it in a destruction derby, then they "sin against the car". If they "stop using it in a destruction derby" then they "stop sinning against the car". But the car might still have damage. Likewise, even if a person "stops sinning", they may still have damage from having sinned.
+    
+    This is how I have understood this verse, anyway.
+
 For the unsaved, all sin leads to death:
 
 > **[Romans 2:12](https://www.biblegateway.com/passage/?search=Romans%202%3A12&version=ESV)** - For all who have sinned without the law will also perish without the law, and all who have sinned under the law will be judged by the law. (ESV)
@@ -18851,7 +18960,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9a7fc79) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8b18e0b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24616,7 +24725,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orged0afbd).
+I didn't know but it turned out to be the last day of my [sentence](#orgfba0e62).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -49124,7 +49233,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgdc00750)
+See: [33.4.1](#org9fc1d5f)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -70634,7 +70743,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgdc00750)
+See: [33.4.1](#org9fc1d5f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -73288,7 +73397,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org97caadd) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org51c7485) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -81625,7 +81734,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org97caadd) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org51c7485) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82963,7 +83072,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org143c710)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org5112082)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
