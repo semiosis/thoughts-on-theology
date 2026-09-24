@@ -2292,6 +2292,32 @@ Jesus instructed His disciples to call no man on earth their "father". This inst
 
 > **[Matthew 8:21-22](https://www.biblegateway.com/passage/?search=Matthew%208%3A21-22&version=ESV)** - Another of the disciples said to him, Lord, let me first go and bury my father. And Jesus said to him, Follow me, and leave the dead to bury their own dead. (ESV)
 
+-   **[youtube.com:  The Bible's Hardest Verse Is About Your Family {@ LostArtRanch }](https://www.youtube.com/watch?v=s3MsA5udnME):** I commented,
+    
+    Something I realised when pondering this verse is that for the person who has been baptised into Christ, their old self has been crucified, their previous life is dead. Those relationships which the old self had, also die. Jesus' family have one father who is in heaven, and Jesus' mother and brother and sister are those who do the will of God, who hear the word of God and do it. Honoring one's mother and father take on a new meaning. To honor one's father means now to honor God who is in heaven. Loving one's brother takes on a new meaning. Coming to Jesus means a necessary divorce from the old identity, and towards walking in the new identity as a member of Jesus' family who is Father God and those who do the will of God. So a person's relationships with people must change to be in line with the new identity as a child of God. This is what I believe Jesus is talking about in [Luke 14:26](https://www.biblegateway.com/passage/?search=Luke%2014%3A26&version=ESV). Nobody can come to Jesus unless Father God draws them. We must be willing to come to Jesus. And all who learn from Father God come to Jesus. If a person is willing to do the will of God then they will see Jesus Christ's teachings are correct. The will of God is our sanctification, to abstain from evil,, and to serve Jesus Christ, and to give thanks in all circumstances, and to die to sin and produce good from a love for the truth, enduring while suffering unjustly. So as we are willing to come to Jesus, being drawn by Father God, learning from God, then we must hate our old life which includes those old relationships. Whoever is holding faith in Jesus will do His deeds. And Jesus never called Joseph 'father'. Jesus referred to God as His own father rather than any man on earth. And Jesus referred to his mother and brothers and sisters as those who do the will of God, those who hear the word of God and do it. If someone thinks that their family are people who do not do the will of God then by implication they also do not think that Jesus is family.
+    
+    > **[Luke 14:26](https://www.biblegateway.com/passage/?search=Luke%2014%3A26&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+    
+    > **[I John 3:13-16](https://www.biblegateway.com/passage/?search=1%20John%203%3A13-16&version=ESV)** - Do not be surprised, brothers, that the world hates you. We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+-   **[youtube.com:  Can I Follow Jesus Without Letting Go of the World ? {@ SimplyFollowingJesus }](https://www.youtube.com/watch?v=ZpIin9fCO68):** Can you imagine somebody getting married to
+    someone, but after they're married,
+    they still want to call their
+    old girlfriends, they still want to hang
+    out with their old flames, they still want to send birthday cards
+    and and meet with them? No, *'forsaking'* all others, because I'm
+    turning away from the others and
+    turning to my new bride, turning to my
+    new spouse. And in the same way, when we
+    come to Christ, we're forsaking the world, the perverse
+    generation that we're rescued from, and
+    we come to Christ, and we give him our
+    full attention. We give him our full
+    allegiance. That's what he wants. He
+    doesn't want us to have idolatry
+    by loving the things of the world and
+    not giving our full love to Christ.
+
 Disciples of Jesus Christ should not give the title of 'father' to anybody else other than to God because the title belongs to God:
 
 > **[Matthew 22:21](https://www.biblegateway.com/passage/?search=Matthew%2022%3A21&version=ESV)** - They said, Caesar's. Then he said to them, Therefore render to Caesar the things that are Caesar's, and **to God the things that are God's.** (ESV)
@@ -18825,7 +18851,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org4319b18) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9a7fc79) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24590,7 +24616,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org3feeaf5).
+I didn't know but it turned out to be the last day of my [sentence](#orged0afbd).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -49098,7 +49124,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgbc9cd12)
+See: [33.4.1](#orgdc00750)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -70608,7 +70634,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgbc9cd12)
+See: [33.4.1](#orgdc00750)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -73262,7 +73288,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org50e2571) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org97caadd) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -81599,7 +81625,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org50e2571) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org97caadd) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -82937,7 +82963,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgce1a2d6)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org143c710)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

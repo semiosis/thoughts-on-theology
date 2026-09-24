@@ -4936,6 +4936,46 @@ God said that Jesus is His Son who He is well pleased with:
   Matthew 8:21-22 - Another of the disciples said to him, Lord, let me first go and bury my father. And Jesus said
   to him, Follow me, and leave the dead to bury their own dead. (ESV)
 
+youtube.com: The Bible's Hardest Verse Is About Your Family {@ LostArtRanch }
+
+I commented,
+
+Something I realised when pondering this verse is that for the person who has been baptised into Christ, their old
+self has been crucified, their previous life is dead. Those relationships which the old self had, also die. Jesus'
+family have one father who is in heaven, and Jesus' mother and brother and sister are those who do the will of
+God, who hear the word of God and do it. Honoring one's mother and father take on a new meaning. To honor one's
+father means now to honor God who is in heaven. Loving one's brother takes on a new meaning. Coming to Jesus means
+a necessary divorce from the old identity, and towards walking in the new identity as a member of Jesus' family
+who is Father God and those who do the will of God. So a person's relationships with people must change to be in
+line with the new identity as a child of God. This is what I believe Jesus is talking about in Luke 14:26. Nobody
+can come to Jesus unless Father God draws them. We must be willing to come to Jesus. And all who learn from Father
+God come to Jesus. If a person is willing to do the will of God then they will see Jesus Christ's teachings are
+correct. The will of God is our sanctification, to abstain from evil,, and to serve Jesus Christ, and to give
+thanks in all circumstances, and to die to sin and produce good from a love for the truth, enduring while
+suffering unjustly. So as we are willing to come to Jesus, being drawn by Father God, learning from God, then we
+must hate our old life which includes those old relationships. Whoever is holding faith in Jesus will do His
+deeds. And Jesus never called Joseph 'father'. Jesus referred to God as His own father rather than any man on
+earth. And Jesus referred to his mother and brothers and sisters as those who do the will of God, those who hear
+the word of God and do it. If someone thinks that their family are people who do not do the will of God then by
+implication they also do not think that Jesus is family.
+
+  Luke 14:26 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. (ESV)
+
+  I John 3:13-16 - Do not be surprised, brothers, that the world hates you. We know that we have passed out of
+  death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his
+  brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that
+  he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+youtube.com: Can I Follow Jesus Without Letting Go of the World ? {@ SimplyFollowingJesus }
+Can you imagine somebody getting married to someone, but after they're married, they still want to call their old
+girlfriends, they still want to hang out with their old flames, they still want to send birthday cards and and
+meet with them? No, 'forsaking' all others, because I'm turning away from the others and turning to my new bride,
+turning to my new spouse. And in the same way, when we come to Christ, we're forsaking the world, the perverse
+generation that we're rescued from, and we come to Christ, and we give him our full attention. We give him our
+full allegiance. That's what he wants. He doesn't want us to have idolatry by loving the things of the world and
+not giving our full love to Christ.
+
 Disciples of Jesus Christ should not give the title of 'father' to anybody else other than to God because the
 title belongs to God:
 
@@ -140299,11 +140339,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-24 Thu 10:56
+Date: 2026-09-24 Thu 12:32
 
 Author: Shane Mulligan
 
-Created: 2026-09-24 Thu 11:05
+Created: 2026-09-24 Thu 12:53
 
 Validate
 
