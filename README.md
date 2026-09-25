@@ -2901,8 +2901,137 @@ Why does a person decide to keep Jesus' commandments? It should be out of a lovi
 
 > **[I Corinthians 11:22-32](https://www.biblegateway.com/passage/?search=1%20Corinthians%2011%3A22-32&version=ESV)** - What! Do you not have houses to eat and drink in? Or do you despise the church of God and humiliate those who have nothing? What shall I say to you? Shall I commend you in this? No, I will not. For I received from the Lord what I also delivered to you, that the Lord Jesus on the night when he was betrayed took bread, and when he had given thanks, he broke it, and said, This is my body which is for you. Do this in remembrance of me. In the same way also he took the cup, after supper, saying, This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this bread and drink the cup, you proclaim the Lord's death until he comes. Whoever, therefore, eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord. Let a person examine himself, then, and so eat of the bread and drink of the cup. For anyone who eats and drinks without discerning (**[G1252 diakrinó](https://biblehub.com/greek/1252.htm)**) the body eats and drinks judgment on himself. That is why many of you are weak and ill, and some have died. But **if we judged ourselves truly, we would not be judged.** But when we are judged by the Lord, we are disciplined so that we may not be condemned along with the world. (ESV)
 
-What faith chōris [(G5565 chōris)](G5565) law means is that it's the faith that is counted distinctly from any corresponding works or law, the way in which you could count a person's heart attitude as distinct from any external action or commandment.
+-   ****[youtube.com: Post from John 14:6](https://www.youtube.com/post/UgkxZLki3CszXhLeZXho9L6A2RwfJccnB94Y)**:** I commented,
+    
+    > **[John 13:8](https://www.biblegateway.com/passage/?search=John%2013%3A8&version=ESV)** - Peter said to him, You shall never wash my feet. Jesus answered him, If I do not wash you, you have no share with me. (ESV)
+    
+    > **[John 6:37](https://www.biblegateway.com/passage/?search=John%206%3A37&version=ESV)** - All that the Father gives me will come to me, and whoever comes to me I will never cast out. (ESV)
+    
+    > **[John 5:39-40](https://www.biblegateway.com/passage/?search=John%205%3A39-40&version=ESV)** - You search the Scriptures because you think that in them you have eternal life; it is these that testify about Me; and you are unwilling to come to Me so that you may have life. (NASB)
+    
+    > **[John 15:4-7](https://www.biblegateway.com/passage/?search=John%2015%3A4-7&version=ESV)** - Remain in Me, and I will remain in you. Just as no branch can bear fruit by itself unless it remains in the vine, neither can you bear fruit unless you remain in Me. I am the vine and you are the branches. The one who remains in Me, and I in him, will bear much fruit. For apart from Me you can do nothing. If anyone does not remain in Me, he is like a branch that is thrown away and withers. Such branches are gathered up, thrown into the fire, and burned. If you remain in Me and My words remain in you, ask whatever you wish, and it will be done for you. (engbsb2020eb)
+
+-   ****[youtube.com: Post from John 14:6](https://www.youtube.com/post/UgkxZLki3CszXhLeZXho9L6A2RwfJccnB94Y)**:** I replied to a comment,
+    
+    @stefanlouw6395 You are perfectly justified before God through genuine faith in the blood of Jesus Christ. Although you may stumble into sin, you must repent and continue persevering in faith until the end, trusting in God’s preserving grace and refusing to apostatize. 
+    
+    @ShaneMulligan-n7h @stefanlouw6395  That sounds correct. Thumbs up! A person is justified if they have faith in the blood of Jesus Christ in their heart. While lapses of faith may happen, we must return to faith in Jesus, and continue in faith in Jesus. But there is also this other Romans 7 dynamic which when inwardly desiring to the will of God but the external actions do not line up with that, the evil deeds are blamed on sin that dwells in the flesh rather than on Paul. But inwardly we need to be abiding in Jesus' commandments from the heart. God sees the heart and justifies the one who has faith in Jesus.
+
+-   ****[youtube.com: Post from John 14:6](https://www.youtube.com/post/UgkxZLki3CszXhLeZXho9L6A2RwfJccnB94Y)**:** I replied to a comment,
+    
+    I think the crux of the issue is whether or not a person loves Jesus for who He is, the Son of God, the Messiah.
+    Because when a person is forgiven by Jesus, they are now a person who loves,
+    and when a person loves Jesus they are forgiven.
+    
+    The faith in Jesus Christ which a person is justified by is counted distinctly from [(G5565 chōris)](G5565) any associated external actions, and apart from the Law (i.e. the Torah: Genesis, Exodus, Leviticus, Numbers and Deuteronomy). 
+    
+    > **[Romans 3:21-24](https://www.biblegateway.com/passage/?search=Romans%203%3A21-24&version=ESV)**
+    
+    This is very clearly not implying that a person doesn't have corresponding works (e.g. Abel's offering was done in faith), and very clearly not implying that a person does not seek to keep some law as they exercise their faith (**[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**, **[Romans 9:30-32](https://www.biblegateway.com/passage/?search=Romans%209%3A30-32&version=ESV)**). But it's the faith (what is in the heart, a loving faith in Jesus Christ) which is counted distinctly.
+    
+    God looks at the faith, the heart posture to Him, rather than His commendation resting solely on external actions. What counts is the "faith" behind what a person did or might do. If done from genuine faith in Jesus, then it's actually God who did it through them. (i.e. if God told you to do X, and then you did X out of a genuine faith, then you can't claim that this was a gift from you to God).
+    
+    The word chōris in a statement "A chōris B" doesn't mean that B does not exist. Rather, the statement means "A where B is not taken into account", or "A distinct from B". So chōris means "without taking into account" or "as distinct from":
+    
+    > **[Matthew 14:21](https://www.biblegateway.com/passage/?search=Matthew%2014%3A21&version=ESV)** - And those who ate were about five thousand men, besides [(G5565 chōris)](G5565) women and children. (ESV)
+    
+    It would also be semantically correct to say, "deeds [(G2041 ergōn; works)](G2041) apart from [(G5565 chōris)](G5565) faith". Deeds apart from faith would be the external actions. 
+    
+    See how in his heart, Paul is willing, and in his mind he serves the law of God. But Paul is not reliant on his external actions (i.e. works). But works/deeds really talk about "both faith and external action united". Real faith alone is just about the faith component of that:
+    
+    > **[Romans 7:18](https://www.biblegateway.com/passage/?search=Romans%207%3A18&version=ESV)** - For I know that nothing good dwells in me, that is, in my flesh; for the willing is present in me, but the working out of the good is not. (LSB)
+    
+    > **[Romans 7:15-25](https://www.biblegateway.com/passage/?search=Romans%207%3A15-25&version=ESV)** - I do not understand my own actions. For I do not do what I want, but I do the very thing I hate. Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will deliver me from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God with my mind, but with my flesh I serve the law of sin. (ESV)
+    
+    We are saved not "ex hymōn" (out of yourselves) and not "ex ergōn" (out of works), but from God's gift.
+    
+    So I think that when a person simply does as God asks, this is receiving the gift from God.
+    Like Noah building the ark, for example.
+    God's commandment is to believe in the name of His Son and to love one another.
+    These commandments are everything to do with genuine faith in Jesus, and when obeyed are receiving grace.
+    
+    But when done contrary to what God has asked of us (e.g. **[Leviticus 10:1](https://www.biblegateway.com/passage/?search=Leviticus%2010%3A1&version=ESV)**, **[Numbers 20:8-12](https://www.biblegateway.com/passage/?search=Numbers%2020%3A8-12&version=ESV)** ), is not receiving a gift from God.
+    
+    Moses and Aaron did not trust God that if they spoke to the rock before the eyes of the congregation that the rock would yield its water, and so did not do as God had commanded in speaking to the rock. In distrust, Moses struck the rock instead; Moses disobeyed. God was very clear that Moses should speak to the rock, but instead Moses struck the rock with the rod. Moses didn't get away with it.
+    
+    To remain faithful to God from the heart rather than committing sin is to do with faith apart from works (Romans 7).
+    
+    The ultimate test is whether or not someone receives Jesus, receiving Him as as the Messiah, the Son of Man, the Son of God, if they have faith in Him in the heart.
+    
+    John the Baptist also came in the "way of righteousness". John the Baptist preaching repentance is not contrary to Jesus' preaching. So while John the Baptist was preaching the truth, he himself preached to believe in Jesus Christ. In **[Matthew 21:24-32](https://www.biblegateway.com/passage/?search=Matthew%2021%3A24-32&version=ESV)**, Jesus said to some "you did not believe him". Similarly, in **[John 5:42-47](https://www.biblegateway.com/passage/?search=John%205%3A42-47&version=ESV)**, Jesus said, "If you believed Moses, you would believe me, for he wrote of me". So if someone truly believes John the Baptist or Moses then they would believe Jesus. But we must come to Jesus (**[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)**). We must receive Jesus.
+    
+    > **[John 8:23-24](https://www.biblegateway.com/passage/?search=John%208%3A23-24&version=ESV)** - He said to them, You are from below; I am from above. You are of this world; I am not of this world. I told you that you would die in your sins, for unless you believe that I am he you will die in your sins. (ESV)
+    
+    > **[John 15:22-24](https://www.biblegateway.com/passage/?search=John%2015%3A22-24&version=ESV)** - If I had not come and spoken to them, they would not have been guilty of sin, but now they have no excuse for their sin. Whoever hates me hates my Father also. If I had not done among them the works that no one else did, they would not be guilty of sin, but now they have seen and hated both me and my Father. (ESV)
+
 God looks at the faith, the heart posture to Him, rather than His commendation resting solely on external actions (For example, "managing to confess sin verbally to another follower of Christ", or "managing to use exactly bread and wine when taking communion").
+
+-   ****[youtube.com: Post from \*[[https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV][John 14:6](https://www.youtube.com/post/UgkxZLki3CszXhLeZXho9L6A2RwfJccnB94Y)\*]]**:** I replied to a comment,
+    
+    @eternalrhythmflow Salvation from what? Answer in reality, not metaphor. And don’t just say “sin”. You don’t know what that means. What did Jesus’ Israelite brothers need to be saved from?
+    
+    @ShaneMulligan-n7h By having faith in Jesus Christ we are saved from being enslaved to sin (i.e. saved from being unable to stop committing sin, as committing sin leads to death). But having faith in Jesus Christ, we are saved into God working through us, and the fruit of that leads to eternal life:
+    
+    > **[Romans 10:3-4](https://www.biblegateway.com/passage/?search=Romans%2010%3A3-4&version=ESV)** - For, being ignorant of the righteousness that comes from God, and seeking to establish their own, they did not submit to God's righteousness. For Christ is the end of the law for righteousness to everyone who believes (G4100 pisteuo has faith in Jesus).
+    
+    > **[John 8:34-35](https://www.biblegateway.com/passage/?search=John%208%3A34-35&version=ESV)**,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+    
+    > **[Romans 6:22](https://www.biblegateway.com/passage/?search=Romans%206%3A22&version=ESV)** - But now that you have been set free from sin and have become slaves of God, the fruit you get leads to sanctification and its end, eternal life. (ESV)
+    
+    > **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+    
+    > **[James 4:17](https://www.biblegateway.com/passage/?search=James%204%3A17&version=ESV)** - So whoever knows the right thing to do and fails to do it, for him it is sin. (ESV)
+    
+    > **[Revelation of John 21:27](https://www.biblegateway.com/passage/?search=Revelation%2021%3A27&version=ESV)** - But nothing unclean will ever enter it, nor anyone who does what is detestable or false, but only those who are written in the Lamb's book of life. (ESV)
+    
+    > **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Since we have these promises, beloved, let us cleanse ourselves from every defilement of body and spirit, bringing holiness to completion in the fear of God. (ESV)
+    
+    I think it's not possible to be sanctified by committing sin, so that's why I say that there would be a lapse of justification:
+    
+    > **[Proverbs 12:3](https://www.biblegateway.com/passage/?search=Proverbs%2012%3A3&version=ESV)** - No one is established by wickedness, but the root of the righteous will never be moved. (ESV)
+    
+    > **[II Timothy 2:19](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A19&version=ESV)** - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and, Let everyone who names the name of the Lord depart from iniquity. (ESV)
+    
+    > **[Proverbs 11:19](https://www.biblegateway.com/passage/?search=Proverbs%2011%3A19&version=ESV)** - Whoever is steadfast in righteousness will live, but he who pursues evil will die. (ESV)
+    
+    > **[Jeremiah 7:8-11](https://www.biblegateway.com/passage/?search=Jeremiah%207%3A8-11&version=ESV)** - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come and stand before me in this house, which is called by my name, and say, We are delivered to do all these abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I have seen it, saith the LORD. (KJV)
+    
+    > **[John 10:1](https://www.biblegateway.com/passage/?search=John%2010%3A1&version=ESV)** - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another way, that man is a thief and a robber. (ESV)
+    
+    > **[Psalms 101:7](https://www.biblegateway.com/passage/?search=Psalms%20101%3A7&version=ESV)** - He who practices deceit shall not dwell within my house; He who speaks falsehood shall not maintain his position before me. (NASB)
+    
+    The person born of God who is having faith in Jesus with love for their family in Christ has stopped sinning and is seated in heavenly places with Christ who is "separated from sinners":
+    
+    > **[Hebrews 7:26](https://www.biblegateway.com/passage/?search=Hebrews%207%3A26&version=ESV)** - For it was indeed fitting that we should have such a high priest, holy, innocent, unstained, separated from sinners, and exalted above the heavens. (ESV)
+    
+    > **[Ephesians 2:4-9](https://www.biblegateway.com/passage/?search=Ephesians%202%3A4-9&version=ESV)** - But God, being rich in mercy, because of the great love with which he loved us, even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved— and raised us up with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show the immeasurable riches of his grace in kindness toward us in Christ Jesus. For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. (ESV)
+    
+    > **[1Jn 3:4](https://www.biblegateway.com/passage/?search=1%20John%203%3A4&version=ESV)**,6,8,9 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
+    
+    Jesus' mother and brother and sister are those who do the will of God, who hear the word of God and do it.
+    
+    These Jews (**[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)**) needed salvation from being a slave to sin. Jesus said they were sons of the devil, so they were not Jesus' brothers at the time Jesus spoke this.
+    
+    If a person is not a good soil believer (the rocky ground, or the path, or among thorns) then they won't continue on in faith to bearing good fruit (**[Luke 8:11-15](https://www.biblegateway.com/passage/?search=Luke%208%3A11-15&version=ESV)**).
+    So then, a person can clearly be a believer for a while (**[Luke 8:11-15](https://www.biblegateway.com/passage/?search=Luke%208%3A11-15&version=ESV)**) and stop being a believer (**[John 8:31-47](https://www.biblegateway.com/passage/?search=John%208%3A31-47&version=ESV)**) but Jesus did instruct such people that if they abide (remain) in His word then they would become set free from sin.
+
+-   ****[youtube.com: Post from \*[[https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV][John 14:6](https://www.youtube.com/post/UgkxZLki3CszXhLeZXho9L6A2RwfJccnB94Y)\*]]**:** I replied to a comment,
+    
+    @BuddySocksPants @stefanlouw6395  The works are Jesus working through us. They aren't ours. They are filthy rags he turns to gold. I find that is easier for people to grasp.
+    
+    @BuddySocksPants  Yes, Jesus working through us. I wouldn't say they aren't ours though. But they originate from God rather than from ourselves, as it's God working through us. It's not gifting to God the works, but it's receiving from God the works through faith. Like if Jesus told a person to give someone an ice cream and then in faith they produced that deed, even without knowing they carried out the deed (**[Matthew 25:31-40](https://www.biblegateway.com/passage/?search=Matthew%2025%3A31-40&version=ESV)**), it is Jesus who did it through them.
+    
+    But it's faith apart from [(G5565 chōris)](G5565) works, which is counted. We don't rely on the carrying out of the external action (**[Romans 7:17-23](https://www.biblegateway.com/passage/?search=Romans%207%3A17-23&version=ESV)**) to have confidence (I John 4:16-17).
+    
+    We are saved not "ex hymōn" (out of yourselves) and not "ex ergōn" (out of works), but from God's gift.
+    
+    And a person with the faith is still saved even if their works are burned up.
+    
+    The thing is, there will be deeds, which we receive through faith in Jesus:
+    
+    > **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+    
+    > **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the ev  il person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 Salvation involves both justification *and* sanctification, though, justification being God's righteousness given to the person who has a heart attitude of loving faith in Jesus Christ and sanctification which is a process of being cleaned up as we hold our faith in Jesus and love our family in Christ, and we must continue on in the faith (**[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)**) which means to continue in agreement with Jesus Christ (who He is and what He did and what He taught), rather than disagreeing with Him.
 Salvation involves God **working** in us as we obey Jesus Christ. As we (**[Exodus 14:16](https://www.biblegateway.com/passage/?search=Exodus%2014%3A16&version=ESV)**) by faith obey Jesus Christ, God works (**[Exodus 14:13](https://www.biblegateway.com/passage/?search=Exodus%2014%3A13&version=ESV)**) His salvation in us:
@@ -19132,7 +19261,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge78c43c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org5349ffa) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24924,7 +25053,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgd370caa).
+I didn't know but it turned out to be the last day of my [sentence](#org9adac22).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -49440,7 +49569,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org4566146)
+See: [33.4.1](#org1e08ceb)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -71043,7 +71172,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org4566146)
+See: [33.4.1](#org1e08ceb)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -73697,7 +73826,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orge3fba97) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org9e71374) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -82038,7 +82167,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orge3fba97) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org9e71374) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -83376,7 +83505,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org04d0e96)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org738a5c7)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -87365,6 +87494,28 @@ But I would really prefer it if the Lord Jesus Christ would have Holy Spirit spe
 I'm trying to literally, be with the people of God, and it seems to me as though satan and his demons have been opposing me and setting traps. I'm sick of it. I just want the Lord Jesus Christ to deliver me from this satanic harassment:
 
 > **[Hebrews 11:24-25](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A24-25&version=ESV)** - By faith Moses, when he was grown up, refused to be called the son of Pharaoh's daughter, choosing rather to be mistreated with the people of God than to enjoy the fleeting pleasures of sin. (ESV)
+
+-   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-09-25 Fri 13:34&gt;</span></span>:** I'm quite sick and tired of this satanic stranglehold opposing me from being employed.
+    
+    My home is in heaven and my true birthday is 2 April 2022 which is the birthday of my new soul which God made me.
+    As a new person with a new birthday, who's home is in heaven, I have found a lot of resistance to being employed here on the earth.
+    The whole world seems set up against the knowledge of God.
+    When people from the ministry of social development ask me for ID, I understand they are asking for a form of ID which is recognised
+    by the New Zealand government, something such as a driver's licence.
+    But my driver's licence has the birthday of my meatsuit.
+    And I don't mind providing that, but I don't want to have to affirm that these details about my flesh are my true reality,
+    because the spirit is the truth.
+    Every time I'm asked for an ID or for my birthay or where my home is, I'm grieved unless I make an affirmation that these details only pertain to the flesh.
+    But my true birthday is the birthday of my new spirit.
+    And I affirm that my true home is in heavenly places with the Lord Jesus Christ.
+    When people ask me for my "home" phone number and what they mean is "landline" phone number, if I were to say, this is my "home" phone number then that is affirming that my home is on earth, when it is not.
+    
+    Jesus Christ, help me.
+    I'm so sick of being held in this situation.
+    
+    May God deliver me from these antichrist pressures in Jesus Christ's name, I hope.
+    Is there a Christian on this planet who has the love of God in them who can provide a job opportunity to someone who is professing that Jesus is the Christ, the Son of God?
+    Or is there not such a person on earth?
 
 My true home is in heaven. In reality, my true home is not this physical house in New Zealand where I am currently sitting inside.
 I believe in spirit I'm seated with Christ in heavenly places.
