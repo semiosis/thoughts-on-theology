@@ -134559,10 +134559,16 @@ When people say Jehovah or Yahweh I recognise both of those as referring to God'
 never heard the phonemes directly from God but God sees my heart. If there was currently issue with using precise
 phonemes, then I'm sure God would clear that up. Jehovah and Yahweh both really are referring to the God of
 Abraham, Isaac and Jacob and refer to the Father, Son and Holy Spirit. Just as Jesus, Yeshua or Iesous also refer
-to Christ, the Son and I believe that Jesus' name also belongs to Father God. I also wanted to reiterate my stance
-on this because there have been several phenomena occurring in my life in the last weeks where God's name has
-appeared in a dream and people taking the name when I'm playing a video game, and also in conversations with
-people. There's stuff going on with me and that is why I'm confessing my stance on this right here in my journal.
+to Christ, the Son and I believe that Jesus' name also belongs to Father God.
+
+  John 17:10-11 - All mine are yours, and yours are mine, and I am glorified in them. And I am no longer in the
+  world, but they are in the world, and I am coming to you. Holy Father, keep them in your name, which you have
+  given me, that they may be one, even as we are one. (ESV)
+
+I also wanted to reiterate my stance on this because there have been several phenomena occurring in my life in the
+last weeks where God's name has appeared in a dream and people taking the name when I'm playing a video game, and
+also in conversations with people. There's stuff going on with me and that is why I'm confessing my stance on this
+right here in my journal.
 
 Exodus 6:3 (Interlinear)
 and I appear unto Abraham, unto Isaac, and unto Jacob, as God Almighty; as to My name Jehovah, I have not been
@@ -141285,11 +141291,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-26 Sat 09:40
+Date: 2026-09-26 Sat 17:48
 
 Author: Shane Mulligan
 
-Created: 2026-09-26 Sat 11:57
+Created: 2026-09-26 Sat 18:00
 
 Validate
 
