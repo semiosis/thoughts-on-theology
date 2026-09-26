@@ -6129,8 +6129,8 @@ I replied to a comment,
 Although you may stumble into sin, you must repent and continue persevering in faith until the end, trusting in
 God’s preserving grace and refusing to apostatize.
 
-@ShaneMulligan-n7h @stefanlouw6395 That sounds correct. Thumbs up! A person is justified if they have faith in the
-blood of Jesus Christ in their heart. While lapses of faith may happen, we must return to faith in Jesus, and
+@ShaneMulligan-n7h to @stefanlouw6395: That sounds correct. Thumbs up! A person is justified if they have faith in
+the blood of Jesus Christ in their heart. While lapses of faith may happen, we must return to faith in Jesus, and
 continue in faith in Jesus. But there is also this other Romans 7 dynamic which when inwardly desiring to the will
 of God but the external actions do not line up with that, the evil deeds are blamed on sin that dwells in the
 flesh rather than on Paul. But inwardly we need to be abiding in Jesus' commandments from the heart. God sees the
@@ -6224,16 +6224,16 @@ God looks at the faith, the heart posture to Him, rather than His commendation r
 (For example, "managing to confess sin verbally to another follower of Christ", or "managing to use exactly bread
 and wine when taking communion").
 
-youtube.com: Post from *[[https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV][John 14:6*]]
+youtube.com: Post from John 14:6
 
 I replied to a comment,
 
-@eternalrhythmflow Salvation from what? Answer in reality, not metaphor. And don’t just say “sin”. You don’t know
+@eternalrhythmflow: Salvation from what? Answer in reality, not metaphor. And don’t just say “sin”. You don’t know
 what that means. What did Jesus’ Israelite brothers need to be saved from?
 
-@ShaneMulligan-n7h By having faith in Jesus Christ we are saved from being enslaved to sin (i.e. saved from being
-unable to stop committing sin, as committing sin leads to death). But having faith in Jesus Christ, we are saved
-into God working through us, and the fruit of that leads to eternal life:
+@ShaneMulligan-n7h to @eternalrhythmflow: By having faith in Jesus Christ we are saved from being enslaved to sin
+(i.e. saved from being unable to stop committing sin, as committing sin leads to death). But having faith in Jesus
+Christ, we are saved into God working through us, and the fruit of that leads to eternal life:
 
   Romans 10:3-4 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
   own, they did not submit to God's righteousness. For Christ is the end of the law for righteousness to everyone
@@ -6310,21 +6310,51 @@ on in faith to bearing good fruit (Luke 8:11-15). So then, a person can clearly 
 8:11-15) and stop being a believer (John 8:31-47) but Jesus did instruct such people that if they abide (remain)
 in His word then they would become set free from sin.
 
-youtube.com: Post from *[[https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV][John 14:6*]]
+youtube.com: Post from John 14:6
 
 I replied to a comment,
 
-@BuddySocksPants @stefanlouw6395 The works are Jesus working through us. They aren't ours. They are filthy rags he
-turns to gold. I find that is easier for people to grasp.
+@BuddySocksPants to @stefanlouw6395: The works are Jesus working through us. They aren't ours. They are filthy
+rags he turns to gold. I find that is easier for people to grasp.
 
-@BuddySocksPants Yes, Jesus working through us. I wouldn't say they aren't ours though. But they originate from
-God rather than from ourselves, as it's God working through us. It's not gifting to God the works, but it's
-receiving from God the works through faith. Like if Jesus told a person to give someone an ice cream and then in
-faith they produced that deed, even without knowing they carried out the deed (Matthew 25:31-40), it is Jesus who
-did it through them.
+@ShaneMulligan-n7h to @BuddySocksPants: Yes, Jesus working through us. I wouldn't say they aren't ours though. But
+they originate from God rather than from ourselves, as it's God working through us. It's not gifting to God the
+works, but it's receiving from God the works through faith. Like if Jesus told a person to give someone an ice
+cream and then in faith they produced that deed, even without knowing they carried out the deed (Matthew
+25:31-40), it is Jesus who did it through them.
 
-But it's faith apart from (G5565 chōris) works, which is counted. We don't rely on the carrying out of the
-external action (Romans 7:17-23) to have confidence (I John 4:16-17).
+Yes, Jesus working through us. I wouldn't say they aren't ours though. But they originate from God rather than
+from ourselves, as it's God working through us. It's not gifting to God the works, but it's receiving from God the
+works through faith. Like if Jesus told a person to give someone an ice cream and then in faith they produced that
+deed, even without knowing necessarily if or when or how they carried out the deed (Matthew 25:31-40, Matthew
+6:3-4,6,17-18), it is Jesus who did it through them. As someone holds faith in Jesus, even in His words, God works
+through them producing deeds. Obedience that saves necessitates a love for God in the heart (Psalms 81:15), and
+the good person out of the good treasure of their heart produces good (Luke 6:45), and whatever does not proceed
+from faith is sin. Genuine obedience to Father God and Jesus Christ the Son of God (I John 3:23-24) is primarily a
+matter of faith and love for the truth in the heart that is strongly linked to a person's desire to do the right
+thing (I John 3:6-18, Romans 7:17-23), and their "way" of walking (Proverbs 1:28-31, Hebrews 13:7) and obeying
+Jesus does save (Hebrews 5:7-14) and God works through that person (Philippians 2:12-13).
+
+But it's faith apart from (G5565 chōris) works, which is counted. That is to say, it's the heart attitude of faith
+that is distinctly from any external action (think heart intention vs the external appearance of the outcome).
+Think Abel's faith as opposed to the evil in Cain's heart. They both had deeds, but only Abel had the faith which
+God commended, so Abel's deeds were good deeds. But from the love of evil in the heart, Cain had evil deeds. Deed
+= heart intention + external action. The external action isn't more important than having a loving faith in the
+heart (I Corinthians 13:2-3). We don't rely on the successful carrying out of the external action (Romans 7:17-23)
+or what we can observe from external appearances (II Corinthians 5:12), in order to have confidence (I John
+4:16-17) for the day of judgement. Rather, we should simply have genuine faith in Jesus and leave the commending
+to God. Real faith isn't anti-obedience, nor against imitating Jesus, nor against sincerely desiring to do good
+deeds, nor against resisting committing sin, but real faith need to recognise that without Jesus Christ's blood
+being shed, there is no atonement for sin. If a person rejects Jesus for who He is (i.e. Christ, Son of God) then
+it doesn't matter what good deeds they did or thought they had done (Ezekiel 18:20-24) as they're condemned (John
+8:23-24, John 3:17-21) for hating God. And so they must repent from disbelief and into having faith in Jesus in
+order to not perish (Luke 13:3). Jesus is God's righteousness revealed, and He practiced righteousness, and we
+must love righteousness rather than wickedness, and whether or not a person agrees with the person and work of
+Jesus Christ is basically, the ultimate test of that. From a love of righteousness, a person will produce good
+deeds.
+
+We do need to be saved into becoming producers of good deeds (Romans 2:9-11, John 8:34-35,36,42,51, Romans
+6:16-18), rather than to remain enslaved to doing evil deeds.
 
 We are saved not "ex hymōn" (out of yourselves) and not "ex ergōn" (out of works), but from God's gift.
 
@@ -141259,7 +141289,7 @@ Date: 2026-09-26 Sat 09:40
 
 Author: Shane Mulligan
 
-Created: 2026-09-26 Sat 09:56
+Created: 2026-09-26 Sat 11:57
 
 Validate
 
