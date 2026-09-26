@@ -562,6 +562,25 @@ The person who hopes in Jesus Christ purifies themself (I John 3:3-11) as Jesus 
   practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
   you have heard from the beginning, that we should love one another. (ESV)
 
+Those who have faith in Jesus have faith in Jesus in their own heart, thanks to God. All glory to God:
+
+  I Peter 1:21 - who through him are believers in God, who raised him from the dead and gave him glory, so that
+  your faith and hope are in God. (ESV)
+
+  I Peter 1:21 (Interlinear)
+  who (G3588 tous) by (G1223 di’) him (G846 autou) believe (G4103 pistous) in (G1519 eis) God (G2316 Theon) -
+  (G3588 ton) having raised up (G1453 egeiranta) Him (G846 auton) out from (G1537 ek) [the] dead (G3498 nekrōn)
+  and (G2532 kai) glory (G1391 doxan) Him (G846 autō) having given (G1325 donta) so as for (G5620 hōste) the
+  (G3588 tēn) faith (G4102 pistin) of you (G4771 hymōn) and (G2532 kai) hope (G1680 elpida) to be (G1510 einai) in
+  (G1519 eis) God (G2316 Theon)
+
+If a person has faith in God then it's because of His grace. If a person has obedience in ther heart to God then
+it's because of His grace. If a person has good works then it's because of God's grace.
+
+Nevertheless, we are still instructed to repent and believe in the gospel, in Jesus Christ, in God to be saved.
+Just because the Bible instructs us to do something, does not mean that it is us apart from God's doing who does
+it.
+
 Indeed, even after being born-again by God's grace, we are instructed to do God's will for us, to keep His
 commandments for us:
 
@@ -134565,6 +134584,30 @@ to Christ, the Son and I believe that Jesus' name also belongs to Father God.
   world, but they are in the world, and I am coming to you. Holy Father, keep them in your name, which you have
   given me, that they may be one, even as we are one. (ESV)
 
+  Matthew 1:21 - She will bear a son, and you shall call his name Jesus, for he will save his people from their
+  sins. (ESV)
+
+I do believe that God's name of Yahweh, and also "Jesus" are shared among the Trinity:
+
+  Matthew 28:19 - Go therefore and make disciples of all nations, baptizing them in the name of the Father and of
+  the Son and of the Holy Spirit, (ESV)
+
+  John 5:43 - I have come in my Father's name, and you do not receive me. If another comes in his own name, you
+  will receive him. (ESV)
+
+  John 10:25 - Jesus answered them, I told you, and you do not believe. The works that I do in my Father's name
+  bear witness about me, (ESV)
+
+  Philippians 2:9-11 - Therefore God has highly exalted him and bestowed on him the name that is above every name,
+  so that at the name of Jesus every knee should bow, in heaven and on earth and under the earth, and every tongue
+  confess that Jesus Christ is Lord, to the glory of God the Father. (ESV)
+
+  I Peter 1:11 - inquiring what person or time the Spirit of Christ in them was indicating when he predicted the
+  sufferings of Christ and the subsequent glories. (ESV)
+
+  Romans 8:9 - You, however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you.
+  Anyone who does not have the Spirit of Christ does not belong to him. (ESV)
+
 I also wanted to reiterate my stance on this because there have been several phenomena occurring in my life in the
 last weeks where God's name has appeared in a dream and people taking the name when I'm playing a video game, and
 also in conversations with people. There's stuff going on with me and that is why I'm confessing my stance on this
@@ -141291,11 +141334,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-26 Sat 17:48
+Date: 2026-09-27 Sun 09:18
 
 Author: Shane Mulligan
 
-Created: 2026-09-26 Sat 18:00
+Created: 2026-09-27 Sun 09:24
 
 Validate
 
