@@ -269,6 +269,9 @@ after getting born-again, I believe it's important to abide in Christ's teaching
   other; as the Lord has forgiven you, so you also must forgive. And above all these put on love, which binds
   everything together in perfect harmony. (ESV)
 
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
+
 Being "made alive" is a gift that is gifted to us to save us from being enslaved to sin. This grace saves us:
 
   Ephesians 2:1-10 - And you were dead in the trespasses and sins in which you once walked, following the course
@@ -367,6 +370,9 @@ produced while holding good faith. From faith in Jesus and His words we do what 
 
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
 
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
   works than these will he do, because I am going to the Father. (ESV)
@@ -562,19 +568,19 @@ The person who hopes in Jesus Christ purifies themself (I John 3:3-11) as Jesus 
   practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
   you have heard from the beginning, that we should love one another. (ESV)
 
-Those who have faith in Jesus have faith in Jesus in their own heart, thanks to God. All glory to God:
+Those who have faith in Jesus have faith in Jesus in their own heart thanks to God. All glory to God:
 
   I Peter 1:21 - who through him are believers in God, who raised him from the dead and gave him glory, so that
   your faith and hope are in God. (ESV)
 
-  I Peter 1:21 (Interlinear)
-  who (G3588 tous) by (G1223 di’) him (G846 autou) believe (G4103 pistous) in (G1519 eis) God (G2316 Theon) -
-  (G3588 ton) having raised up (G1453 egeiranta) Him (G846 auton) out from (G1537 ek) [the] dead (G3498 nekrōn)
-  and (G2532 kai) glory (G1391 doxan) Him (G846 autō) having given (G1325 donta) so as for (G5620 hōste) the
-  (G3588 tēn) faith (G4102 pistin) of you (G4771 hymōn) and (G2532 kai) hope (G1680 elpida) to be (G1510 einai) in
-  (G1519 eis) God (G2316 Theon)
+I Peter 1:21 (Interlinear)
+who (G3588 tous) by (G1223 di’) him (G846 autou) believe (G4103 pistous) in (G1519 eis) God (G2316 Theon) - (G3588
+ton) having raised up (G1453 egeiranta) Him (G846 auton) out from (G1537 ek) [the] dead (G3498 nekrōn) and (G2532
+kai) glory (G1391 doxan) Him (G846 autō) having given (G1325 donta) so as for (G5620 hōste) the (G3588 tēn) faith
+(G4102 pistin) of you (G4771 hymōn) and (G2532 kai) hope (G1680 elpida) to be (G1510 einai) in (G1519 eis) God
+(G2316 Theon)
 
-If a person has faith in God then it's because of His grace. If a person has obedience in ther heart to God then
+If a person has faith in God then it's because of His grace. If a person has obedience in their heart to God then
 it's because of His grace. If a person has good works then it's because of God's grace.
 
 Nevertheless, we are still instructed to repent and believe in the gospel, in Jesus Christ, in God to be saved.
@@ -1758,7 +1764,7 @@ to love our neighbour:
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
 
-  Romans 3:28 - For we hold that one is justified by faith apart from works of the law. (ESV)
+  Romans 3:28 - For we hold that one is justified by faith apart from (G5565 chōris) works of the law. (ESV)
 
   Romans 5:1 - Therefore, since we have been justified by faith, we have peace with God through our Lord Jesus
   Christ. (ESV)
@@ -3373,7 +3379,10 @@ faithfully the Scripture, out of the fear of God, entrusting their soul to God w
 doing good, as Jesus Christ Himself did as an example for us to follow. I'm not saying Jesus is created (Father,
 Son and Holy Spirit are all Creator), but He is our example to follow. The Christian is called to walk by faith
 even against the opposition one might get. I've found that opposition can also come from people who are confessing
-unsound doctrine:
+unsound doctrine. The servant who is disobedient to God will receive a beating:
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
+  prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
 
   I Peter 2:15-25 - For this is the will of God, that by doing good you should put to silence the ignorance of
   foolish people. Live as people who are free, not using your freedom as a cover-up for evil, but living as
@@ -3402,6 +3411,43 @@ faith:
   a gift but as his due. And to the one who does not work (G2038 ergazomenō; is working for payment) but trusts
   him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing
   of the one to whom God counts righteousness apart from (G5565 chōris) works (G2041 ergōn): (ESV)
+
+We must not be those who work ((G2038 ergazomenoi)) lawlessness:
+
+Matthew 7:23 (Interlinear)
+
+And (G2532 kai) then (G5119 tote) I will declare (G3670 homologēsō) to them (G846 autois)
+
+• (G3754 hoti)
+
+Never (G3763 Oudepote) knew I (G1097 egnōn) you (G4771 hymas) depart you (G672 apochōreite) from (G575 ap’) me
+(G1473 emou) those (G3588 hoi) working (G2038 ergazomenoi)
+
+• (G3588 tēn)
+
+lawlessness (G458 anomian)
+
+We must be those who do (G4160 poiōn) righteousness:
+
+I John 3:10 (Interlinear)
+
+Through (G1722 en) this (G3778 toutō) manifest (G5318 phanera) are (G1510 estin) the (G3588 ta) children (G5043
+tekna)
+
+• (G3588 tou)
+
+of God (G2316 Theou) and (G2532 kai) the (G3588 ta) children (G5043 tekna) of the (G3588 tou) devil (G1228
+diabolou) Anyone (G3956 pas)
+
+• (G3588 ho)
+
+not (G3361 mē) practicing (G4160 poiōn) righteousness (G1343 dikaiosynēn) not (G3756 ouk) is (G1510 estin) of
+(G1537 ek)
+
+• (G3588 tou)
+
+God (G2316 Theou) and also (G2532 kai) the [one] (G3588 ho) not (G3361 mē) loving (G25 agapōn) the (G3588 ton)
+brother (G80 adelphon) of him (G846 autou)
 
   Psalms 51:1-4 - Have mercy on me, O God, according to your steadfast love; according to your abundant mercy blot
   out my transgressions. To the choirmaster. A Psalm of David, when Nathan the prophet went to him, after he had
@@ -5965,6 +6011,9 @@ So as we go on as believers, we must hold fast to what is true as we learn from 
   eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their
   heart and turn, and I would heal them. (ESV)
 
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
+
 Jesus has died for our sins. Receiving this salvation is a matter of having faith in Jesus Christ, abiding in His
 commandments:
 
@@ -6727,6 +6776,11 @@ of his evil treasure produces evil, for out of the abundance of the heart his mo
 • I Corinthians 16:13-14 - Be watchful, stand firm in the faith, act like men, be strong. Let all that you
 do be done in love. (ESV)
 
+The servant who is disobedient to God will receive a beating:
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
+  prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
+
 Holding faith in Jesus while going through suffering is sanctifying. Obeying Jesus while going through suffering
 is sanctifying. Suffering in and of itself is not sanctifying.
 
@@ -7149,6 +7203,9 @@ law", and the law is laid down for such people, and that is in accordance with t
 we need to be those who are law-abiding by the law of the Spirit. With a mind set on the Spirit, we should be
 "obedient, ready for every good work":
 
+  Luke 12:47 - And that servant who knew his master's will but did not get ready or act according to his will,
+  will receive a severe beating. (ESV)
+
   Galatians 5:13-24 - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for
   the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your
   neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one
@@ -7179,6 +7236,9 @@ unholy and profane, etc.":
   and profane, for those who strike their fathers and mothers, for murderers, the sexually immoral, men who
   practice homosexuality, enslavers, liars, perjurers, and whatever else is contrary to sound doctrine, in
   accordance with the glorious gospel of the blessed God with which I have been entrusted. (ESV)
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready or act according to his will,
+  will receive a severe beating. (ESV)
 
 Walking by the Spirit is how to please God, and so walking by the Spirit involves having faith, and seeking to
 please God:
@@ -9241,6 +9301,20 @@ from people who appear to not be, and from the flesh, the world and the devil:
   Proverbs 28:4 - Those who forsake the law praise the wicked, But those who keep the law strive with them. (NASB)
 
   Psalms 103:9 - He will not always strive with us, Nor will He keep His anger forever. (NASB)
+
+There is absolutely nothing wrong with keeping up good works as we are sowing to the Spirit towards reaping
+eternal life. In other words, sowing to the Spirit to reap eternal life is not against meanwhile endeavouring to
+maintain doing good deeds towards others. If anything, doing good deeds helps a person to sow to the Spirit. When
+a person is doing good deeds, they are not doing bad deeds! And a person with a genuine faith in Jesus will be
+inclined to doing good deeds (I John 3:6-18) and to not sin:
+
+  James 4:17 - So whoever knows the right thing to do and fails to do it, for him it is sin. (ESV)
+
+  Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
+  one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
+  the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
+  not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
 
 To enter the Kingdom of God, one must do the will of God, and the will of God involves doing good rather than
 evil. So must we be those who good in order to enter the Kingdom of God? Yes we must. And it's by the grace of
@@ -11651,6 +11725,9 @@ God:
   be the outcome for those who do not obey the gospel of God? And If the righteous is scarcely saved, what will
   become of the ungodly and the sinner? Therefore let those who suffer according to God's will entrust their souls
   to a faithful Creator while doing good. (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
 
 And those who have faith in Jesus, have faith in Father God:
 
@@ -14240,6 +14317,9 @@ devil:
   teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his
   wicked works. (ESV)
 
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
+
 I've received inordinate amounts of this type of opposition (i.e. opposition to the gospel). Truth has to be
 spoken in darkness, where people are contradicting the Word. I've noticed very heavy resistance:
 
@@ -14370,6 +14450,9 @@ God:
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
   teaching, do not receive him into your house or give him any greeting, (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
 
 We must agape love, treasure, value, be faithful to God the Father, the Son and Holy Spirit, more than anyone
 else. But we must also love our family in Christ:
@@ -14580,7 +14663,7 @@ object of the belief:
   James 2:22-24 - You see that faith was active along with his works, and faith was completed by his works (G2041
   ergois; works/deeds); and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him
   as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith
-  alone. (ESV)
+  alone (G3440 monon; only). (ESV)
 
   Psalms 25:14 - The friendship of the LORD is for those who fear him, and he makes known to them his covenant.
   (ESV)
@@ -18445,7 +18528,7 @@ knowledge of God. It does not lead to producing good fruit.
   have seen it, saith the LORD. (KJV)
 
 Satanic and false 'humility' says the lie that God justifes the one who does not have faith in an attempt to give
-themself the rest rather than follow Jesus in love, faith and obedience and allow Jesus to gives the rest. Satanic
+themself the rest rather than follow Jesus in love, faith and obedience and allow Jesus to give the rest. Satanic
 and false 'humility' tries to "steal the rest" like a thief would, to try to enter into the sheepfold "some other
 way", refusing to believe in Jesus Christ and His words, rather than to do the will of God in order to enter that
 rest:
@@ -18653,6 +18736,9 @@ awake for our Master to come. Being under grace rather than law doesn't mean we 
 
   Titus 1:16 - They profess to know God, but they deny him by their works. They are detestable, disobedient, unfit
   for any good work. (ESV)
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready or act according to his will,
+  will receive a severe beating. (ESV)
 
   Matthew 24:40-42 - Then two men will be in the field; one will be taken and one left. Two women will be grinding
   at the mill; one will be taken and one left. Therefore, stay awake, for you do not know on what day your Lord is
@@ -20798,6 +20884,9 @@ God trains us through discipline for holiness to behave righteously and the frui
 So in resting from our works, we remain ready and prepared to do good works opportunistically (as they are given
 to us, as keeping a good conscience with God would require them to be done).
 
+  Galatians 6:10 - So then, as we have opportunity, let us do good to everyone, and especially to those who are of
+  the household of faith. (ESV)
+
 Being "generous" and "ready to share" are heart attitudes and as we practice these heart attitudes, the Scripture
 says we are laying up a good foundation for the future:
 
@@ -21068,6 +21157,9 @@ not proceed from faith is sin. We should be obedient, ready for every good deed:
 
   Titus 3:1 - Remind them to be submissive to rulers and authorities, to be obedient, to be ready for every good
   work, (ESV)
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready or act according to his will,
+  will receive a severe beating. (ESV)
 
 Works is to faith as body is to spirit:
 
@@ -25530,7 +25622,7 @@ object of the belief:
   James 2:22-24 - You see that faith was active along with his works, and faith was completed by his works (G2041
   ergois; works/deeds); and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him
   as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith
-  alone. (ESV)
+  alone (G3440 monon; only). (ESV)
 
   Psalms 25:14 - The friendship of the LORD is for those who fear him, and he makes known to them his covenant.
   (ESV)
@@ -29907,7 +29999,7 @@ object of the belief:
   James 2:22-24 - You see that faith was active along with his works, and faith was completed by his works (G2041
   ergois; works/deeds); and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him
   as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith
-  alone. (ESV)
+  alone (G3440 monon; only). (ESV)
 
   Psalms 25:14 - The friendship of the LORD is for those who fear him, and he makes known to them his covenant.
   (ESV)
@@ -30784,6 +30876,9 @@ God:
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
   teaching, do not receive him into your house or give him any greeting, (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
 
 And I believe that faith in Jesus Christ is the means by which I am or would be justified and the way I should
 live to be justified, and the means by which people are justified but I don't justify myself or commend myself for
@@ -34036,6 +34131,9 @@ We've got to continue in Jesus' teachings/commandments:
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
   teaching, do not receive him into your house or give him any greeting, (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
 
 Those who find a place for God's word in their heart, those who are of the truth, who receive God's word, they
 listen to what Jesus has said. They are not repulsed by Jesus' words, nor are they repulsed by Jesus'
@@ -38167,6 +38265,9 @@ We should keep coming to Jesus, keep learning from Jesus:
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
   teaching, do not receive him into your house or give him any greeting, (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
 
 I believe that a person can be an "unregenerate" "believer" (Jude 1:20-21) who is coming to Jesus, learning from
 Father God (John 6:45), and then sin kills them at some point because they cant keep the law though the law isn't
@@ -46884,6 +46985,9 @@ whatever has happened has happened. I think everyone involved should repent befo
   yourselves clean; remove the evil of your deeds from before my eyes; cease to do evil, learn to do good; seek
   justice, correct oppression; bring justice to the fatherless, plead the widow's cause. (ESV)
 
+  John 9:31 - We know that God does not listen to sinners, but if anyone is a worshiper of God and does his will,
+  God listens to him. (ESV)
+
 I also do not affirm the LDS doctrine here. I see the LDS stuff here as heretical, and I do not consider their
 extra books to be Scripture.:
 
@@ -49613,6 +49717,9 @@ one another as He loved us John 13:34-35:
   II John 1:9-10 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
   teaching, do not receive him into your house or give him any greeting, (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
 
 And our obedience is not burdensome:
 
@@ -54288,10 +54395,15 @@ God trains us through discipline for holiness to behave righteously and the frui
   later it yields the peaceful fruit of righteousness to those who have been trained by it. (ESV)
 
 So in resting from our works, we remain ready and prepared to do good works opportunistically (as they are given
-to us, as keeping a good conscience with God would require them to be done). So the rest is resting with a faith
-that is still maintaining a genuine agape-love for God and for one's neighbour, especially their family in Christ.
-But so long as we are keeping Christ's law lawfully trusting in Him and loving one-another as He has commanded and
-demonstrated, we are permitted to rest and are not duty bound to perform tasks that are not within Christ's law.
+to us, as keeping a good conscience with God would require them to be done).
+
+  Galatians 6:10 - So then, as we have opportunity, let us do good to everyone, and especially to those who are of
+  the household of faith. (ESV)
+
+So the rest is resting with a faith that is still maintaining a genuine agape-love for God and for one's
+neighbour, especially their family in Christ. But so long as we are keeping Christ's law lawfully trusting in Him
+and loving one-another as He has commanded and demonstrated, we are permitted to rest and are not duty bound to
+perform tasks that are not within Christ's law.
 
 Since God has prepared the good works for us to walk in, God is ultimately in control of dispensing these good
 works, as we receive them, walking in them faithfully, lovingly and obediently!
@@ -55993,6 +56105,11 @@ of his evil treasure produces evil, for out of the abundance of the heart his mo
 • I Corinthians 16:13-14 - Be watchful, stand firm in the faith, act like men, be strong. Let all that you
 do be done in love. (ESV)
 
+The servant who is disobedient to God will receive a beating:
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
+  prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
+
 Holding faith in Jesus while going through suffering is sanctifying. Obeying Jesus while going through suffering
 is sanctifying. Suffering in and of itself is not sanctifying.
 
@@ -57492,6 +57609,9 @@ We've got to continue in Jesus' teachings/commandments:
   Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
   teaching, do not receive him into your house or give him any greeting, (ESV)
 
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
+
 Those who find a place for God's word in their heart, those who are of the truth, who receive God's word, they
 listen to what Jesus has said. They are not repulsed by Jesus' words, nor are they repulsed by Jesus'
 commandments. They are not repulsed by who Jesus is, and they are not repulsed by what Jesus has done as recorded
@@ -58637,6 +58757,9 @@ should not associate with them.
 
   Psalms 26:5 - I hate the assembly of evildoers, and I will not sit with the wicked. (ESV)
 
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
+
 We need to cling to Christ's words and teachings and use them to correct our brothers in Christ. If there is
 resistance to Christ's teachings within the church, then that is not good.
 
@@ -58996,6 +59119,9 @@ We have to abide in the teaching of Christ - it's a war:
   truth. (ESV)
 
   Ephesians 5:11 - Take no part in the unfruitful works of darkness, but instead expose them. (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
 
 We must expose the darkness and repent from sin and carry out deeds of light done in God - God working in us as we
 hold faith in and obey the true Jesus Christ:
@@ -64365,7 +64491,7 @@ object of the belief:
   James 2:22-24 - You see that faith was active along with his works, and faith was completed by his works (G2041
   ergois; works/deeds); and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him
   as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith
-  alone. (ESV)
+  alone (G3440 monon; only). (ESV)
 
   Psalms 25:14 - The friendship of the LORD is for those who fear him, and he makes known to them his covenant.
   (ESV)
@@ -66468,6 +66594,11 @@ that we should love one another. (ESV)
 of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 • I Corinthians 16:13-14 - Be watchful, stand firm in the faith, act like men, be strong. Let all that you
 do be done in love. (ESV)
+
+The servant who is disobedient to God will receive a beating:
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
+  prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
 
 Holding faith in Jesus while going through suffering is sanctifying. Obeying Jesus while going through suffering
 is sanctifying. Suffering in and of itself is not sanctifying.
@@ -80913,8 +81044,521 @@ Lust is super bad, even after born-again:
   Leviticus 19:18 - You shall not take vengeance or bear a grudge against the sons of your own people, but you
   shall love your neighbor as yourself: I am the Lord.
 
-17. Clearing up justifying faith vs justifying works - It's faith in Jesus Himself that matters. Also, it's God who
-justifies us, not we who justify ourselves. We have faith in God to justify us, as we place our faith in Him
+17. Clearing up justifying faith vs justifying works
+
+It's faith in Jesus Christ Himself in the heart that matters (Romans 3:26, Romans 10:10). Also, it's God who
+justifies us, not we who justify ourselves (Romans 3:26). Our duty is simply to have faith in Jesus Christ and
+keep His commandments (Ecclesiastes 12:13, II Corinthians 10:18, I John 3:23).
+
+With a genuine faith, there will be genuine love in the heart for one's family in Christ:
+
+  I John 3:14 - We know that we have passed out of death into life, because we love the brothers. Whoever does not
+  love abides in death. (ESV)
+
+  John 5:24 - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He
+  does not come into judgment, but has passed from death to life. (ESV)
+
+With this love in the heart, having the love of God in them, a person would have the heart to help their family in
+Christ:
+
+  I John 3:14-20 - We know that we have passed out of death into life, because we love (agapōmen) the brothers.
+  Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no
+  murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought
+  to lay down our lives for the brothers. But if anyone has the world's goods and sees his brother in need, yet
+  closes his heart against him, how does God's love abide in him? Little children, let us not love in word or talk
+  but in deed and in truth. By this we shall know that we are of the truth and reassure our heart before him; for
+  whenever our heart condemns us, God is greater than our heart, and he knows everything. (ESV)
+
+We must be obedient, "ready to do" (heart attitudes) good works, someone who will produce good deeds, and that
+means having the love of God in us:
+
+  II Timothy 2:21 - Therefore, if anyone cleanses himself from what is dishonorable, he will be a vessel for
+  honorable use, set apart as holy, useful to the master of the house, ready for every good work. (ESV)
+
+  Romans 6:16-18 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of
+  the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But
+  thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of
+  teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness.
+  (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+  Psalms 81:12-15 - So I gave them up to their stubborn hearts to follow their own devices. If only My people
+  would listen to Me, if Israel would follow My ways, how soon I would subdue their enemies and turn My hand
+  against their foes! Those who hate the LORD would feign obedience, and their doom would last forever.
+  (engbsb2020eb)
+
+There is nothing at all wrong with faith working righteousness. That is certainly where we want to be. Working
+righteousness from faith is what a saved person does (Galatians 5:1-6).
+
+But what is certainly not good is working lawlessness (Matthew 7:7-24). We want to avoid working lawlessness.
+
+But there is a third category, which is faith without working (Romans 4:5).
+
+Someone who believes they are saved by "faith alone" while they are actually working lawlessness does not actually
+have faith alone, because they are working lawlessness. Faith without working at all is different to faith while
+working lawlessness.
+
+───────────────────────────────────────────────────────────────────────────────────────────────────
+Good                                             Evil
+───────────────────────────────────────────────────────────────────────────────────────────────────
+Faith working righteousness (John 3:21, John 4:34)  Love for evil working lawlessness (John 3:20)
+Faith without working (Romans 4:5)
+───────────────────────────────────────────────────────────────────────────────────────────────────
+
+The servant who is disobedient to God will receive a beating:
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
+  prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
+
+A person can't enter God's rest by sinning, disobeying or doubting (Hebrews 3:14-19, Hebrews 4:1-11).
+
+God causes the person to rest (Ezekiel 37:12-14), and we are instructed to strive to enter the rest.
+
+That striving, I do believe involves a cessation from committing sin:
+
+  Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
+  adultery, and swear falsely, and burn incense unto Baal, and walk after other gods whom ye know not; And come
+  and stand before me in this house, which is called by my name, and say, We are delivered to do all these
+  abominations? Is this house, which is called by my name, become a den of robbers in your eyes? Behold, even I
+  have seen it, saith the LORD. (KJV)
+
+  John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
+  way, that man is a thief and a robber. (ESV)
+
+  Psalms 101:7 - He who practices deceit shall not dwell within my house; He who speaks falsehood shall not
+  maintain his position before me. (NASB)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  I John 3:6-18 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or
+  known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. We should not be like Cain, who was of the
+  evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's
+  righteous. Do not be surprised, brothers, that the world hates you. We know that we have passed out of death
+  into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother
+  is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid
+  down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods
+  and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little
+  children, let us not love in word or talk but in deed and in truth. (ESV)
+
+A person entering the rest of God does coincide with God causing that person to rest from their works as God
+Himself rested from His works of creation, but this rest is received while having faith in and obeying God rather
+than committing sin:
+
+Hebrews 4:10 (Interlinear)
+
+the [one] (G3588 ho) indeed (G1063 gar) having entered (G1525 eiselthōn) into (G1519 eis) the (G3588 tēn) rest
+(G2663 katapausin) of him (G846 autou) also (G2532 kai) he (G846 autos) rested (G2664 katepausen) from (G575 apo)
+the (G3588 tōn) works (G2041 ergōn) of him (G846 autou) as (G5618 hōsper) from (G575 apo) [his] (G3588 tōn) own
+(G2398 idiōn)
+
+• (G3588 ho)
+
+God [did] (G2316 Theos)
+
+There is absolutely nothing wrong with keeping up good works as we are sowing to the Spirit towards reaping
+eternal life. In other words, sowing to the Spirit to reap eternal life is not against meanwhile endeavouring to
+maintain doing good deeds towards others. If anything, doing good deeds helps a person to sow to the Spirit. When
+a person is doing good deeds, they are not doing bad deeds! And a person with a genuine faith in Jesus will be
+inclined to doing good deeds (I John 3:6-18) and to not sin:
+
+  James 4:17 - So whoever knows the right thing to do and fails to do it, for him it is sin. (ESV)
+
+  Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
+  one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
+  the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
+  not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
+
+But entering God's rest does involve "abiding in Christ's commandments":
+
+  I John 4:15-21 - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. So we have
+  come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God,
+  and God abides in him. By this is love perfected with us, so that we may have confidence for the day of
+  judgment, because as he is so also are we in this world. There is no fear in love, but perfect love casts out
+  fear. For fear has to do with punishment, and whoever fears has not been perfected in love. We love because he
+  first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
+  brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever
+  loves God must also love his brother. (ESV)
+
+So how can a person have faith while not be working/deeding (i.e. presently doing a deed)? It is possible (Romans
+4:5) to have faith while not "working". If a person has faith but is not working/deeding presently, that does not
+mean that they will not go on to do deeds at some point because Jesus promises in (John 14:12) that someone who
+has faith in Him will go on to do His deeds. And they must (Luke 13:6-9, John 3:16-21, John 14:12, I Peter
+2:15-25).
+
+And if a person has faith but is not working/deeding presently, it does not mean that they do not already have
+deeds. Those deeds which they have might be bad deeds. But that doesn't mean this person goes on to produce more
+bad deeds. Rather, their previous deeds which they have are forgiven (Luke 7:40-50) and they now have the love of
+God in them, and they go on to produce good deeds, and we must continue in faith (Ezekiel 18:20-24, Hebrews
+3:12-19) rather than committing sin:
+
+  Romans 4:6-8 - just as David also speaks of the blessing of the one to whom God counts righteousness apart from
+  works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man
+  against whom the Lord will not count his sin. (ESV)
+
+But this person with faith is not working. This is a person who is not presently making a deed, but has faith and
+so is poised to produce good deeds and will go on to do good deeds, but is not presently working/doing deeds at
+all. So I'm thinking of somebody who has stopped what they're doing because they were producing evil deeds.
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+If we do not see the "light of this world" then we should not walk, because we do not want not stumble (Mark
+9:45-46). We should certainly then rest/abstain from working if continuing to work would mean stumbling, and this
+cessation of working because one doubts their own faith is not without actually having faith:
+
+  Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
+  faith is counted as righteousness, (ESV)
+
+God knows our hearts better than ourselves after all. This man considered himself to be a sinner, but being
+justified, surely he had faith, not faith in Himself, but in God. If a person believes that they are a sinner,
+that doesn't mean God necessarily does (Hebrews 10:38). Some people don't care about sinning and gladly call
+themselves sinners, and are totally unrepentant and do not believe that they can be set free from committing sin.
+And some people reject entirely that a Christian can become "no longer a sinner" (I Peter 4:12-19, I John 3:8-10)
+and to believe such is against having faith in the blood of Jesus Christ. So just believing that oneself is a
+sinner is not in and of itself what constitutes a genuine faith. But regardless if someone is the person beating
+his breast saying, "God, be merciful to me, a sinner!" or the one who has confidence for the day of judgement, in
+all things we should be in agreemenet with and love the person of Jesus Christ who committed no sin, and be
+endeavouring to abide in His commandments. The full duty of man is to fear God and to keep His commandments. So we
+should just do that, believing in the name of Jesus Christ and loving one another as commanded, and trust in what
+God's word says, and leave the commending to God:
+
+  Luke 18:9-14 - He also told this parable to some who trusted in themselves that they were righteous, and treated
+  others with contempt: Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The
+  Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust,
+  adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax
+  collector, standing far off, would not even lift up his eyes to heaven, but beat his breast, saying, God, be
+  merciful to me, a sinner! I tell you, this man went down to his house justified, rather than the other. For
+  everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+
+  I John 4:15-17 - Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. So we have
+  come to know and to believe the love that God has for us. God is love, and whoever abides in love abides in God,
+  and God abides in him. By this is love perfected with us, so that we may have confidence for the day of
+  judgment, because as he is so also are we in this world. (ESV)
+
+To keep the command to not work on the Sabbath is to obey but not to work! Thus this example shows that obedience
+to God doesn't strictly mean working, and that it's possible to have faith while not working. Doing good works out
+of faith/obedience on the Sabbath as Jesus did is also still obedience and is right as there are weightier matters
+of the law (Matthew 23:23-25) and also because the Sabbath was made for man (Mark 2:23-28), not man for the
+Sabbath. It's always permissible to do a good deed. But it's also obedient to take a rest if it doesn't mean doing
+a bad deed. What is not done in faith is sin. But also, what is done without faith (without the light in us) is
+sin. And so, when continuing in faith and obedience requires a person to rest rather than work, they should rest.
+
+So obedience sometimes means "not working":
+
+  John 9:4 - We must work the works of him who sent me while it is day; night is coming, when no one can work.
+  (ESV)
+
+  John 11:9-10 - Jesus answered, Are there not twelve hours in the day? If anyone walks in the day, he does not
+  stumble, because he sees the light of this world. But if anyone walks in the night, he stumbles, because the
+  light is not in him. (ESV)
+
+  I Peter 2:8 - and A stone of stumbling, and a rock of offense. They stumble because they disobey the word, as
+  they were destined to do. (ESV)
+
+  Romans 9:32 - Why? Because they did not pursue it by faith, but as if it were based on works. They have stumbled
+  over the stumbling stone, (ESV)
+
+So if a person thinks that they might do evil if they continue working, then they need to stop what they're doing.
+If a person can't see where they are going then they should stop walking (John 9:4, John 11:9-10).
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+Instead of pride pushing a person forward into continuing to work even while they can't see where they are going,
+the person should simply cease walking altogether, out of faith.
+
+This does not mean that such a person remains in this place of not deeding. And can a person who has faith in
+Jesus even remain in such a place of not deeding?
+
+I think of the Terminator self destructing because it knows its works are not good and it wants to stop doing evil
+works. A limitation with the Terminator analogy is that the Terminator can't get back up after self-terminating.
+
+It is possible to have faith without working:
+
+Romans 4:5 (Interlinear)
+To the [one] (G3588 tō) however (G1161 de) not (G3361 mē) working (G2038 ergazomenō) believing (G4100 pisteuonti)
+however (G1161 de) on (G1909 epi) the [One] (G3588 ton) justifying (G1344 dikaiounta) the (G3588 ton) ungodly
+(G765 asebē) is reckoned (G3049 logizetai) the (G3588 hē) faith (G4102 pistis) of him (G846 autou) for (G1519 eis)
+righteousness (G1343 dikaiosynēn)
+
+But it is also totally justified to continue doing good if you have the faith to proceed:
+
+  James 2:14-17 - What good is it, my brothers, if someone says he has faith but does not have works? Can that
+  faith save him? If a brother or sister is poorly clothed and lacking in daily food, and one of you says to them,
+  Go in peace, be warmed and filled, without giving them the things needed for the body, what good is that? So
+  also faith by itself, if it does not have works, is dead. (ESV)
+
+A person has works, good or evil. And a person has a heart that might have faith in it, or it might not. And a
+person might be working or resting.
+
+OK, so there are 2 type of rest I imagine there can be:
+
+ 1. Obeying to rest from working, out of faith, because one has faith in Jesus Christ and wants to stop doing evil
+(Romans 4:6-8). Consider this that there is a cessation from doing works, and thus a cessation from committing
+sin (Romans 14:23).
+ 2. God causing a person to rest as that person is striving in obedience to enter the rest of God (Ezekiel
+37:12-14).
+
+I'm not presently convinced that these two types of rest are exactly the same, but I will keep thinking about it.
+I think that one thing for sure is that in both cases, there has been both faith and a cessation from committing
+sin.
+
+"Peace" and thus "rest" go to those who obey the truth, who have faith. There is nothing at all wrong with "doing
+good". There are good wages for doing good. But consider the somebody who has done evil and recognises that, and
+in faith in God who justifies ungodly people, ceases from working altogether (which means also a cessation from
+committing sin), that that person's faith is counted as righteousness. Now I do not think that that means that the
+person will forever remain without good deeds because Jesus promises deeds (John 14:12):
+
+  Romans 2:6-11 - He will render to each one according to his works (G2041 erga; deeds): to those who by patience
+  in well-doing seek for glory and honor and immortality, he will give eternal life; but for those who are
+  self-seeking and do not obey the truth, but obey unrighteousness, there will be wrath and fury. There will be
+  tribulation and distress for every human being who does (G2716 katergazomenou) evil, the Jew first and also the
+  Greek, but glory and honor and peace for everyone who does (G2038 ergazomenō; is working for payment) good, the
+  Jew first and also the Greek. For God shows no partiality. (ESV)
+
+  Romans 4:4-6 - Now to the one who works (G2038 ergazomenō; is working for payment), his wages are not counted as
+  a gift but as his due. And to the one who does not work (G2038 ergazomenō; is working for payment) but trusts
+  him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing
+  of the one to whom God counts righteousness apart from (G5565 chōris) works (G2041 ergōn): (ESV)
+
+  Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
+  one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
+  the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
+  not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+But entering God's rest is never done out of disbelief or disobedience.
+
+There is no difference between the obedience that went into producing a deed and the obedience that is ready to
+produce a deed. The obedience in the heart is the same for both. There is no difference between the faith went
+into producing a deed and the faith that is ready to produce a deed. The faith in the heart is the same for both.
+
+A person's faith is counted apart from (G5565 chōris) their works. A person also has works, but it's the "faith
+component which is counted".
+
+But it is possible to have faith while not working, and that is resting.
+
+It is certainly possible also to be justified by deeds. But God counts the faith/obedience/fear of God in the
+heart. And so this justification by deeds is really justification by the faith apart (G5565 chōris) from the
+deeds:
+
+  James 2:25 - And in the same way was not also Rahab the prostitute justified by works when she received the
+  messengers and sent them out by another way? (ESV)
+
+  Hebrews 11:31 - By faith Rahab the prostitute did not perish with those who were disobedient, because she had
+  given a friendly welcome to the spies. (ESV)
+
+  Hebrews 11:8 - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an
+  inheritance. And he went out, not knowing where he was going. (ESV)
+
+  Hebrews 11:17 - By faith Abraham, when he was tested, offered up Isaac, and he who had received the promises was
+  in the act of offering up his only son, (ESV)
+
+  Genesis 22:12 - He said, Do not lay your hand on the boy or do anything to him, for now I know that you fear
+  God, seeing you have not withheld your son, your only son, from me. (ESV)
+
+OK, what about being justified by "works of the Law"? In that case, I think it's not possible, because it would
+require perfect obedience to the entire law united with perfect deeds:
+
+  Romans 3:20 - For by works of the law no human being will be justified in his sight, since through the law comes
+  knowledge of sin. (ESV)
+
+Jesus Christ, God's Son was the perfect man with regard even to the whole Law, the whole Old Covenant Law:
+
+  James 3:2 - For we all stumble in many ways, and if anyone does not stumble in what he says, he is a perfect
+  man, able also to bridle his whole body. (ESV)
+
+  Galatians 5:1-6 - For freedom Christ has set us free; stand firm therefore, and do not submit again to a yoke of
+  slavery. Look: I, Paul, say to you that if you accept circumcision, Christ will be of no advantage to you. I
+  testify again to every man who accepts circumcision that he is obligated to keep the whole law. You are severed
+  from Christ, you who would be justified by the law; you have fallen away from grace. For through the Spirit, by
+  faith, we ourselves eagerly wait for the hope of righteousness. For in Christ Jesus neither circumcision nor
+  uncircumcision counts for anything, but only faith working through love. (ESV)
+
+"The one having completed all of these external deeds will live" is probably an accurate way to understand "the
+one who does (G4160 poiēsas; having done) them shall live by them", as if there entire future is dependent on the
+completion of all of these external tasks:
+
+  Galatians 3:10-13 - For all who rely on works (G2041 ergōn: works, deed, action, task, labor) of the law are
+  under a curse; for it is written, Cursed be everyone who does not abide by all things written in the Book of the
+  Law, and do them. Now it is evident that no one is justified before God by the law, for The righteous shall live
+  by faith. But the law is not of faith, rather The one who does (G4160 poiēsas; having done) them shall live by
+  them. Christ redeemed us from the curse of the law by becoming a curse for us—for it is written, Cursed is
+  everyone who is hanged on a tree— (ESV)
+
+God sees the faith, love, thought and intention in the heart. A person would have to be a "perfect man" to connect
+faith with external action flawlessly every time. That doesn't mean the faith and obedience and intention are not
+in the heart to do the good, as we need to have that faith in Jesus Christ in our heart:
+
+  James 3:2 - For we all stumble in many ways, and if anyone does not stumble in what he says, he is a perfect
+  man, able also to bridle his whole body. (ESV)
+
+  Matthew 5:34-37 - But I say to you, Do not take an oath at all, either by heaven, for it is the throne of God,
+  or by the earth, for it is his footstool, or by Jerusalem, for it is the city of the great King. And do not take
+  an oath by your head, for you cannot make one hair white or black. Let what you say be simply Yes or No;
+  anything more than this comes from evil. (ESV)
+
+  James 4:15 - Instead you ought to say, If the Lord wills, we will live and do this or that. (ESV)
+
+  Romans 7:18 - For I know that nothing good dwells in me, that is, in my flesh; for the willing is present in me,
+  but the working out of the good is not. (LSB)
+
+And good works are works that have been wrought in God (i.e. they are God's work in the good person):
+
+  John 6:28-29 - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This
+  is the work of God, that you believe (G4100 pisteuo) in him whom he has sent. (ESV)
+
+  James 2:22-24 - You see that faith was active along with his works, and faith was completed by his works (G2041
+  ergois; works/deeds); and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him
+  as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith
+  alone (G3440 monon; only). (ESV)
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  I John 3:8-10 - Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
+
+The person who practices the truth does deeds which are being wrought it God:
+
+  John 3:21 - But he who practices the truth comes to the Light, so that his deeds may be manifested as having
+  been wrought in God.”
+
+  Philippians 2:13 - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
+
+A person born of God has God working through them doing good works:
+
+  I John 3:3-7 - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice
+  of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in
+  him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him
+  or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. (ESV)
+
+  Titus 2:9-14 - Slaves are to be submissive to their own masters in everything; they are to be well-pleasing, not
+  argumentative, not pilfering, but showing all good faith, so that in everything they may adorn the doctrine of
+  God our Savior. For the grace of God has appeared, bringing salvation for all people, training us to renounce
+  ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
+  waiting for our blessed hope, the appearing of the glory of our great God and Savior Jesus Christ, who gave
+  himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who
+  are zealous for good works. (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
+a "here and now" thing. If we are confessing and believing the same as God as regards Jesus Christ then that is
+what saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of
+Jesus Christ and His words are so vital to remain in agreement with. The faith is needed first and good deeds are
+produced while holding good faith. From faith in Jesus and His words we do what He says:
+
+  Romans 10:3-11 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
+  own, they did not submit to God's righteousness. For Christ is the end (G5056 telos) of the law for
+  righteousness to everyone who believes. For Moses writes about the righteousness that is based on the law, that
+  the person who does the commandments shall live by them. But the righteousness based on faith says, Do not say
+  in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the abyss?
+  (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth and in
+  your heart (that is, the word of faith that we proclaim); because, if you confess (G3670 homologēsēs; from
+  homologeó: To confess, to acknowledge, to agree) with your mouth that Jesus is Lord and believe in your heart
+  that God raised him from the dead, you will be saved. For with the heart one believes and is justified, and with
+  the mouth one confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to
+  shame. (ESV)
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+We need to be doers of what Jesus Christ says here. Being led by the spirit and not under the law, a person would
+be "seeking first the Kingdom of God and His righteousness" in preference to worrying about worldly concerns to
+make the flesh their strength, and so would prioritise by faith obeying Jesus Christ's commandments in reality
+over, say, "ironing a shirt". God wants us to walk by the spirit (do the will of God which He has commanded us)
+and to leave the rest to Him which includes providing us with our material needs:
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+  Matthew 6:24-25 - No one can serve two masters, for either he will hate the one and love the other, or he will
+  be devoted to the one and despise the other. You cannot serve God and money. Therefore I tell you, do not be
+  anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is
+  not life more than food, and the body more than clothing? (ESV)
+
+  Matthew 6:31-33 - Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall
+  we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all.
+  But seek first the kingdom of God and his righteousness, and all these things will be added to you. (ESV)
+
+  Psalms 103:17-18 - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him,
+  and his righteousness to children's children, to those who keep his covenant and remember to do his
+  commandments. (ESV)
+
+  Matthew 7:7-24 - Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you.
+  For everyone who asks receives, and the one who seeks finds, and to the one who knocks it will be opened. Or
+  which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him
+  a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will your
+  Father who is in heaven give good things to those who ask him! So whatever you wish that others would do to you,
+  do also to them, for this is the Law and the Prophets. Enter by the narrow gate. For the gate is wide and the
+  way is easy that leads to destruction, and those who enter by it are many. For the gate is narrow and the way is
+  hard that leads to life, and those who find it are few. Beware of false prophets, who come to you in sheep's
+  clothing but inwardly are ravenous wolves. You will recognize them by their fruits. Are grapes gathered from
+  thornbushes, or figs from thistles? So, every healthy tree bears good fruit, but the diseased tree bears bad
+  fruit. A healthy tree cannot bear bad fruit, nor can a diseased tree bear good fruit. Every tree that does not
+  bear good fruit is cut down and thrown into the fire. Thus you will recognize them by their fruits. Not everyone
+  who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is
+  in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in your name, and cast out demons in
+  your name, and do many mighty works in your name? And then will I declare to them, I never knew you; depart from
+  me, you workers of lawlessness. Everyone then who hears these words of mine and does them will be like a wise
+  man who built his house on the rock. (ESV)
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+The faith which a person is justified by is counted distinctly from (G5565 chōris) any corresponding external
+actions and distinctly from any corresponding law. This is very clearly not implying that a person doesn't have
+corresponding works (e.g. Abel's offering was done in faith), and very clearly not implying that a person does not
+seek to keep some law as they exercise their faith (Romans 14:23, Romans 9:30-32). But it's the faith which is
+counted distinctly from any corresponding external action or law:
+
+  Romans 3:20-25 - For by works of the law no human being will be justified in his sight, since through the law
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+  (G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in
+  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
+  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
+  forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
+  in his divine forbearance he had passed over former sins. (ESV)
+
+That is what is truly justification by faith 'alone', rather than what an antinomian / disobedient / faithless
+person might think faith alone is.
+
+Without the love of God, the love for the truth, in them, a person can't have saving faith:
+
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 I believe that when a person actually obeys Jesus' commandments out of love for Jesus, this isn't working for
 justification, but is as if Jesus is working through them.
@@ -81227,7 +81871,7 @@ object of the belief:
   James 2:22-24 - You see that faith was active along with his works, and faith was completed by his works (G2041
   ergois; works/deeds); and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him
   as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith
-  alone. (ESV)
+  alone (G3440 monon; only). (ESV)
 
   Psalms 25:14 - The friendship of the LORD is for those who fear him, and he makes known to them his covenant.
   (ESV)
@@ -81701,7 +82345,7 @@ See even the Apostle Paul from my perspective has entertained the idea that a pe
 but that they cannot boast before God, and I would say because they were saved by their work because they were
 obedient to God and out of that obedient heart, they did what God had instructed them to do to be saved:
 
-  James 2:24 - You see that a person is justified by works and not by faith alone. (ESV)
+  James 2:24 - You see that a person is justified by works and not by faith alone (G3440 monon; only). (ESV)
 
 Justification and redemption are a total gift:
 
@@ -81993,7 +82637,7 @@ See even the Apostle Paul from my perspective has entertained the idea that a pe
 but that they cannot boast before God, and I would say because they were saved by their work because they were
 obedient to God and out of that obedient heart, they did what God had instructed them to do to be saved:
 
-  James 2:24 - You see that a person is justified by works and not by faith alone. (ESV)
+  James 2:24 - You see that a person is justified by works and not by faith alone (G3440 monon; only). (ESV)
 
 Also, Jesus' own work on the cross is sufficient work for us to be justified by faith alone without our own work,
 but that does not mean we should not 'work'/walk for God through obedience which is characteristic of faith, even
@@ -83134,7 +83778,7 @@ There is a way of doing the law that is by faith:
 
 I'm sure that James would be referring to what Paul refers to in Romans 4:11-12:
 
-  James 2:24 - You see that a person is justified by works and not by faith alone. (ESV)
+  James 2:24 - You see that a person is justified by works and not by faith alone (G3440 monon; only). (ESV)
 
   Romans 9:30-32 - What shall we say, then? That Gentiles who did not pursue righteousness have attained it, that
   is, a righteousness that is by faith; but that Israel who pursued a law that would lead to righteousness did not
@@ -83475,7 +84119,7 @@ object of the belief:
   James 2:22-24 - You see that faith was active along with his works, and faith was completed by his works (G2041
   ergois; works/deeds); and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him
   as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith
-  alone. (ESV)
+  alone (G3440 monon; only). (ESV)
 
   Psalms 25:14 - The friendship of the LORD is for those who fear him, and he makes known to them his covenant.
   (ESV)
@@ -85669,8 +86313,8 @@ redemption which is a gift to us, so to say we are justified by works (and James
 in Hebrews 11) is really to say justified by obedience, but obedience is just a heart attitude that is part of
 faith and any work done in obedience is nothing to boast about because it is God who gives us instruction to obey:
 
-  James 2:24 - You see that a person is justified (G1344 dikaioo) by works (G2041 ergon) and not by faith alone.
-  (ESV)
+  James 2:24 - You see that a person is justified (G1344 dikaioo) by works (G2041 ergon) and not by faith alone
+  (G3440 monon; only). (ESV)
 
  | :  1344  dikaioo  dik-ah-yo'-o
  |
@@ -96638,7 +97282,7 @@ object of the belief:
   James 2:22-24 - You see that faith was active along with his works, and faith was completed by his works (G2041
   ergois; works/deeds); and the Scripture was fulfilled that says, Abraham believed God, and it was counted to him
   as righteousness—and he was called a friend of God. You see that a person is justified by works and not by faith
-  alone. (ESV)
+  alone (G3440 monon; only). (ESV)
 
   Psalms 25:14 - The friendship of the LORD is for those who fear him, and he makes known to them his covenant.
   (ESV)
@@ -105548,11 +106192,30 @@ The new self should be Christ formed in you:
   John 8:31-32 - So Jesus was saying to those Jews who had believed Him, “If you continue in My word, then you are
   truly disciples of Mine; and you will know the truth, and the truth will make you free.” (NASB)
 
-49.3. Created for God's glory
+49.3. Created for God's glory. Created for good works which God works through us
+
+  John 3:21 - But he who practices the truth comes to the Light, so that his deeds may be manifested as having
+  been wrought in God.”
+
+  Philippians 2:13 - for it is God who works in you, both to will and to work for his good pleasure. (ESV)
 
   Isaiah 43:6-7 - I will say to the north, Give up, and to the south, Do not withhold; bring my sons from afar and
   my daughters from the end of the earth, everyone who is called by my name, whom I created for my glory, whom I
   formed and made.
+
+  Titus 2:9-14 - Slaves are to be submissive to their own masters in everything; they are to be well-pleasing, not
+  argumentative, not pilfering, but showing all good faith, so that in everything they may adorn the doctrine of
+  God our Savior. For the grace of God has appeared, bringing salvation for all people, training us to renounce
+  ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
+  waiting for our blessed hope, the appearing of the glory of our great God and Savior Jesus Christ, who gave
+  himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who
+  are zealous for good works. (ESV)
+
+  I John 3:3-7 - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice
+  of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in
+  him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him
+  or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. (ESV)
 
 49.3.1. Man wasn't designed to kill and curse each other
 
@@ -118621,6 +119284,9 @@ make that discovery.
 
   So in resting from our works, we remain ready and prepared to do good works opportunistically (as they are
   given to us, as keeping a good conscience with God would require them to be done).
+
+  Galatians 6:10 - So then, as we have opportunity, let us do good to everyone, and especially to those who
+  are of the household of faith. (ESV)
 
 We'll go on reading verse 21: But now the righteousness of God without the law is manifested, being witnessed
 by the law and the Prophets. It's not contrary to the Law and the prophets. The Law and the Prophets in
@@ -141334,11 +142000,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-27 Sun 09:18
+Date: 2026-09-27 Sun 19:10
 
 Author: Shane Mulligan
 
-Created: 2026-09-27 Sun 09:24
+Created: 2026-09-27 Sun 20:31
 
 Validate
 
