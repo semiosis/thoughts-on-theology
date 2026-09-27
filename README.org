@@ -67409,7 +67409,12 @@ because they are working lawlessness. Faith without working at all is different 
 | Good                                                   | Evil                                            |
 |--------------------------------------------------------+-------------------------------------------------|
 | Faith working righteousness (*[[https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV][John 3:21]]*, *[[https://www.biblegateway.com/passage/?search=John%204%3A34&version=ESV][John 4:34]]*) | Love for evil working lawlessness (*[[https://www.biblegateway.com/passage/?search=John%203%3A20&version=ESV][John 3:20]]*) |
-| Faith without working (*[[https://www.biblegateway.com/passage/?search=Romans%204%3A5&version=ESV][Romans 4:5]]*)                   |                                                 |
+| Faith without working [[strongs:G2038][(G2038 ergazomenō; working)]] (*[[https://www.biblegateway.com/passage/?search=Romans%204%3A5&version=ESV][Romans 4:5]]*)                   |                                                 |
+
+The cessation of working/deeding [[strongs:G2038][(G2038 ergazomenō; working)]] in [[https://www.biblegateway.com/passage/?search=Romans%204%3A5&version=ESV][Romans 4:5]] is a differnet type of working to the work [[strongs:G2038][(G2038 ergazesthai)]] in II Thessalonians 3:10 because in Romans 4:5 it is a cessation of working to stop doing bad works.
+
++ [[https://biblehub.com/interlinear/2_thessalonians/3-10.htm][II Thessalonians 3:10]] (Interlinear) :: 
+    Even for when we were with you this we were commanding you that if anyone not [[strongs:G3756][(G3756 ou)]] is willing [[strongs:G2309][(G2309 thelei)]] to work [[strongs:G2038][(G2038 ergazesthai)]] neither let him eat
 
 The servant who is disobedient to God will receive a beating:
 
