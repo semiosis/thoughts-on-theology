@@ -81100,12 +81100,42 @@ Someone who believes they are saved by "faith alone" while they are actually wor
 have faith alone, because they are working lawlessness. Faith without working at all is different to faith while
 working lawlessness.
 
-───────────────────────────────────────────────────────────────────────────────────────────────────
-Good                                             Evil
-───────────────────────────────────────────────────────────────────────────────────────────────────
-Faith working righteousness (John 3:21, John 4:34)  Love for evil working lawlessness (John 3:20)
-Faith without working (Romans 4:5)
-───────────────────────────────────────────────────────────────────────────────────────────────────
+───────────────────────────────────────────────────────────────────────────────────────────────────────────────
+Good                                                   Evil
+───────────────────────────────────────────────────────────────────────────────────────────────────────────────
+Faith working righteousness (John 3:21, John 4:34)              Love for evil working lawlessness (John 3:20)
+Faith without working (G2038 ergazomenō; working) (Romans 4:5)   
+───────────────────────────────────────────────────────────────────────────────────────────────────────────────
+
+The cessation of working/deeding (G2038 ergazomenō; working) in Romans 4:5 is a differnet type of working to the
+work (G2038 ergazesthai) in II Thessalonians 3:10 because in Romans 4:5 it is a cessation of working to stop doing
+bad works.
+
+II Thessalonians 3:10 (Interlinear)
+Even for when we were with you this we were commanding you that if anyone not (G3756 ou) is willing (G2309 thelei)
+to work (G2038 ergazesthai) neither let him eat
+
+It is not wrong to do good out of faith. But it's wrong to continue deeding when without faith:
+
+  Matthew 12:12 - Of how much more value is a man than a sheep! So it is lawful to do good on the Sabbath. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 9:4 - We must work the works of him who sent me while it is day; night is coming, when no one can work.
+  (ESV)
+
+  John 11:9-10 - Jesus answered, Are there not twelve hours in the day? If anyone walks in the day, he does not
+  stumble, because he sees the light of this world. But if anyone walks in the night, he stumbles, because the
+  light is not in him. (ESV)
+
+We are instructed to not grow weary of doing good:
+
+  Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
+  one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
+  the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
+  not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
 
 The servant who is disobedient to God will receive a beating:
 
@@ -81157,15 +81187,10 @@ Himself rested from His works of creation, but this rest is received while havin
 than committing sin:
 
 Hebrews 4:10 (Interlinear)
-
 the [one] (G3588 ho) indeed (G1063 gar) having entered (G1525 eiselthōn) into (G1519 eis) the (G3588 tēn) rest
 (G2663 katapausin) of him (G846 autou) also (G2532 kai) he (G846 autos) rested (G2664 katepausen) from (G575 apo)
 the (G3588 tōn) works (G2041 ergōn) of him (G846 autou) as (G5618 hōsper) from (G575 apo) [his] (G3588 tōn) own
-(G2398 idiōn)
-
-• (G3588 ho)
-
-God [did] (G2316 Theos)
+(G2398 idiōn) - (G3588 ho) God [did] (G2316 Theos)
 
 There is absolutely nothing wrong with keeping up good works as we are sowing to the Spirit towards reaping
 eternal life. In other words, sowing to the Spirit to reap eternal life is not against meanwhile endeavouring to
@@ -81215,9 +81240,9 @@ all. So I'm thinking of somebody who has stopped what they're doing because they
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
   works than these will he do, because I am going to the Father. (ESV)
 
-If we do not see the "light of this world" then we should not walk, because we do not want not stumble (Mark
-9:45-46). We should certainly then rest/abstain from working if continuing to work would mean stumbling, and this
-cessation of working because one doubts their own faith is not without actually having faith:
+If we think we do not see the "light of this world" then we should not walk, because we do not want not stumble
+(Mark 9:45-46). We should certainly then rest/abstain from working if continuing to work would mean stumbling, and
+this cessation of working because one doubts their own faith is not without actually having faith:
 
   Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
   faith is counted as righteousness, (ESV)
@@ -81344,6 +81369,21 @@ person will forever remain without good deeds because Jesus promises deeds (John
   works than these will he do, because I am going to the Father. (ESV)
 
 But entering God's rest is never done out of disbelief or disobedience.
+
+Similarly, simply listening and learning from the Lord Jesus may be the priority when obeying God. Mary was not
+being disobedient here. She was being obedient to Father God to listen to Jesus:
+
+  Luke 10:38-42 - Now as they went on their way, Jesus entered a village. And a woman named Martha welcomed him
+  into her house. And she had a sister called Mary, who sat at the Lord's feet and listened to his teaching. But
+  Martha was distracted with much serving. And she went up to him and said, Lord, do you not care that my sister
+  has left me to serve alone? Tell her then to help me. But the Lord answered her, Martha, Martha, you are anxious
+  and troubled about many things, but one thing is necessary. Mary has chosen the good portion, which will not be
+  taken away from her. (ESV)
+
+  Mark 9:7 - And a cloud overshadowed them, and a voice came out of the cloud, This is my beloved Son; listen to
+  him.
+
+  Luke 9:35 - And a voice came out of the cloud, saying, This is my Son, my Chosen One; listen to him!
 
 There is no difference between the obedience that went into producing a deed and the obedience that is ready to
 produce a deed. The obedience in the heart is the same for both. There is no difference between the faith went
@@ -142004,7 +142044,7 @@ Date: 2026-09-27 Sun 19:10
 
 Author: Shane Mulligan
 
-Created: 2026-09-27 Sun 20:31
+Created: 2026-09-27 Sun 21:38
 
 Validate
 
