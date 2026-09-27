@@ -1238,6 +1238,57 @@ ungodly and it's coming for all the ungodly (Romans 1:18-25):
   II Peter 3:7 - But by the same word the heavens and earth that now exist are stored up for fire, being kept
   until the day of judgment and destruction of the ungodly. (ESV)
 
+──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+Good                                                     Evil
+──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10,     Love for evil working lawlessness (John
+John 6:27)                                                               3:20, Romans 6:22-23; i.e. the wages of
+sin)
+Faith without working (G2038 ergazomenō; working) (Romans 4:5, Romans
+6:22-23; i.e. the free gift). We all must receive this (Romans
+11:29-33), even the worker, because we must not be establishing a         
+righteousness of our own apart from Christ (Romans 10:3-11, John
+15:1-6)
+──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+
+The cessation of working/deeding (G2038 ergazomenō; working) in Romans 4:5 is a differnet type of working to the
+work (G2038 ergazesthai) in II Thessalonians 3:10 because in Romans 4:5 it is a cessation of working to stop doing
+bad works.
+
+Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
+decide, "I will not steal" is to decide to "not work lawlessness". For "faith alone" to be faith alone, a person
+needs to not be working:
+
+  I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
+  whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
+  longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles
+  want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
+
+  Ephesians 5:1-21 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
+  gave himself up for us, a fragrant offering and sacrifice to God. But sexual immorality and all impurity or
+  covetousness must not even be named among you, as is proper among saints. Let there be no filthiness nor foolish
+  talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
+  this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
+  inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these
+  things the wrath of God comes upon the sons of disobedience. Therefore do not associate (G1096 ginesthe; be)
+  (G4830 symmetochoi; partakers) with them; for at one time you were darkness, but now you are light in the Lord.
+  Walk as children of light (for the fruit of light is found in all that is good and right and true), and try to
+  discern what is pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them.
+  For it is shameful even to speak of the things that they do in secret. But when anything is exposed by the
+  light, it becomes visible, for anything that becomes visible is light. Therefore it says, Awake, O sleeper, and
+  arise from the dead, and Christ will shine on you. Look carefully then how you walk, not as unwise but as wise,
+  making the best use of the time, because the days are evil. Therefore do not be foolish, but understand what the
+  will of the Lord is. And do not get drunk with wine, for that is debauchery, but be filled with the Spirit,
+  addressing one another in psalms and hymns and spiritual songs, singing and making melody to the Lord with all
+  your heart, giving thanks always and for everything to God the Father in the name of our Lord Jesus Christ,
+  submitting to one another out of reverence for Christ. (ESV)
+
+  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
 So we need to be saved through sanctification and faith in Jesus Christ:
 
   Acts 26:16-18 - But rise and stand upon your feet, for I have appeared to you for this purpose, to appoint you
@@ -81100,12 +81151,18 @@ Someone who believes they are saved by "faith alone" while they are actually wor
 have faith alone, because they are working lawlessness. Faith without working at all is different to faith while
 working lawlessness.
 
-───────────────────────────────────────────────────────────────────────────────────────────────────────────────
-Good                                                   Evil
-───────────────────────────────────────────────────────────────────────────────────────────────────────────────
-Faith working righteousness (John 3:21, John 4:34)              Love for evil working lawlessness (John 3:20)
-Faith without working (G2038 ergazomenō; working) (Romans 4:5)   
-───────────────────────────────────────────────────────────────────────────────────────────────────────────────
+──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+Good                                                     Evil
+──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10,     Love for evil working lawlessness (John
+John 6:27)                                                               3:20, Romans 6:22-23; i.e. the wages of
+sin)
+Faith without working (G2038 ergazomenō; working) (Romans 4:5, Romans
+6:22-23; i.e. the free gift). We all must receive this (Romans
+11:29-33), even the worker, because we must not be establishing a         
+righteousness of our own apart from Christ (Romans 10:3-11, John
+15:1-6)
+──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 
 The cessation of working/deeding (G2038 ergazomenō; working) in Romans 4:5 is a differnet type of working to the
 work (G2038 ergazesthai) in II Thessalonians 3:10 because in Romans 4:5 it is a cessation of working to stop doing
@@ -81478,7 +81535,7 @@ And good works are works that have been wrought in God (i.e. they are God's work
   God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
   practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
 
-The person who practices the truth does deeds which are being wrought it God:
+The person who practices the truth does deeds which are being wrought in God:
 
   John 3:21 - But he who practices the truth comes to the Light, so that his deeds may be manifested as having
   been wrought in God.”
@@ -84581,13 +84638,53 @@ Hebrews addressed the same passage which Jesus addressed:
   is here. And if you had known what this means, I desire mercy, and not sacrifice, you would not have condemned
   the guiltless. For the Son of Man is lord of the Sabbath.
 
-17.7. Working faith
+17.7. Working faith (i.e. John 3:21, Galatians 6:7-10)
 
-Works and faith can't really exist apart from one another because even to believe in Jesus is a work - a work done
-in Christ, that is:
+──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+Good                                                     Evil
+──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10,     Love for evil working lawlessness (John
+John 6:27)                                                               3:20, Romans 6:22-23; i.e. the wages of
+sin)
+Faith without working (G2038 ergazomenō; working) (Romans 4:5, Romans
+6:22-23; i.e. the free gift). We all must receive this (Romans
+11:29-33), even the worker, because we must not be establishing a         
+righteousness of our own apart from Christ (Romans 10:3-11, John
+15:1-6)
+──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
+
+Works and faith can't really exist apart from one another because even for us to believe in Jesus is God's work.
+Even to have faith without working (i.e. to be obediently resting), God has worked to bring about that faith:
+
+  John 6:28-29 - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This
+  is the work of God, that you believe (G4100 pisteuo) in him whom he has sent.
+
+  Ezekiel 37:12-14 - Therefore, prophesy, and thou hast said unto them, thus said the Lord Jehovah: Lo, I am
+  opening your graves, And have brought you up out of your graves, O My people, And brought you in unto the land
+  of Israel. And ye have known that I am Jehovah, In My opening your graves, And in My bringing you up out of your
+  graves, O My people. And I have given My Spirit in you, and ye have lived, And I have caused you to rest on your
+  land, And ye have known that I Jehovah, I have spoken, and I have done it , An affirmation of Jehovah.' (YLT)
+
+The cessation of working/deeding (G2038 ergazomenō; working) in Romans 4:5 is a differnet type of working to the
+work (G2038 ergazesthai) in II Thessalonians 3:10 because in Romans 4:5 it is a cessation of working to stop doing
+bad works.
+
+There are good wages for working righteousness in Christ:
 
   John 6:27 - Do not labor for the food that perishes, but for the food that endures to eternal life, which the
   Son of Man will give to you. For on him God the Father has set his seal. (ESV)
+
+  John 4:32-34 - But he said to them, I have food to eat that you do not know about. So the disciples said to one
+  another, Has anyone brought him something to eat? Jesus said to them, My food is to do the will of him who sent
+  me and to accomplish his work. (ESV)
+
+  John 15:1-6 - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear
+  fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you
+  are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear
+  fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are
+  the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do
+  nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are
+  gathered, thrown into the fire, and burned. (ESV)
 
 This faith/trust/belief towards Jesus listens to Jesus' voice. So if a person is rejecting Jesus' teachings then
 they need to repent and trust Jesus' words. If the belief is true then we'll continue believing Jesus with all the
@@ -142040,11 +142137,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-27 Sun 19:10
+Date: 2026-09-28 Mon 08:35
 
 Author: Shane Mulligan
 
-Created: 2026-09-27 Sun 21:38
+Created: 2026-09-28 Mon 09:05
 
 Validate
 
