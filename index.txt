@@ -1238,26 +1238,57 @@ ungodly and it's coming for all the ungodly (Romans 1:18-25):
   II Peter 3:7 - But by the same word the heavens and earth that now exist are stored up for fire, being kept
   until the day of judgment and destruction of the ungodly. (ESV)
 
+Like a person who goes bankrupt would be forced to stop trading (think Spirit airlines forced to stop flying their
+planes), receiving the free gift of righteousness, does necessitate a cessation of work at some point:
+
+  Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
+  faith is counted as righteousness, (ESV)
+
+It's imperative, no matter how much we've been attempting to work for God, that we accept the free gift from God,
+and that does require at least some point at which we have rested/abstained from working while holding faith in
+Jesus Christ while ceasing from working altogether. In holding faith in Jesus while abstaining from working in a
+legitimate way (i.e. in a way that is obedient to God as opposed to abstaining from working in a way that is
+committing sin as a "sin of omission" - see James 4:17), while acknowledging their ungodliness (their sin) one
+receives the gift of righteousness:
+
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 Good                                                     Evil
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
-Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10,     Love for evil working lawlessness (John
-John 6:27)                                                               3:20, Romans 6:22-23; i.e. the wages of
-sin)
+Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10, John      Love for evil working lawlessness
+6:27)                                                                          (John 3:20, Romans 6:22-23; i.e.
+the wages of sin)
 Faith without working (G2038 ergazomenō; working) (Romans 4:5, Romans
-6:22-23; i.e. the free gift). We all must receive this (Romans
-11:29-33), even the worker, because we must not be establishing a         
-righteousness of our own apart from Christ (Romans 10:3-11, John
-15:1-6)
+6:22-23; i.e. the free gift). We all must receive this (Romans 11:29-33,
+Proverbs 12:3), even the one who works has to have received this (i.e. have
+ceased trusting in themselves that they are in themselves righteous apart
+from (G5565 chōris) Jesus Christ and to have refrained from working in order
+to received the gift), because we must not be establishing a righteousness of   
+our own which is apart from (G5565 chōris) Christ (Romans 10:3-11, John
+15:1-6). So there must be a point at which God affirms that we have
+recognised our own deeds have been evil, and we need His mercy, and we need
+forgiveness and atonement for the sin incurred due to our history of evil
+deeds, and had faith in Jesus Christ while resting/abstaining from working so
+as to not commit sin.
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 
 The cessation of working/deeding (G2038 ergazomenō; working) in Romans 4:5 is a differnet type of working to the
 work (G2038 ergazesthai) in II Thessalonians 3:10 because in Romans 4:5 it is a cessation of working to stop doing
-bad works.
+bad works, and into a state of rest that is recognising one's ungodliness, and history of ungodly deeds, but
+having faith in Jesus, and that is relying on the righteousness of God in Christ Jesus alone. But having received
+this forgiveness does not mean at all mean a permanent cessation of working or doing deeds for wages (John
+4:32-34). Ongoing deeds, even in obedience are both guaranteed (John 14:12), even though it is God working in us,
+and sowing to the Spirit rather than to the flesh ongoingly, continuing on abstaining from sin, is absolutely
+necessary for eternal life (Galatians 6:7-10, John 8:34-35,36,42,51):
+
+  Proverbs 12:3 - No one is established by wickedness, but the root of the righteous will never be moved. (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
 
 Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
-decide, "I will not steal" is to decide to "not work lawlessness". For "faith alone" to be faith alone, a person
-needs to not be working:
+decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a
+person needs to have stopped working (i.e. resting, abstaining from working evil) at some point that God alone
+works (John 6:28-29) in them:
 
   I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
   whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
@@ -55760,8 +55791,14 @@ But, yes, you can accept the gift (believe in Jesus) and under that condition wo
 
   Romans 4:4 - Now to the one who works, his wages are not counted as a gift but as his due. (ESV)
 
-We still really do need to accept the free gift! Actually, it's imperative, no matter how much we've been
-attempting to work for God, that we accept the free gift from God:
+We still really do need to accept the free gift!
+
+It's imperative, no matter how much we've been attempting to work for God, that we accept the free gift from God,
+and that does require at least some point at which we have rested/abstained from working while holding faith in
+Jesus Christ while ceasing from working altogether. In holding faith in Jesus while abstaining from working in a
+legitimate way (i.e. in a way that is obedient to God as opposed to abstaining from working in a way that is
+committing sin as a "sin of omission" - see James 4:17), while acknowledging their ungodliness (their sin) one
+receives the gift of righteousness:
 
   Romans 4:5-8 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted
   as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart
@@ -81151,26 +81188,91 @@ Someone who believes they are saved by "faith alone" while they are actually wor
 have faith alone, because they are working lawlessness. Faith without working at all is different to faith while
 working lawlessness.
 
+Like a person who goes bankrupt would be forced to stop trading (think Spirit airlines forced to stop flying their
+planes), receiving the free gift of righteousness, does necessitate a cessation of work at some point:
+
+  Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
+  faith is counted as righteousness, (ESV)
+
+It's imperative, no matter how much we've been attempting to work for God, that we accept the free gift from God,
+and that does require at least some point at which we have rested/abstained from working while holding faith in
+Jesus Christ while ceasing from working altogether. In holding faith in Jesus while abstaining from working in a
+legitimate way (i.e. in a way that is obedient to God as opposed to abstaining from working in a way that is
+committing sin as a "sin of omission" - see James 4:17), while acknowledging their ungodliness (their sin) one
+receives the gift of righteousness:
+
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 Good                                                     Evil
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
-Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10,     Love for evil working lawlessness (John
-John 6:27)                                                               3:20, Romans 6:22-23; i.e. the wages of
-sin)
+Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10, John      Love for evil working lawlessness
+6:27)                                                                          (John 3:20, Romans 6:22-23; i.e.
+the wages of sin)
 Faith without working (G2038 ergazomenō; working) (Romans 4:5, Romans
-6:22-23; i.e. the free gift). We all must receive this (Romans
-11:29-33), even the worker, because we must not be establishing a         
-righteousness of our own apart from Christ (Romans 10:3-11, John
-15:1-6)
+6:22-23; i.e. the free gift). We all must receive this (Romans 11:29-33,
+Proverbs 12:3), even the one who works has to have received this (i.e. have
+ceased trusting in themselves that they are in themselves righteous apart
+from (G5565 chōris) Jesus Christ and to have refrained from working in order
+to received the gift), because we must not be establishing a righteousness of   
+our own which is apart from (G5565 chōris) Christ (Romans 10:3-11, John
+15:1-6). So there must be a point at which God affirms that we have
+recognised our own deeds have been evil, and we need His mercy, and we need
+forgiveness and atonement for the sin incurred due to our history of evil
+deeds, and had faith in Jesus Christ while resting/abstaining from working so
+as to not commit sin.
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 
 The cessation of working/deeding (G2038 ergazomenō; working) in Romans 4:5 is a differnet type of working to the
 work (G2038 ergazesthai) in II Thessalonians 3:10 because in Romans 4:5 it is a cessation of working to stop doing
-bad works.
+bad works, and into a state of rest that is recognising one's ungodliness, and history of ungodly deeds, but
+having faith in Jesus, and that is relying on the righteousness of God in Christ Jesus alone. But having received
+this forgiveness does not mean at all mean a permanent cessation of working or doing deeds for wages (John
+4:32-34). Ongoing deeds, even in obedience are both guaranteed (John 14:12), even though it is God working in us,
+and sowing to the Spirit rather than to the flesh ongoingly, continuing on abstaining from sin, is absolutely
+necessary for eternal life (Galatians 6:7-10, John 8:34-35,36,42,51):
+
+  Proverbs 12:3 - No one is established by wickedness, but the root of the righteous will never be moved. (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
 
 II Thessalonians 3:10 (Interlinear)
 Even for when we were with you this we were commanding you that if anyone not (G3756 ou) is willing (G2309 thelei)
 to work (G2038 ergazesthai) neither let him eat
+
+Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
+decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a
+person needs to have stopped working (i.e. resting, abstaining from working evil) at some point that God alone
+works (John 6:28-29) in them:
+
+  I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
+  whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
+  longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles
+  want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
+
+  Ephesians 5:1-21 - Therefore be imitators of God, as beloved children. And walk in love, as Christ loved us and
+  gave himself up for us, a fragrant offering and sacrifice to God. But sexual immorality and all impurity or
+  covetousness must not even be named among you, as is proper among saints. Let there be no filthiness nor foolish
+  talk nor crude joking, which are out of place, but instead let there be thanksgiving. For you may be sure of
+  this, that everyone who is sexually immoral or impure, or who is covetous (that is, an idolater), has no
+  inheritance in the kingdom of Christ and God. Let no one deceive you with empty words, for because of these
+  things the wrath of God comes upon the sons of disobedience. Therefore do not associate (G1096 ginesthe; be)
+  (G4830 symmetochoi; partakers) with them; for at one time you were darkness, but now you are light in the Lord.
+  Walk as children of light (for the fruit of light is found in all that is good and right and true), and try to
+  discern what is pleasing to the Lord. Take no part in the unfruitful works of darkness, but instead expose them.
+  For it is shameful even to speak of the things that they do in secret. But when anything is exposed by the
+  light, it becomes visible, for anything that becomes visible is light. Therefore it says, Awake, O sleeper, and
+  arise from the dead, and Christ will shine on you. Look carefully then how you walk, not as unwise but as wise,
+  making the best use of the time, because the days are evil. Therefore do not be foolish, but understand what the
+  will of the Lord is. And do not get drunk with wine, for that is debauchery, but be filled with the Spirit,
+  addressing one another in psalms and hymns and spiritual songs, singing and making melody to the Lord with all
+  your heart, giving thanks always and for everything to God the Father in the name of our Lord Jesus Christ,
+  submitting to one another out of reverence for Christ. (ESV)
+
+  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
 
 It is not wrong to do good out of faith. But it's wrong to continue deeding when without faith:
 
@@ -101381,7 +101483,11 @@ But, yes, you can accept the gift (believe in Jesus) and under that condition wo
   Romans 4:4 - Now to the one who works, his wages are not counted as a gift but as his due. (ESV)
 
 We still really do need to accept the free gift! Actually, it's imperative, no matter how much we've been
-attempting to work for God, that we accept the free gift from God:
+attempting to work for God, that we accept the free gift from God, and that does require at least some point at
+which we have rested/abstained from working while holding faith in Jesus Christ while ceasing from working
+altogether. In holding faith in Jesus while abstaining from working in a legitimate way (i.e. in a way that is
+obedient to God as opposed to abstaining from working in a way that is committing sin as a "sin of omission" - see
+James 4:17), while acknowledging their ungodliness (their sin) one receives the gift of righteousness:
 
   Romans 4:5-8 - And to the one who does not work but trusts him who justifies the ungodly, his faith is counted
   as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart
@@ -142141,7 +142247,7 @@ Date: 2026-09-28 Mon 08:35
 
 Author: Shane Mulligan
 
-Created: 2026-09-28 Mon 09:05
+Created: 2026-09-28 Mon 10:23
 
 Validate
 
