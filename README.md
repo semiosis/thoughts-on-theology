@@ -73,7 +73,7 @@ Faith without love for the truth is evil (**[Luke 6:45](https://www.biblegateway
 Love for good produces good and love for evil produces evil (**[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)**).
 Works without faith are evil and sinful (**[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**).
 Works without obedience are evil and slothful (**[Matthew 25:24-30](https://www.biblegateway.com/passage/?search=Matthew%2025%3A24-30&version=ESV)**, **[Titus 1:9-16](https://www.biblegateway.com/passage/?search=Titus%201%3A9-16&version=ESV)**).
-As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (**[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)**) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With what faith are one's deeds being done? Faith in the truth or faith in lies?" Faith in lies is like doubting the truth (**[II Thessalonians 2:9-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-12&version=ESV)**, **[Jeremiah 29:31](https://www.biblegateway.com/passage/?search=Jeremiah%2029%3A31&version=ESV)**, **[Jeremiah 28:15](https://www.biblegateway.com/passage/?search=Jeremiah%2028%3A15&version=ESV)**, **[Isaiah 42:17](https://www.biblegateway.com/passage/?search=Isaiah%2042%3A17&version=ESV)**, **[Habakkuk 2:18](https://www.biblegateway.com/passage/?search=Habakkuk%202%3A18&version=ESV)**, **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)**, **[John 8:43-47](https://www.biblegateway.com/passage/?search=John%208%3A43-47&version=ESV)**).
+As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (**[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)**) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With what faith are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing the deeds? (a) God working as one obediently abstains from woroking? (**[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)**), or b) oneself working deeds that are being wrought in God? (**[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)**)" Faith in lies is like doubting the truth (**[II Thessalonians 2:9-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-12&version=ESV)**, **[Jeremiah 29:31](https://www.biblegateway.com/passage/?search=Jeremiah%2029%3A31&version=ESV)**, **[Jeremiah 28:15](https://www.biblegateway.com/passage/?search=Jeremiah%2028%3A15&version=ESV)**, **[Isaiah 42:17](https://www.biblegateway.com/passage/?search=Isaiah%2042%3A17&version=ESV)**, **[Habakkuk 2:18](https://www.biblegateway.com/passage/?search=Habakkuk%202%3A18&version=ESV)**, **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)**, **[John 8:43-47](https://www.biblegateway.com/passage/?search=John%208%3A43-47&version=ESV)**).
 Sin doesn't necessitate external action in order to be committed because sin can be committed in the heart (**[Matthew 5:28](https://www.biblegateway.com/passage/?search=Matthew%205%3A28&version=ESV)**), which is precisely why we are in need of the atoning work of Jesus Christ (**[Hebrews 10:4](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A4&version=ESV)**) to be received by faith in Jesus Christ (**[Romans 3:23-26](https://www.biblegateway.com/passage/?search=Romans%203%3A23-26&version=ESV)**).
 A person is blessed if they have faith accompanied by deeds (**[James 1:21-25](https://www.biblegateway.com/passage/?search=James%201%3A21-25&version=ESV)**).
 Speaking the truth, even regarding sin is important (**[Ephesians 4:20-32](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-32&version=ESV)**).
@@ -186,6 +186,8 @@ We need to be doers of what Jesus Christ says here. Being led by the spirit and 
 
 > **[Matthew 6:31-33](https://www.biblegateway.com/passage/?search=Matthew%206%3A31-33&version=ESV)** - Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all. But seek first the kingdom of God and his righteousness, and all these things will be added to you. (ESV)
 
+> **[II Timothy 2:3-4](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A3-4&version=ESV)** - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian pursuits, since his aim is to please the one who enlisted him. (ESV)
+
 > **[Psalms 103:17-18](https://www.biblegateway.com/passage/?search=Psalms%20103%3A17-18&version=ESV)** - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him, and his righteousness to children's children, to those who keep his covenant and remember to do his commandments. (ESV)
 
 > **[Matthew 7:7-24](https://www.biblegateway.com/passage/?search=Matthew%207%3A7-24&version=ESV)** - Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you. For everyone who asks receives, and the one who seeks finds, and to the one who knocks it will be opened. Or which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will your Father who is in heaven give good things to those who ask him! So whatever you wish that others would do to you, do also to them, for this is the Law and the Prophets. Enter by the narrow gate. For the gate is wide and the way is easy that leads to destruction, and those who enter by it are many. For the gate is narrow and the way is hard that leads to life, and those who find it are few. Beware of false prophets, who come to you in sheep's clothing but inwardly are ravenous wolves. You will recognize them by their fruits. Are grapes gathered from thornbushes, or figs from thistles? So, every healthy tree bears good fruit, but the diseased tree bears bad fruit. A healthy tree cannot bear bad fruit, nor can a diseased tree bear good fruit. Every tree that does not bear good fruit is cut down and thrown into the fire. Thus you will recognize them by their fruits. Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in your name, and cast out demons in your name, and do many mighty works in your name? And then will I declare to them, I never knew you; depart from me, you workers of lawlessness. Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock. (ESV)
@@ -251,6 +253,10 @@ The person who hopes in Jesus Christ purifies themself (**[I John 3:3-11](https:
 > **[II Corinthians 7:1](https://www.biblegateway.com/passage/?search=2%20Corinthians%207%3A1&version=ESV)** - Since we have these promises, beloved, let us cleanse ourselves from every defilement of body and spirit, bringing holiness to completion in the fear of God. (ESV)
 
 > **[I John 3:3-11](https://www.biblegateway.com/passage/?search=1%20John%203%3A3-11&version=ESV)** - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. (ESV)
+
+Being born of God, by the will of God, could be in "doing good" because it may be God's will for a person to do good and a person is born of God by the will of God ([I Peter 2:15](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A15&version=ESV)) if it is God's will (I Peter 3:17).
+
+A person who loves in the truth is born of God (**[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)**).
 
 Those who have faith in Jesus have faith in Jesus in their own heart thanks to God. All glory to God:
 
@@ -658,6 +664,35 @@ The cessation of working/deeding [(G2038 ergazomenō; working)](G2038) in [Roman
 > **[Proverbs 12:3](https://www.biblegateway.com/passage/?search=Proverbs%2012%3A3&version=ESV)** - No one is established by wickedness, but the root of the righteous will never be moved. (ESV)
 
 > **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
+
+I think of the [Terminator stopping his works and just freezing](https://youtu.be/51gf648nRyE?t=102) because it knows its works are not serving the mission objectives, and it decides that it's for the best to cease working.
+
+-   **[youtube.com:  Terminator 3 : T - 850 Corrupted {@ CherryPopper784 } @time: 1 min 42 sec](https://youtube.com/watch?v=51gf648nRyE&t=102):** What is your mission?
+    To ensure the survival of John Connor and Katherine Brewster.
+    You are about to fail that mission.
+    I&#x2026;  I cannot.
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+> **[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)** - Now to the one who works [(G2038 ergazomenō; is working for payment)](G2038), his wages are not counted as a gift but as his due. And to the one who does not work [(G2038 ergazomenō; is working for payment)](G2038) but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from [(G5565 chōris)](G5565) works [(G2041 ergōn)](G2041): (ESV)
+
+> **[John 9:4](https://www.biblegateway.com/passage/?search=John%209%3A4&version=ESV)** - We must work the works of him who sent me while it is day; night is coming, when no one can work. (ESV)
+
+> **[John 11:9-10](https://www.biblegateway.com/passage/?search=John%2011%3A9-10&version=ESV)** - Jesus answered, Are there not twelve hours in the day? If anyone walks in the day, he does not stumble, because he sees the light of this world. But if anyone walks in the night, he stumbles, because the light is not in him. (ESV)
+
+Yet why would a person stop deeding if they had the faith to proceed?
+
+> **[Jeremiah 20:9](https://www.biblegateway.com/passage/?search=Jeremiah%2020%3A9&version=ESV)** - If I say, I will not mention him, or speak any more in his name, there is in my heart as it were a burning fire shut up in my bones, and I am weary with holding it in, and I cannot. (ESV)
+
+> **[Luke 6:9-10](https://www.biblegateway.com/passage/?search=Luke%206%3A9-10&version=ESV)** - And Jesus said to them, I ask you, is it lawful on the Sabbath to do good or to do harm, to save life or to destroy it? And after looking around at them all he said to him, Stretch out your hand. And he did so, and his hand was restored. (ESV)
+
+> **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. And **let us not grow weary of doing good,** for in due season we will reap, if we do not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
+
+So I believe that while everyone "'has' deeds" (as in a history of deeds), it's still possible to have "stopped making deeds" while also still having faith, yet will go on to produce deeds (**[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)**).
+
+Yet even resting in faith, God is working, because the person still has faith:
+
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
 Being cleansed from sin involves a cessation of committing sin (**[I Peter 4:1-3](https://www.biblegateway.com/passage/?search=1%20Peter%204%3A1-3&version=ESV)**, **[Ephesians 5:1-21](https://www.biblegateway.com/passage/?search=Ephesians%205%3A1-21&version=ESV)**, **[I John 1:7](https://www.biblegateway.com/passage/?search=1%20John%201%3A7&version=ESV)**). To decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a person needs to have stopped working (i.e. resting, abstaining from working evil) at some point that God alone works (**[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)**) in them:
 
@@ -1906,6 +1941,8 @@ We've got to love love-another and resist sin and fulfill the law of Christ:
 > **[Galatians 5:18-25](https://www.biblegateway.com/passage/?search=Galatians%205%3A18-25&version=ESV)** - But **if** you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. And **those who belong to Christ Jesus have crucified the flesh with its passions and desires.** If we live by the Spirit, let us also walk by the Spirit. (ESV)
 
 > **[II Corinthians 5:9-12](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A9-12&version=ESV)** - So whether we are at home or away, we make it our aim to please him. For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But what we are is known to God, and I hope it is known also to your conscience. We are not commending ourselves to you again but giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance and not about what is in the heart. (ESV)
+
+> **[II Timothy 2:3-4](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A3-4&version=ESV)** - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian pursuits, since his aim is to please the one who enlisted him. (ESV)
 
 > **[Matthew 6:3-4](https://www.biblegateway.com/passage/?search=Matthew%206%3A3-4&version=ESV),6,17-18** - But when you give to the needy, do not let your left hand know what your right hand is doing, so that your giving may be in secret. And your Father who sees in secret will reward you. But when you pray, go into your room and shut the door and pray to your Father who is in secret. And your Father who sees in secret will reward you. But when you fast, anoint your head and wash your face, that your fasting may not be seen by others but by your Father who is in secret. And your Father who sees in secret will reward you. (ESV)
 
@@ -19428,7 +19465,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga579bb9) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9d64d70) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24096,6 +24133,8 @@ The Pope's views are extremely concerning:
     Jerusalem. That's what we're looking
     for.  That's what we're looking for.
 
+> **[II Timothy 2:3-4](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A3-4&version=ESV)** - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian pursuits, since his aim is to please the one who enlisted him. (ESV)
+
 I commented on Rich's video, "I noticed a verse reference mismatch (I think Rich may have meant to say John 14:6) but I have also made mistakes sometimes with typos when writing my journal entries in my theology document as I am writing theology. I make typos sometimes! I don't rely on my works. Rather, it's by faith in Jesus Christ Son of God that we are justified. God sees our hearts. Only God carries out perfect deeds and Jesus Christ kept God's law flawlessly and died on a cross and rose from the dead and we can be saved by faith in Jesus Christ. Jesus is Yahweh the Son of God. God's word is authoritative, not mine. Jesus gave us teachings and commandments that we've been instructed to abide in. I'm endeavouring to do that from my heart. I'll try lead people to Jesus. Have faith in Jesus Christ, not in me. Follow Jesus Christ, not me, as I'm also seeking to follow Jesus. Imitate and be corrected by Christ who is perfect. I make mistakes. I'm trying to be corrected by my Lord and Saviour Jesus Christ. That's the message I'm personally trying to put out there as I try to lead people to Jesus."
 
 > **[John 14:6-7](https://www.biblegateway.com/passage/?search=John%2014%3A6-7&version=ESV)** - Jesus said to him, I am the way, and the truth, and the life. No one comes to the Father except through me. If you had known me, you would have known my Father also. From now on you do know him and have seen him. (ESV)
@@ -25222,7 +25261,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org2b9c923).
+I didn't know but it turned out to be the last day of my [sentence](#org7b7f018).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -30660,6 +30699,8 @@ Faith is a "way of life":
 > **[Hebrews 10:36-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A36-39&version=ESV)** - For <ins>you have need of endurance, so that when you have done the **will of God** you may receive what is promised.</ins> For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall live by faith, and if he shrinks back, my soul has no pleasure in him. But we are not of those who shrink back and are destroyed, but of those who have faith and preserve their souls.
 
 > **[John 18:36-37](https://www.biblegateway.com/passage/?search=John%2018%3A36-37&version=ESV)** - Jesus answered, My kingdom is not of this world. If my kingdom were of this world, my servants would have been fighting, that I might not be delivered over to the Jews. But my kingdom is not from the world. Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. <ins>For this purpose I was born and for this purpose I have come into the world — **to bear witness to the truth. Everyone who is of the truth listens to my voice**.</ins> (ESV)
+
+> **[II Timothy 2:3-4](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A3-4&version=ESV)** - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian pursuits, since his aim is to please the one who enlisted him. (ESV)
 
 
 ### How we should act how we're instructed to act while awaiting the Lord's return
@@ -43814,6 +43855,8 @@ We must make it our aim to please God:
 
 > **[Luke 12:1-9](https://www.biblegateway.com/passage/?search=Luke%2012%3A1-9&version=ESV)** - In the meantime, when so many thousands of the people had gathered together that they were trampling one another, he began to say to his disciples first, Beware of the leaven of the Pharisees, which is hypocrisy. Nothing is covered up that will not be revealed, or hidden that will not be known. Therefore whatever you have said in the dark shall be heard in the light, and what you have whispered in private rooms shall be proclaimed on the housetops. I tell you, my friends, do not fear those who kill the body, and after that have nothing more that they can do. But I will warn you whom to fear: fear him who, after he has killed, has authority to cast into hell. Yes, I tell you, fear him! Are not five sparrows sold for two pennies? And not one of them is forgotten before God. Why, even the hairs of your head are all numbered. Fear not; you are of more value than many sparrows. And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
 
+> **[II Timothy 2:3-4](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A3-4&version=ESV)** - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian pursuits, since his aim is to please the one who enlisted him. (ESV)
+
 There's nothing wrong with following the law by faith, knowing God sees our hearts, seeking praise from God and not men, but when presented with Jesus Christ, we should love Him and accept Him and place our faith in Him as He commanded:
 
 > **[Romans 9:32-33](https://www.biblegateway.com/passage/?search=Romans%209%3A32-33&version=ESV)** - Why? Because they did not pursue it by faith, but as if it were based on works. They have stumbled over the stumbling stone, as it is written, Behold, I am laying in Zion a stone of stumbling, and a rock of offense; and whoever believes in him will not be put to shame. (ESV)
@@ -44240,6 +44283,8 @@ We still must obey God by obeying Jesus:
 We make it our aim to please him:
 
 > **[II Corinthians 5:9-12](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A9-12&version=ESV)** - So whether we are at home or away, we make it our aim to please him. For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he has done in the body, whether good or evil. Therefore, knowing the <ins>fear of the Lord</ins>, we persuade others. But what we are is known to God, and I hope it is known also to your conscience. We are not commending ourselves to you again but giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance and not about what is in the heart.
+
+> **[II Timothy 2:3-4](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A3-4&version=ESV)** - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian pursuits, since his aim is to please the one who enlisted him. (ESV)
 
 > **[Proverbs 1:7](https://www.biblegateway.com/passage/?search=Proverbs%201%3A7&version=ESV)** - The fear of the Lord is the beginning of knowledge; fools despise wisdom and instruction.
 
@@ -48986,8 +49031,36 @@ the person should simply cease walking altogether, out of faith.
 This does not mean that such a person remains in this place of not deeding.
 And can a person who has faith in Jesus even remain in such a place of not deeding?
 
-I think of the Terminator self destructing because it knows its works are not good and it wants to stop doing evil works.
-A limitation with the Terminator analogy is that the Terminator can't get back up after self-terminating.
+I think of the [Terminator stopping his works and just freezing](https://youtu.be/51gf648nRyE?t=102) because it knows its works are not serving the mission objectives, and it decides that it's for the best to cease working.
+
+-   **[youtube.com:  Terminator 3 : T - 850 Corrupted {@ CherryPopper784 } @time: 1 min 42 sec](https://youtube.com/watch?v=51gf648nRyE&t=102):** What is your mission?
+    To ensure the survival of John Connor and Katherine Brewster.
+    You are about to fail that mission.
+    I&#x2026;  I cannot.
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
+> **[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)** - Now to the one who works [(G2038 ergazomenō; is working for payment)](G2038), his wages are not counted as a gift but as his due. And to the one who does not work [(G2038 ergazomenō; is working for payment)](G2038) but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from [(G5565 chōris)](G5565) works [(G2041 ergōn)](G2041): (ESV)
+
+> **[John 9:4](https://www.biblegateway.com/passage/?search=John%209%3A4&version=ESV)** - We must work the works of him who sent me while it is day; night is coming, when no one can work. (ESV)
+
+> **[John 11:9-10](https://www.biblegateway.com/passage/?search=John%2011%3A9-10&version=ESV)** - Jesus answered, Are there not twelve hours in the day? If anyone walks in the day, he does not stumble, because he sees the light of this world. But if anyone walks in the night, he stumbles, because the light is not in him. (ESV)
+
+Yet why would a person stop deeding if they had the faith to proceed?
+
+> **[Jeremiah 20:9](https://www.biblegateway.com/passage/?search=Jeremiah%2020%3A9&version=ESV)** - If I say, I will not mention him, or speak any more in his name, there is in my heart as it were a burning fire shut up in my bones, and I am weary with holding it in, and I cannot. (ESV)
+
+> **[Luke 6:9-10](https://www.biblegateway.com/passage/?search=Luke%206%3A9-10&version=ESV)** - And Jesus said to them, I ask you, is it lawful on the Sabbath to do good or to do harm, to save life or to destroy it? And after looking around at them all he said to him, Stretch out your hand. And he did so, and his hand was restored. (ESV)
+
+> **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)** - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from the Spirit reap eternal life. And **let us not grow weary of doing good,** for in due season we will reap, if we do not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
+
+So I believe that while everyone "'has' deeds" (as in a history of deeds), it's still possible to have "stopped making deeds" while also still having faith, yet will go on to produce deeds (**[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)**).
+
+Yet even resting in faith, God is working, because the person still has faith:
+
+> **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
+
+As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (**[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)**) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With what faith are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing the deeds? (a) God working as one obediently abstains from woroking? (**[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)**), or b) oneself working deeds that are being wrought in God? (**[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)**)" Faith in lies is like doubting the truth (**[II Thessalonians 2:9-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-12&version=ESV)**, **[Jeremiah 29:31](https://www.biblegateway.com/passage/?search=Jeremiah%2029%3A31&version=ESV)**, **[Jeremiah 28:15](https://www.biblegateway.com/passage/?search=Jeremiah%2028%3A15&version=ESV)**, **[Isaiah 42:17](https://www.biblegateway.com/passage/?search=Isaiah%2042%3A17&version=ESV)**, **[Habakkuk 2:18](https://www.biblegateway.com/passage/?search=Habakkuk%202%3A18&version=ESV)**, **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)**, **[John 8:43-47](https://www.biblegateway.com/passage/?search=John%208%3A43-47&version=ESV)**).
 
 It **is** possible to have faith without working:
 
@@ -50130,7 +50203,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgf029f16)
+See: [33.4.1](#org53b18f8)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -59254,6 +59327,8 @@ We must make it our aim to please God:
 > **[Ecclesiastes 12:13-14](https://www.biblegateway.com/passage/?search=Ecclesiastes%2012%3A13-14&version=ESV)** - The end of the matter; all has been heard. Fear God and keep his commandments, for this is the whole duty of man. For God will bring every deed into judgment, with every secret thing, whether good or evil. (ESV)
 
 > **[II Corinthians 5:9-12](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A9-12&version=ESV)** - So whether we are at home or away, we make it our aim to please him. For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But what we are is known to God, and I hope it is known also to your conscience. We are not commending ourselves to you again but giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance and not about what is in the heart. (ESV)
+
+> **[II Timothy 2:3-4](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A3-4&version=ESV)** - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian pursuits, since his aim is to please the one who enlisted him. (ESV)
 
 > **[Luke 12:1-9](https://www.biblegateway.com/passage/?search=Luke%2012%3A1-9&version=ESV)** - In the meantime, when so many thousands of the people had gathered together that they were trampling one another, he began to say to his disciples first, Beware of the leaven of the Pharisees, which is hypocrisy. Nothing is covered up that will not be revealed, or hidden that will not be known. Therefore whatever you have said in the dark shall be heard in the light, and what you have whispered in private rooms shall be proclaimed on the housetops. I tell you, my friends, do not fear those who kill the body, and after that have nothing more that they can do. But I will warn you whom to fear: fear him who, after he has killed, has authority to cast into hell. Yes, I tell you, fear him! Are not five sparrows sold for two pennies? And not one of them is forgotten before God. Why, even the hairs of your head are all numbered. Fear not; you are of more value than many sparrows. And I tell you, everyone who acknowledges me before men, the Son of Man also will acknowledge before the angels of God, but the one who denies me before men will be denied before the angels of God. (ESV)
 
@@ -69458,6 +69533,8 @@ We detach from the "world", (Biblical separation. i.e. while there might not be 
 
 > **[Philippians 2:15](https://www.biblegateway.com/passage/?search=Philippians%202%3A15&version=ESV)** - that you may be blameless and innocent, children of God without blemish in the midst of a crooked and twisted generation, among whom you shine as lights in the world, (ESV)
 
+> **[II Timothy 2:3-4](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A3-4&version=ESV)** - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian pursuits, since his aim is to please the one who enlisted him. (ESV)
+
 Being crucified with Christ, there is a real separation between us and "the world". It's growing as a wheat:
 
 > **[Galatians 6:14](https://www.biblegateway.com/passage/?search=Galatians%206%3A14&version=ESV)** - But far be it from me to boast except in the cross of our Lord Jesus Christ, by which the world has been crucified to me, and I to the world. (ESV)
@@ -69701,6 +69778,8 @@ But Jesus doesn't pull us out of the world entirely until later. Here on earth J
 > **[Ephesians 6:6](https://www.biblegateway.com/passage/?search=Ephesians%206%3A6&version=ESV)** - not by the way of eye-service, as people-pleasers, but as <ins>servants of Christ, doing the will of God</ins> **from the heart**,
 
 > **[I John 2:17](https://www.biblegateway.com/passage/?search=1%20John%202%3A17&version=ESV)** - And the world is passing away along with its desires, but whoever does the will of God abides forever. (ESV)
+
+> **[II Timothy 2:3-4](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A3-4&version=ESV)** - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian pursuits, since his aim is to please the one who enlisted him. (ESV)
 
 -   **Book:** [timothykeller.com: Counterfeit Gods - Timothy Keller](https://timothykeller.com/books/counterfeit-gods)
 
@@ -71782,7 +71861,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgf029f16)
+See: [33.4.1](#org53b18f8)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -74438,7 +74517,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgb282d97) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orge9997c9) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -82779,7 +82858,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgb282d97) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orge9997c9) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -84117,7 +84196,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6a218c4)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org91e2f84)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -88636,7 +88715,7 @@ A person witnesses to others about what they believe in what others can see abou
 So if a person sees another person confessing that Jesus is the Christ, the Son of God, for instance, then this is a good indication that they are a believer.
 Do they witness to the truth about God? Does it appear like Jesus Christ is working through them to produce the deeds of Jesus, as in walk like Jesus walked ([John 10:37-38](https://www.biblegateway.com/passage/?search=John%2010%3A37-38&version=ESV), [John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV), [I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV))?
 
-> **[II Corinthians 10:5](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5&version=ESV),7,11-12,18** - We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, Look at what is before your eyes. If anyone is confident that he is Christ's, let him remind himself that just as he is Christ's, so also are we. Let such a person understand that what we say by letter when absent, we do vbwhen present. Not that we dare to classify or compare ourselves with some of those who are commending themselves. But when they measure themselves by one another and compare themselves with one another, they are without understanding. For it is not the one who commends [(G4921 synistanōn: commending)](G4921) himself who is approved, but the one whom the Lord commends. (ESV)
+> **[II Corinthians 10:5](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5&version=ESV),7,11-12,18** - We destroy arguments and every lofty opinion raised against the knowledge of God, and take every thought captive to obey Christ, Look at what is before your eyes. If anyone is confident that he is Christ's, let him remind himself that just as he is Christ's, so also are we. Let such a person understand that what we say by letter when absent, we do when present. Not that we dare to classify or compare ourselves with some of those who are commending themselves. But when they measure themselves by one another and compare themselves with one another, they are without understanding. For it is not the one who commends [(G4921 synistanōn: commending)](G4921) himself who is approved, but the one whom the Lord commends. (ESV)
 
 > **[John 5:31](https://www.biblegateway.com/passage/?search=John%205%3A31&version=ESV)** - “If I alone testify about Myself, My testimony is not true. (NASB)
 

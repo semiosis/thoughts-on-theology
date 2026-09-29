@@ -129,23 +129,25 @@ are evil and sinful (Romans 14:23). Works without obedience are evil and slothfu
 1:9-16). As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (James
 2:26) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say
 that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With
-what faith are one's deeds being done? Faith in the truth or faith in lies?" Faith in lies is like doubting the
-truth (II Thessalonians 2:9-12, Jeremiah 29:31, Jeremiah 28:15, Isaiah 42:17, Habakkuk 2:18, Luke 8:12, John
-8:43-47). Sin doesn't necessitate external action in order to be committed because sin can be committed in the
-heart (Matthew 5:28), which is precisely why we are in need of the atoning work of Jesus Christ (Hebrews 10:4) to
-be received by faith in Jesus Christ (Romans 3:23-26). A person is blessed if they have faith accompanied by deeds
-(James 1:21-25). Speaking the truth, even regarding sin is important (Ephesians 4:20-32). It's also correct to
-separate from people who love evil while professing to be family to a Christian (I Corinthians 5:9-13) but we have
-to be careful to not judge on matters that are not truly sinful (Romans 14:3, Romans 14:23). But there certainly
-are sinful behaviours that qualify one believer to judge or separate from another (I Timothy 1:8-11). Substance
-abuse is one such thing (I Corinthians 5:9-13), but some things in moderation could be OK (Titus 2:1-8). Truth
-without grace is judgemental, but truth with grace is truthful while patient (John 12:44-50), even though real
-grace is given to someone so that they may be sanctified by the truth (Titus 2:11-14) but "having grace" such as
-"time to repent" (Revelation of John 2:21, Revelation of John 16:8-11) could mean simply that a person is not yet
-in hell and so grace doesn't mean "saved" necessarily. Without repentance (i.e. without a change of mind), there
-is no salvation (Luke 13:3). Truth is convicting (John 16:8-9). Grace without the truth that convicts is not true
-grace because both grace and truth have come through Jesus Christ (John 1:14, John 14:6). Real love loves the
-truth and hates evil (Romans 12:9). Real faith loves the truth (Mark 4:14-20, II Timothy 4:8).
+what faith are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing
+the deeds? (a) God working as one obediently abstains from woroking? (Romans 4:4-6), or b) oneself working deeds
+that are being wrought in God? (John 3:21)" Faith in lies is like doubting the truth (II Thessalonians 2:9-12,
+Jeremiah 29:31, Jeremiah 28:15, Isaiah 42:17, Habakkuk 2:18, Luke 8:12, John 8:43-47). Sin doesn't necessitate
+external action in order to be committed because sin can be committed in the heart (Matthew 5:28), which is
+precisely why we are in need of the atoning work of Jesus Christ (Hebrews 10:4) to be received by faith in Jesus
+Christ (Romans 3:23-26). A person is blessed if they have faith accompanied by deeds (James 1:21-25). Speaking the
+truth, even regarding sin is important (Ephesians 4:20-32). It's also correct to separate from people who love
+evil while professing to be family to a Christian (I Corinthians 5:9-13) but we have to be careful to not judge on
+matters that are not truly sinful (Romans 14:3, Romans 14:23). But there certainly are sinful behaviours that
+qualify one believer to judge or separate from another (I Timothy 1:8-11). Substance abuse is one such thing (I
+Corinthians 5:9-13), but some things in moderation could be OK (Titus 2:1-8). Truth without grace is judgemental,
+but truth with grace is truthful while patient (John 12:44-50), even though real grace is given to someone so that
+they may be sanctified by the truth (Titus 2:11-14) but "having grace" such as "time to repent" (Revelation of
+John 2:21, Revelation of John 16:8-11) could mean simply that a person is not yet in hell and so grace doesn't
+mean "saved" necessarily. Without repentance (i.e. without a change of mind), there is no salvation (Luke 13:3).
+Truth is convicting (John 16:8-9). Grace without the truth that convicts is not true grace because both grace and
+truth have come through Jesus Christ (John 1:14, John 14:6). Real love loves the truth and hates evil (Romans
+12:9). Real faith loves the truth (Mark 4:14-20, II Timothy 4:8).
 
 Love for evil or the world (G2889 kosmon) is not real love at all. But real love loves God (I John 2:15-17, I John
 4:7), doing as He commands (John 14:21) to love Him and our neighbour (Luke 10:27-28) including our family in
@@ -399,6 +401,9 @@ and to leave the rest to Him which includes providing us with our material needs
   we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all.
   But seek first the kingdom of God and his righteousness, and all these things will be added to you. (ESV)
 
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
+
   Psalms 103:17-18 - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him,
   and his righteousness to children's children, to those who keep his covenant and remember to do his
   commandments. (ESV)
@@ -567,6 +572,11 @@ The person who hopes in Jesus Christ purifies themself (I John 3:3-11) as Jesus 
   God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
   practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
   you have heard from the beginning, that we should love one another. (ESV)
+
+Being born of God, by the will of God, could be in "doing good" because it may be God's will for a person to do
+good and a person is born of God by the will of God (I Peter 2:15) if it is God's will (I Peter 3:17).
+
+A person who loves in the truth is born of God (I John 4:7).
 
 Those who have faith in Jesus have faith in Jesus in their own heart thanks to God. All glory to God:
 
@@ -1284,6 +1294,51 @@ necessary for eternal life (Galatians 6:7-10, John 8:34-35,36,42,51):
 
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
   works than these will he do, because I am going to the Father. (ESV)
+
+I think of the Terminator stopping his works and just freezing because it knows its works are not serving the
+mission objectives, and it decides that it's for the best to cease working.
+
+youtube.com: Terminator 3 : T - 850 Corrupted {@ CherryPopper784 } @time: 1 min 42 sec
+What is your mission? To ensure the survival of John Connor and Katherine Brewster. You are about to fail that
+mission. I… I cannot.
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  Romans 4:4-6 - Now to the one who works (G2038 ergazomenō; is working for payment), his wages are not counted as
+  a gift but as his due. And to the one who does not work (G2038 ergazomenō; is working for payment) but trusts
+  him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing
+  of the one to whom God counts righteousness apart from (G5565 chōris) works (G2041 ergōn): (ESV)
+
+  John 9:4 - We must work the works of him who sent me while it is day; night is coming, when no one can work.
+  (ESV)
+
+  John 11:9-10 - Jesus answered, Are there not twelve hours in the day? If anyone walks in the day, he does not
+  stumble, because he sees the light of this world. But if anyone walks in the night, he stumbles, because the
+  light is not in him. (ESV)
+
+Yet why would a person stop deeding if they had the faith to proceed?
+
+  Jeremiah 20:9 - If I say, I will not mention him, or speak any more in his name, there is in my heart as it were
+  a burning fire shut up in my bones, and I am weary with holding it in, and I cannot. (ESV)
+
+  Luke 6:9-10 - And Jesus said to them, I ask you, is it lawful on the Sabbath to do good or to do harm, to save
+  life or to destroy it? And after looking around at them all he said to him, Stretch out your hand. And he did
+  so, and his hand was restored. (ESV)
+
+  Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
+  one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
+  the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
+  not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
+
+So I believe that while everyone "'has' deeds" (as in a history of deeds), it's still possible to have "stopped
+making deeds" while also still having faith, yet will go on to produce deeds (John 14:12).
+
+Yet even resting in faith, God is working, because the person still has faith:
+
+  John 6:28-29 - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This
+  is the work of God, that you believe (G4100 pisteuo) in him whom he has sent. (ESV)
 
 Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
 decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a
@@ -4088,6 +4143,9 @@ God sees the heart:
   known to God, and I hope it is known also to your conscience. We are not commending ourselves to you again but
   giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance
   and not about what is in the heart. (ESV)
+
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
 
   Matthew 6:3-4,6,17-18 - But when you give to the needy, do not let your left hand know what your right hand is
   doing, so that your giving may be in secret. And your Father who sees in secret will reward you. But when you
@@ -43979,6 +44037,9 @@ that they can have their place in this life. But we lay hold as Christians, as a
 on eternal life. Eternal life with God in Christ Jesus. The eternal kingdom of Christ, the holy city, New
 Jerusalem. That's what we're looking for. That's what we're looking for.
 
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
+
 I commented on Rich's video, "I noticed a verse reference mismatch (I think Rich may have meant to say John 14:6)
 but I have also made mistakes sometimes with typos when writing my journal entries in my theology document as I am
 writing theology. I make typos sometimes! I don't rely on my works. Rather, it's by faith in Jesus Christ Son of
@@ -53523,6 +53584,9 @@ Faith is a "way of life":
   Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was
   born and for this purpose I have come into the world — to bear witness to the truth. Everyone who is of the
   truth listens to my voice. (ESV)
+
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
 
 3.20.2. How we should act how we're instructed to act while awaiting the Lord's return
 
@@ -73711,6 +73775,9 @@ We must make it our aim to please God:
   acknowledge before the angels of God, but the one who denies me before men will be denied before the angels of
   God. (ESV)
 
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
+
 There's nothing wrong with following the law by faith, knowing God sees our hearts, seeking praise from God and
 not men, but when presented with Jesus Christ, we should love Him and accept Him and place our faith in Him as He
 commanded:
@@ -74412,6 +74479,9 @@ We make it our aim to please him:
   known to God, and I hope it is known also to your conscience. We are not commending ourselves to you again but
   giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance
   and not about what is in the heart.
+
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
 
   Proverbs 1:7 - The fear of the Lord is the beginning of knowledge; fools despise wisdom and instruction.
 
@@ -81467,8 +81537,58 @@ the person should simply cease walking altogether, out of faith.
 This does not mean that such a person remains in this place of not deeding. And can a person who has faith in
 Jesus even remain in such a place of not deeding?
 
-I think of the Terminator self destructing because it knows its works are not good and it wants to stop doing evil
-works. A limitation with the Terminator analogy is that the Terminator can't get back up after self-terminating.
+I think of the Terminator stopping his works and just freezing because it knows its works are not serving the
+mission objectives, and it decides that it's for the best to cease working.
+
+youtube.com: Terminator 3 : T - 850 Corrupted {@ CherryPopper784 } @time: 1 min 42 sec
+What is your mission? To ensure the survival of John Connor and Katherine Brewster. You are about to fail that
+mission. I… I cannot.
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  Romans 4:4-6 - Now to the one who works (G2038 ergazomenō; is working for payment), his wages are not counted as
+  a gift but as his due. And to the one who does not work (G2038 ergazomenō; is working for payment) but trusts
+  him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing
+  of the one to whom God counts righteousness apart from (G5565 chōris) works (G2041 ergōn): (ESV)
+
+  John 9:4 - We must work the works of him who sent me while it is day; night is coming, when no one can work.
+  (ESV)
+
+  John 11:9-10 - Jesus answered, Are there not twelve hours in the day? If anyone walks in the day, he does not
+  stumble, because he sees the light of this world. But if anyone walks in the night, he stumbles, because the
+  light is not in him. (ESV)
+
+Yet why would a person stop deeding if they had the faith to proceed?
+
+  Jeremiah 20:9 - If I say, I will not mention him, or speak any more in his name, there is in my heart as it were
+  a burning fire shut up in my bones, and I am weary with holding it in, and I cannot. (ESV)
+
+  Luke 6:9-10 - And Jesus said to them, I ask you, is it lawful on the Sabbath to do good or to do harm, to save
+  life or to destroy it? And after looking around at them all he said to him, Stretch out your hand. And he did
+  so, and his hand was restored. (ESV)
+
+  Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
+  one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
+  the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
+  not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
+  household of faith. (ESV)
+
+So I believe that while everyone "'has' deeds" (as in a history of deeds), it's still possible to have "stopped
+making deeds" while also still having faith, yet will go on to produce deeds (John 14:12).
+
+Yet even resting in faith, God is working, because the person still has faith:
+
+  John 6:28-29 - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This
+  is the work of God, that you believe (G4100 pisteuo) in him whom he has sent. (ESV)
+
+As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (James 2:26)
+because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say that it
+is practically impossible to not have deeds (whether good or evil), and so the real question is, "With what faith
+are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing the deeds?
+(a) God working as one obediently abstains from woroking? (Romans 4:4-6), or b) oneself working deeds that are
+being wrought in God? (John 3:21)" Faith in lies is like doubting the truth (II Thessalonians 2:9-12, Jeremiah
+29:31, Jeremiah 28:15, Isaiah 42:17, Habakkuk 2:18, Luke 8:12, John 8:43-47).
 
 It is possible to have faith without working:
 
@@ -97702,6 +97822,9 @@ We must make it our aim to please God:
   giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance
   and not about what is in the heart. (ESV)
 
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
+
   Luke 12:1-9 - In the meantime, when so many thousands of the people had gathered together that they were
   trampling one another, he began to say to his disciples first, Beware of the leaven of the Pharisees, which is
   hypocrisy. Nothing is covered up that will not be revealed, or hidden that will not be known. Therefore whatever
@@ -111971,6 +112094,9 @@ ourselves by applied holy living), but remain in the world as lights:
   Philippians 2:15 - that you may be blameless and innocent, children of God without blemish in the midst of a
   crooked and twisted generation, among whom you shine as lights in the world, (ESV)
 
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
+
 Being crucified with Christ, there is a real separation between us and "the world". It's growing as a wheat:
 
   Galatians 6:14 - But far be it from me to boast except in the cross of our Lord Jesus Christ, by which the world
@@ -112344,6 +112470,9 @@ brings us together with other believers who forsake their sin and live for right
 
   I John 2:17 - And the world is passing away along with its desires, but whoever does the will of God abides
   forever. (ESV)
+
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
 
 Book
 timothykeller.com: Counterfeit Gods - Timothy Keller
@@ -142243,11 +142372,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-28 Mon 08:35
+Date: 2026-09-29 Tue 16:22
 
 Author: Shane Mulligan
 
-Created: 2026-09-28 Mon 10:23
+Created: 2026-09-29 Tue 16:31
 
 Validate
 
