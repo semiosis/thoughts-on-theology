@@ -89380,7 +89380,9 @@ Father God drawing a person to Jesus coincides with learning from Father God, an
 And so I believe that someone could, out of conscience and from the witness of God by creation (Romans 1:20), be
 coming to Jesus as they are abstaining from committing sin out of the fear of God, and God sees the heart and may
 grant that person has an encounter with Jesus Christ, and receive eternal life which is to know the One True God
-and Jesus Christ the Son of God who He has Sent. God may send an evangelist to them, for example:
+and Jesus Christ the Son of God who He has Sent. God may send an evangelist to them, for example, to tell them
+about Jesus, but they must not reject Him. Whether or not a person truly loves and agrees with righteousness comes
+down to whether or not they love and agree with Jesus Christ:
 
   John 5:21 - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will.
   (ESV)
@@ -89418,6 +89420,19 @@ and Jesus Christ the Son of God who He has Sent. God may send an evangelist to t
   things concerning himself. When he was at table with them, he took the bread and blessed and broke it and gave
   it to them. And their eyes were opened, and they recognized him. And he vanished from their sight. Then they
   told what had happened on the road, and how he was known to them in the breaking of the bread. (ESV)
+
+  John 12:31-32 - Now is the judgment of this world; now will the ruler of this world be cast out. And I, when I
+  am lifted up from the earth, will draw all people to myself. (ESV)
+
+  John 9:39 - Jesus said, For judgment I came into this world, that those who do not see may see, and those who
+  see may become blindn. (ESV)
+
+  John 3:14-18 - And as Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up, that
+  whoever believes in him may have eternal life. For God so loved the world, that he gave his only Son, that
+  whoever believes in him should not perish but have eternal life. For God did not send his Son into the world to
+  condemn the world, but in order that the world might be saved through him. Whoever believes in him is not
+  condemned, but whoever does not believe is condemned already, because he has not believed in the name of the
+  only Son of God.
 
 God wants to be our treasure, our heart's desire. I want that too:
 
@@ -142597,11 +142612,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-30 Wed 07:58
+Date: 2026-09-30 Wed 10:07
 
 Author: Shane Mulligan
 
-Created: 2026-09-30 Wed 09:37
+Created: 2026-09-30 Wed 10:14
 
 Validate
 
