@@ -206,6 +206,8 @@ Without the love of God, the love for the truth, in them, a person can't have sa
 
 > **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
+
 So we should "do good". Putting on the new self, and be renewed in mind, and truly love in the way which God requires:
 
 > **[Luke 6:32-36](https://www.biblegateway.com/passage/?search=Luke%206%3A32-36&version=ESV)** - If you love those who love you, what benefit is that to you? For even sinners love those who love them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same. And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be merciful, even as your Father is merciful. (ESV)
@@ -398,7 +400,9 @@ Be a doer of the word even when people around you (including those who profess t
 
 > **[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me may not remain in darkness. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. The one who rejects me and does not receive my words has a judge; the word that I have spoken will judge him on the last day. For I have not spoken on my own authority, but **the Father who sent me has himself given me a commandment—what to say and what to speak. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me.** (ESV)
 
-It is important to be a doer of the word. But we should be doers ourselves while in the imitation of Jesus not being quick to judge. Certainly we should endeavour to not be hypcrites as we share the words, the teachings, the instructions and commands from and relating to Jesus Christ, seeking to please Father God who sees everything:
+It is important to be a doer of the word in reality from the heart (**[1 Samuel 16:7](https://www.biblegateway.com/passage/?search=1%20Samuel%2016%3A7&version=ESV)**, **[Psalms 81:12-15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A12-15&version=ESV)**). But we should be doers ourselves while in the imitation of Jesus not being quick to judge. Certainly we should endeavour to not be hypcrites as we share the words, the teachings, the instructions and commands from and relating to Jesus Christ, seeking to please Father God who sees everything:
+
+> **[Jeremiah 23:24](https://www.biblegateway.com/passage/?search=Jeremiah%2023%3A24&version=ESV)** - Can a man hide himself in secret places so that I cannot see him? declares the LORD. Do I not fill heaven and earth? declares the LORD. (ESV)
 
 > **[Luke 6:46-49](https://www.biblegateway.com/passage/?search=Luke%206%3A46-49&version=ESV)** - Why do you call me Lord, Lord, and not do what I tell you? <ins>Everyone who comes to me and hears my words and does them, I will show you **what he is like: he is like** a man building a house, who dug deep and laid the foundation on the rock</ins>. And when a flood arose, the stream broke against that house and could not shake it, because it had been well built. But the one who hears and does not do them is like a man who built a house on the ground without a foundation. When the stream broke against it, immediately it fell, and the ruin of that house was great. (ESV)
 
@@ -624,7 +628,7 @@ So while God justifies the ungodly who have faith (**[Romans 4:4-6](https://www.
 
 > **[II Peter 3:7](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A7&version=ESV)** - But by the same word the heavens and earth that now exist are stored up for fire, being kept until the day of judgment and destruction of the ungodly. (ESV)
 
-Like a person who goes bankrupt would be forced to stop trading (think Spirit airlines forced to stop flying their planes), receiving the free gift of righteousness, does necessitate a cessation of work at some point:
+Like a person who goes bankrupt would be forced to stop trading (think [Spirit Airlines](https://en.wikipedia.org/wiki/Spirit_Airlines) forced to stop flying their planes), receiving the free gift of righteousness, does necessitate a cessation of work at some point and thus a cessation of bad works (**[Ephesians 2:1-3](https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-3&version=ESV)**):
 
 > **[Romans 4:5](https://www.biblegateway.com/passage/?search=Romans%204%3A5&version=ESV)** - And to the one who does not work but **trusts** [(G4100 pisteuo)](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/) him who justifies the ungodly, his faith is counted as righteousness, (ESV)
 
@@ -2783,6 +2787,8 @@ A person who loves Jesus Christ **is** law-abiding by the law of faith in Christ
 
 > **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
+
 So it's **absolutely key** to have a loving faith in Jesus Christ:
 
 > **[Matthew 7:23](https://www.biblegateway.com/passage/?search=Matthew%207%3A23&version=ESV)** - And then will I declare to them, I never knew you; depart from me, you workers of lawlessness. (ESV)
@@ -4614,7 +4620,7 @@ I believe that a person can still be (have sin) sinful and enter the Kingdom of 
     
     > **[I Timothy 3:1-13](https://www.biblegateway.com/passage/?search=1%20Timothy%203%3A1-13&version=ESV)** - The saying is trustworthy: If anyone aspires to the office of overseer, he desires a noble task. Therefore an overseer must be above reproach, the husband of one wife, sober-minded, self-controlled, respectable, hospitable, able to teach, not a drunkard, not violent but gentle, not quarrelsome, not a lover of money. He must manage his own household well, with all dignity keeping his children submissive, for if someone does not know how to manage his own household, how will he care for God's church? He must not be a recent convert, or he may become puffed up with conceit and fall into the condemnation of the devil. Moreover, he must be well thought of by outsiders, so that he may not fall into disgrace, into a snare of the devil. Deacons likewise must be dignified, not double-tongued, not addicted to much wine, not greedy for dishonest gain. They must hold the mystery of the faith with a clear conscience. And let them also be tested first; then let them serve as deacons if they prove themselves blameless. Their wives likewise must be dignified, not slanderers, but sober-minded, faithful in all things. Let deacons each be the husband of one wife, managing their children and their own households well. For those who serve well as deacons gain a good standing for themselves and also great confidence in the faith that is in Christ Jesus. (ESV)
 
-So the wages of sin is death and Jesus has condemned sin in the flesh, and as Paul says, "nothing good dwells in his flesh", so that means that the earthly body will die. As Paul says in **[I Corinthians 6:13-14](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A13-14&version=ESV)**, God will destroy the body. In our hearts with our new spirits we still must continue on in love, trust and obedience to Father God and to Jesus Christ, and remain faithful to Him even though there is a spiritual battle, there is a battle with the flesh. **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** I believe applies in two ways: when a believer gets born-again of the spirit (i.e. a spiritual death and rebirth, being baptised into Christ), and also when the living (born-again of the spirit) believer receives their resurrection body (the physical death and rebirth of their flesh):
+So the wages of sin is death and Jesus has condemned sin in the flesh, and as Paul says, "nothing good dwells in his flesh", so that means that the earthly body will die. As Paul says in **[I Corinthians 6:13-14](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A13-14&version=ESV)**, God will destroy/bring to an end ([G2673](https://biblehub.com/greek/2673.htm) [katargēsei](https://biblehub.com/greek/katarge_sei_2673.htm): To abolish, to nullify, to render ineffective, to bring to an end) the body. In our hearts with our new spirits we still must continue on in love, trust and obedience to Father God and to Jesus Christ, and remain faithful to Him even though there is a spiritual battle, there is a battle with the flesh. **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** I believe applies in two ways: when a believer gets born-again of the spirit (i.e. a spiritual death and rebirth, being baptised into Christ), and also when the living (born-again of the spirit) believer receives their resurrection body (the physical death and rebirth of their flesh):
 
 > **[I Corinthians 6:13-14](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A13-14&version=ESV)** - Food is meant for the stomach and the stomach for food—and God will destroy both one and the other. The body is not meant for sexual immorality, but for the Lord, and the Lord for the body. And God raised the Lord and will also raise us up by his power. (ESV)
 
@@ -4839,7 +4845,7 @@ people calling God their Father and calling no man on earth their father.
     
     > **[Mark 10:23-27](https://www.biblegateway.com/passage/?search=Mark%2010%3A23-27&version=ESV)** - And Jesus looked around and said to his disciples, How difficult it will be for those who have wealth to enter the kingdom of God! And the disciples were amazed at his words. But Jesus said to them again, Children, how difficult it is to enter the kingdom of God! It is easier for a camel to go through the eye of a needle than for a rich person to enter the kingdom of God. And they were exceedingly astonished, and said to him, Then who can be saved? Jesus looked at them and said, With man it is impossible, but not with God. For all things are **possible** with God. (ESV)
     
-    If a person owns very little in worldly goods then isn't that a golden opportunity to lay up treasure in heaven and then go forward keeping Jesus' commandments in reality rather than in false-pretense or in bad conscience? You could move forward in knowledge that God owns everything (**[Deuteronomy 10:14](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A14&version=ESV)**) and will take care of you as you are able to have peace with God in good conscience doing as Jesus instructs which is so much better, and is also like a wise man who builds his house on the rock. If you have only $10 worth of worldly goods but in good conscience gave "let's say "half" (though why not all?) of all the worldly goods you had" ($5? by a worldly estimate) to those in need of them and out of faith and obedience to Jesus' instruction to "give to the one who begs from you", you can still say "you gave half of all the worldly goods you have out of faith and obedience to Jesus to the instruction to give to the one who begs from you" and then go forward keeping Jesus' commandments in reality rather than in false-pretense. Now change $10 for $10 billion dollars, and that's just as true, but how many people do you hear about giving away their fortune?. Being poor in worldly goods, in my view, is a nice opportunity to fall out of agreement with the way of the world and instead store up some treasure in heaven and go forward following Jesus in reality.
+    If a person owns very little in worldly goods then isn't that a golden opportunity to lay up treasure in heaven and then go forward keeping Jesus' commandments in reality rather than in false-pretense or in bad conscience? You could move forward in knowledge that God owns everything (**[Deuteronomy 10:14](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A14&version=ESV)**, **[Exodus 19:4-6](https://www.biblegateway.com/passage/?search=Exodus%2019%3A4-6&version=ESV)**) and will take care of you as you are able to have peace with God in good conscience doing as Jesus instructs which is so much better, and is also like a wise man who builds his house on the rock. If you have only $10 worth of worldly goods but in good conscience gave "let's say "half" (though why not all?) of all the worldly goods you had" ($5? by a worldly estimate) to those in need of them and out of faith and obedience to Jesus' instruction to "give to the one who begs from you", you can still say "you gave half of all the worldly goods you have out of faith and obedience to Jesus to the instruction to give to the one who begs from you" and then go forward keeping Jesus' commandments in reality rather than in false-pretense. Now change $10 for $10 billion dollars, and that's just as true, but how many people do you hear about giving away their fortune?. Being poor in worldly goods, in my view, is a nice opportunity to fall out of agreement with the way of the world and instead store up some treasure in heaven and go forward following Jesus in reality.
     
     > **[Luke 19:8-9](https://www.biblegateway.com/passage/?search=Luke%2019%3A8-9&version=ESV)** - And Zacchaeus stood and said to the Lord, Behold, Lord, the half of my goods I give to the poor. And if I have defrauded anyone of anything, I restore it fourfold. And Jesus said to him, Today salvation has come to this house, since he also is a son of Abraham. (ESV)
     
@@ -15815,7 +15821,7 @@ Now that earthly body of death must still die an earthly death that we might rec
 
 > **[I Corinthians 15:52](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A52&version=ESV)** - in a moment, in the twinkling of an eye, at the last trumpet; for the trumpet will sound, and the dead will be raised imperishable, and we will be changed. (ESV)
 
-So the wages of sin is death and Jesus has condemned sin in the flesh, and as Paul says, "nothing good dwells in his flesh", so that means that the earthly body will die. In our hearts with our new spirits we still must continue on in love, trust and obedience to Father God and to Jesus Christ, and remain faithful to Him even though there is a spiritual battle, there is a battle with the flesh. **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** I believe applies in two ways: when a believer gets born-again of the spirit (i.e. a spiritual death and rebirth, being baptised into Christ), and also when the living (born-again of the spirit) believer receives their resurrection body (the physical death and rebirth of their flesh):
+So the wages of sin is death and Jesus has condemned sin in the flesh, and as Paul says, "nothing good dwells in his flesh", so that means that the earthly body will die. As Paul says in **[I Corinthians 6:13-14](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A13-14&version=ESV)**, God will destroy/bring to an end ([G2673](https://biblehub.com/greek/2673.htm) [katargēsei](https://biblehub.com/greek/katarge_sei_2673.htm): To abolish, to nullify, to render ineffective, to bring to an end) the body. In our hearts with our new spirits we still must continue on in love, trust and obedience to Father God and to Jesus Christ, and remain faithful to Him even though there is a spiritual battle, there is a battle with the flesh. **[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)** I believe applies in two ways: when a believer gets born-again of the spirit (i.e. a spiritual death and rebirth, being baptised into Christ), and also when the living (born-again of the spirit) believer receives their resurrection body (the physical death and rebirth of their flesh):
 
 > **[I Corinthians 6:13-14](https://www.biblegateway.com/passage/?search=1%20Corinthians%206%3A13-14&version=ESV)** - Food is meant for the stomach and the stomach for food—and God will destroy both one and the other. The body is not meant for sexual immorality, but for the Lord, and the Lord for the body. And God raised the Lord and will also raise us up by his power. (ESV)
 
@@ -19467,7 +19473,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org36e327d) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org663ca4b) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -22507,7 +22513,7 @@ And brought into doing the will of God:
 
 > **[Romans 15:17-18](https://www.biblegateway.com/passage/?search=Romans%2015%3A17-18&version=ESV)** - In Christ Jesus, then, I have reason to be proud of my work for God. For I will not venture to speak of anything except what Christ has accomplished through me to bring the Gentiles to **obedience—by word and deed,**
 
-> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
 
 -   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
@@ -23211,6 +23217,26 @@ John 17 shows that the unity is not at all unity with the world:
 > **[John 17:8-17](https://www.biblegateway.com/passage/?search=John%2017%3A8-17&version=ESV)** - For I have given them the words that you gave me, and they have received them and have come to know in truth that I came from you; and they have believed that you sent me. I am praying for them. I\* am not praying for the world but for those whom you have given me, for they are yours.\* All mine are yours, and yours are mine, and I am glorified in them. And I am no longer in the world, but they are in the world, and I am coming to you. Holy Father, keep them in your name, which you have given me, that they may be one, even as we are one. While I was with them, I kept them in your name, which you have given me. I have guarded them, and not one of them has been lost except the son of destruction, that the Scripture might be fulfilled. But now I am coming to you, and these things I speak in the world, that they may have my joy fulfilled in themselves. I have given them your word, and the world has hated them because they are not of the world, just as I am not of the world. **I do not ask that you take them out of the world, but that you keep them from the evil one. They are not of the world, just as I am not of the world. Sanctify them in the truth; your word is truth.** (ESV)
 
 > **[Philippians 3:18-21](https://www.biblegateway.com/passage/?search=Philippians%203%3A18-21&version=ESV)** - For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. Their end is destruction, their god is their belly, and they glory in their shame, with minds set on earthly things. But our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ, who will transform our lowly body to be like his glorious body, by the power that enables him even to subject all things to himself. (ESV)
+
+Judas was **a** son of destruction. But also, anyone who is an enemy of the cross of Christ (**[Philippians 3:18-21](https://www.biblegateway.com/passage/?search=Philippians%203%3A18-21&version=ESV)**) is a son of destruction. Jesus didn't say **Judas Iscariot** in **[John 17:11-12](https://www.biblegateway.com/passage/?search=John%2017%3A11-12&version=ESV)**, but rather Jesus used the words "son of destruction (perdition)", which Judas Iscariot was. So I think this passage is talking about any son of perdition, not merely Judas Iscariot:
+
+> **[John 17:11-12](https://www.biblegateway.com/passage/?search=John%2017%3A11-12&version=ESV)** - And I am no longer in the world, but they are in the world, and I am coming to you. Holy Father, keep them in your name, which you have given me, that they may be one, even as we are one. While I was with them, I kept them in your name, which you have given me. I have guarded them, and not one of them has been lost except the son of destruction, that the Scripture might be fulfilled. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and **the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks.** (ESV)
+
+> **[I Chronicles 28:9](https://www.biblegateway.com/passage/?search=1%20Chronicles%2028%3A9&version=ESV)** - And you, Solomon my son, know the God of your father and serve him with a whole heart and with a willing mind, for the LORD searches all hearts and understands every plan and thought. If you seek him, he will be found by you, but **if you forsake him, he will cast you off forever.** (ESV)
+
+> **[II Timothy 2:10-13](https://www.biblegateway.com/passage/?search=2%20Timothy%202%3A10-13&version=ESV)** - Therefore I endure everything for the sake of the elect, that they also may obtain the salvation that is in Christ Jesus with eternal glory. The saying is trustworthy, for: If we have died with him, we will also live with him; if we endure, we will also reign with him; **if we deny him, he also will deny us**; if we are faithless, he remains faithful— for he cannot deny himself. (ESV)
+
+> **[I Corinthians 16:22](https://www.biblegateway.com/passage/?search=1%20Corinthians%2016%3A22&version=ESV)** - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
+
+> **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes in him is not condemned [(G2919 krinetai: is judged V-PIM/P-3S)](G2919), but whoever does not believe is condemned already [(G2919 kekritai: has been judged V-RIM/P-3S)](G2919), because he has not believed in the name of the only Son of God. (ESV)
+
+Such a person who has denied Jesus must repent while there is opportunity:
+
+> **[Luke 22:31-32](https://www.biblegateway.com/passage/?search=Luke%2022%3A31-32&version=ESV)** - Simon, Simon, behold, Satan demanded to have you, that he might sift you like wheat, but I have prayed for you that your faith may not fail. And when you have turned again, strengthen your brothers. (ESV)
+
+> **[Acts 8:22](https://www.biblegateway.com/passage/?search=Acts%208%3A22&version=ESV)** - Repent, therefore, of this wickedness of yours, and pray to the Lord that, if possible, the intent of your heart may be forgiven you. (ESV)
 
 Being prone to stir up division, particularly over foolish controversies, is bad. Rather, we want unity in faith, love and **Truth**. The Truth does matter:
 
@@ -25263,7 +25289,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org5525b1d).
+I didn't know but it turned out to be the last day of my [sentence](#orgfbca221).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -32347,7 +32373,7 @@ Jesus must be our number 1 heart's desire. If we treasure Jesus and His words an
 
 God wants Him to be our treasure. We must obey Jesus and Jehovah Jireh will provide:
 
-> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
 
 We must love Jesus by keeping His commandments:
 
@@ -34645,7 +34671,7 @@ Priorities:
 
 > **[Matthew 6:24](https://www.biblegateway.com/passage/?search=Matthew%206%3A24&version=ESV)** - No one can serve two masters, for either he will hate the one and love the other, or he will be devoted to the one and despise the other. You cannot serve God and money. (ESV)
 
-> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
 
 -   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
@@ -34669,7 +34695,7 @@ We should be willing to have our pockets completely emptied as we give mercy to 
 
 > **[Luke 12:23](https://www.biblegateway.com/passage/?search=Luke%2012%3A23&version=ESV)** - For life is more than food, and the body more than clothing. (ESV)
 
-> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
 
 -   **[youtube.com: JESUS | Full Album | Jesus Image @time: 21 min 58 sec](https://youtube.com/watch?v=XcR-wbN3vIc&t=1318):** God You're still good and I thank You for what we do have. We may not have all that we've been asking for but we thank You that we have everything that we need because we have You, Jesus!
 
@@ -37609,6 +37635,8 @@ The righteousness that comes through having faith in Jesus Christ - faith (not m
 The words Jesus Christ spoke were **altogether** a commandment of eternal life which Father God had given Jesus to speak:
 
 > **[John 12:49-50](https://www.biblegateway.com/passage/?search=John%2012%3A49-50&version=ESV)** - For **I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak**. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+
+> **[John 6:40-47](https://www.biblegateway.com/passage/?search=John%206%3A40-47&version=ESV)** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. So the Jews grumbled about him, because he said, I am the bread that came down from heaven. They said, Is not this Jesus, the son of Joseph, whose father and mother we know? How does he now say, I have come down from heaven? Jesus answered them, Do not grumble among yourselves. No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— not that anyone has seen the Father except he who is from God; he has seen the Father. Truly, truly, I say to you, whoever believes has eternal life. (ESV)
 
 Believing:
 
@@ -46745,7 +46773,7 @@ Obey the Truth means obey Jesus:
 
 ### Faith in Jesus Christ doesn't exclude obedience. Knowing Jesus is more than knowing about Jesus. About the Galatian error for those who try to use this passage in order to avoid obeying Jesus
 
-> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
 
 -   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
@@ -50207,7 +50235,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgdb0ae8f)
+See: [33.4.1](#org21d0b4f)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -50547,7 +50575,7 @@ I'm sure that James would be referring to what Paul refers to in [Romans 4:11-12
 
 > **[Romans 4:11-12](https://www.biblegateway.com/passage/?search=Romans%204%3A11-12&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him **the father of all who believe without being circumcised**, so that righteousness would be counted to them as well, and to make him **the father of the circumcised who are not merely circumcised but who also walk in the footsteps of the faith that our father Abraham had before he was circumcised.** (ESV)
 
-Firstly, God owns everything (**[Deuteronomy 10:14](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A14&version=ESV)**). Whatever we give God, he already owned. Neither do we give God wages as if we were the previous owner of our gift. And we don't give God advice:
+Firstly, God owns everything (**[Deuteronomy 10:14](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A14&version=ESV)**, **[Exodus 19:4-6](https://www.biblegateway.com/passage/?search=Exodus%2019%3A4-6&version=ESV)**). Whatever we give God, he already owned. Neither do we give God wages as if we were the previous owner of our gift. And we don't give God advice:
 
 > **[Romans 11:34-36](https://www.biblegateway.com/passage/?search=Romans%2011%3A34-36&version=ESV)** - For who has known the mind of the Lord, or who has been his counselor? Or **who has given a gift to him that he might be repaid?** For from him and through him and to him are all things. To him be glory forever. Amen. (ESV)
 
@@ -54115,15 +54143,47 @@ We must accept this teaching:
 
 > **[John 6:40-47](https://www.biblegateway.com/passage/?search=John%206%3A40-47&version=ESV)** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. So the Jews grumbled about him, because he said, I am the bread that came down from heaven. They said, Is not this Jesus, the son of Joseph, whose father and mother we know? How does he now say, I have come down from heaven? Jesus answered them, Do not grumble among yourselves. No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— not that anyone has seen the Father except he who is from God; he has seen the Father. Truly, truly, I say to you, whoever believes has eternal life. (ESV)
 
+> **[John 6:37](https://www.biblegateway.com/passage/?search=John%206%3A37&version=ESV)** - All that the Father gives me will come to me, and whoever comes to me I will never cast out. (ESV)
+
 AMEN!!
 
 Amen to that.
+
+Father God drawing a person to Jesus coincides with learning from Father God, and with that person being willing:
+
+> **[John 5:39-40](https://www.biblegateway.com/passage/?search=John%205%3A39-40&version=ESV)** - You search the Scriptures because you think that in them you have eternal life; it is these that testify about Me; and **you are unwilling to come to Me so that you may have life.** (NASB)
+
+> **[John 6:45](https://www.biblegateway.com/passage/?search=John%206%3A45&version=ESV)** - It is written in the Prophets, And they will all be taught by God. **Everyone** <ins>who has heard **and learned** from the Father comes to me</ins> — (ESV)
+
+> **[John 6:40-44](https://www.biblegateway.com/passage/?search=John%206%3A40-44&version=ESV)** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. So the Jews grumbled about him, because he said, I am the bread that came down from heaven. They said, Is not this Jesus, the son of Joseph, whose father and mother we know? How does he now say, I have come down from heaven? Jesus answered them, Do not grumble among yourselves. **No one can come to me unless the Father who sent me draws him.** And I will raise him up on the last day. (ESV)
+
+And so I believe that someone could, out of conscience and from the witness of God by creation (**[Romans 1:20](https://www.biblegateway.com/passage/?search=Romans%201%3A20&version=ESV)**), be coming to Jesus as they are abstaining from committing sin out of the fear of God, and God sees the heart and may grant that person has an encounter with Jesus Christ, and receive eternal life which is to know the One True God and Jesus Christ the Son of God who He has Sent. God may send an evangelist to them, for example:
+
+> **[John 5:21](https://www.biblegateway.com/passage/?search=John%205%3A21&version=ESV)** - For as the Father raises the dead and gives them life, so also the Son gives life to whom he will. (ESV)
+
+> **[John 4:10](https://www.biblegateway.com/passage/?search=John%204%3A10&version=ESV)** - Jesus answered her, If you knew the gift of God, and who it is that is saying to you, Give me a drink, you would have asked him, and he would have given you living water. (ESV)
+
+> **[Romans 2:6-8](https://www.biblegateway.com/passage/?search=Romans%202%3A6-8&version=ESV)** - He will render to each one according to his works: <ins>to those who by patience in well-doing **seek for glory** and honor and immortality, he will give eternal life;</ins> but for those who are **self-seeking** and do not obey the truth\_, but obey unrighteousness, there will be wrath and fury. (ESV)
+
+> **[John 17:3](https://www.biblegateway.com/passage/?search=John%2017%3A3&version=ESV)** - And this is eternal life, that they know you the only true God, and Jesus Christ whom you have sent. (ESV)
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
+> **[Romans 10:14-15](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-15&version=ESV)** - But how are they to call on him in whom they have not believed? And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How beautiful are the feet of those who preach the good news! (ESV)
+
+> **[John 3:20-21](https://www.biblegateway.com/passage/?search=John%203%3A20-21&version=ESV)** - For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+> **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth will set you free. (ESV)
+
+> **[Luke 24:25](https://www.biblegateway.com/passage/?search=Luke%2024%3A25&version=ESV),27,30-31,35** - And he said to them, O foolish ones, and slow of heart to believe all that the prophets have spoken! And beginning with Moses and all the Prophets, he interpreted to them in all the Scriptures the things concerning himself. When he was at table with them, he took the bread and blessed and broke it and gave it to them. And their eyes were opened, and they recognized him. And he vanished from their sight. Then they told what had happened on the road, and how he was known to them in the breaking of the bread. (ESV)
 
 God wants to be our treasure, our heart's desire. I want that too:
 
 > **[Matthew 6:21](https://www.biblegateway.com/passage/?search=Matthew%206%3A21&version=ESV)** - For where your treasure is, there your heart will be also. (ESV)
 
-> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 Jesus emptied Himself so we can become rich - this is true, but it's so we can also empty ourselves so others can become rich. I think what Jesus gives us is heavenly treasure, and what we can do with earthly wealth here on earth is give to those who are in need of it, and store up heavenly treasure:
 
@@ -58091,7 +58151,7 @@ Also, I still think that people, and acts of kindness towards people can be heav
 
 ### We need to treasure Jesus, and from there we should keep Jesus' commandments. Jesus must be our number 1
 
-> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
 
 -   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
@@ -65765,6 +65825,8 @@ The words Jesus Christ spoke were **altogether** a commandment of eternal life w
 
 > **[John 12:49-50](https://www.biblegateway.com/passage/?search=John%2012%3A49-50&version=ESV)** - For **I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak**. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
 
+> **[John 6:40-47](https://www.biblegateway.com/passage/?search=John%206%3A40-47&version=ESV)** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. So the Jews grumbled about him, because he said, I am the bread that came down from heaven. They said, Is not this Jesus, the son of Joseph, whose father and mother we know? How does he now say, I have come down from heaven? Jesus answered them, Do not grumble among yourselves. No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— not that anyone has seen the Father except he who is from God; he has seen the Father. Truly, truly, I say to you, whoever believes has eternal life. (ESV)
+
 It is all by God's grace that we are saved. A believing and obedient heart is a trusting heart - a heart of faith - and our obedience gives us confidence. All glory to God alone. We must obey Jesus to become like Jesus:
 
 > **[I John 4:17](https://www.biblegateway.com/passage/?search=1%20John%204%3A17&version=ESV)** - By this is love perfected with us, so that we may have confidence for the day of judgment, because as <ins>he is so also are we in this world.</ins> (ESV)
@@ -66460,7 +66522,20 @@ I believe that what this says is that at the point Jesus knows you listen to His
 
 A Psalm of David:
 
-> **[Psalms 23:1-6](https://www.biblegateway.com/passage/?search=Psalms%2023%3A1-6&version=ESV)** - The Lord is my shepherd; I shall not want. He makes me lie down in green pastures. He leads me beside still waters. He restores my soul. He leads me in paths of righteousness for his name's sake. Even though I walk through the valley of the shadow of death, I will fear no evil, for you are with me; your rod and your staff, they comfort me. You prepare a table before me in the presence of my enemies; you anoint my head with oil; my cup overflows. Surely goodness and mercy shall follow me all the days of my life, and I shall dwell in the house of the Lord forever.
+> **[Psalms 23:1-6](https://www.biblegateway.com/passage/?search=Psalms%2023%3A1-6&version=YLT)** - A Psalm of David. Jehovah is my shepherd, I do not lack, In pastures of tender grass He causeth me to lie down, By quiet waters He doth lead me. My soul He refresheth, He leadeth me in paths of righteousness, For His name's sake, Also&#x2013;when I walk in a valley of death-shade, I fear no evil, for Thou art with me, Thy rod and Thy staff&#x2013;they comfort me. Thou arrangest before me a table, Over-against my adversaries, Thou hast anointed with oil my head, My cup is full! Only&#x2013;goodness and kindness pursue me, All the days of my life, And my dwelling is in the house of Jehovah, For a length of days! (YLT)
+
+-   **[Psalms 23:6](https://biblehub.com/interlinear/psalms/23-6.htm) (Interlinear):** Surely [(H389 ’aḵ)](H389)
+    goodness [(H2896 ṭō·wḇ)](H2896)
+    and mercy [(H2617 wā·ḥe·seḏ)](H2617)
+    will pursue me [(H7291 yir·də·pū·nî)](H7291)
+    all [(H3605 kāl-)](H3605)
+    the days [(H3117 yə·mê)](H3117)
+    of my life [(H2416 ḥay·yāy;)](H2416)
+    and I will dwell [(H3427 wə·šaḇ·tî)](H3427)
+    in the house [(H1004 bə·ḇêṯ-)](H1004)
+    of YHWH [(H3068 Yah·weh)](H3068)
+    for the length [(H753 lə·’ō·reḵ)](H753)
+    of days [(H3117 yā·mîm.)](H3117)
 
 
 ## The voice of Truth
@@ -67358,7 +67433,7 @@ Opinionated statements:
 
 > **[II John 1:9-10](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-10&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, (ESV)
 
-> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
 
 > **[Proverbs 7:1-3](https://www.biblegateway.com/passage/?search=Proverbs%207%3A1-3&version=ESV)** - My son, **keep my words** and treasure up my commandments with you; **keep my commandments** and live; keep my teaching as the apple of your eye; bind them on your fingers; write them on the tablet of your heart. (ESV)
 
@@ -69922,7 +69997,27 @@ God's name was **in** the angel:
 
 > **[Exodus 23:20-22](https://www.biblegateway.com/passage/?search=Exodus%2023%3A20-22&version=ESV)** - Behold, I send an angel before you to guard you on the way and to bring you to the place that I have prepared. Pay careful attention to him and obey his voice; do not rebel against him, for he will not pardon your transgression, for my name is in him. But if you **carefully obey his voice and do all that I say**, then I will be an enemy to your enemies and an adversary to your adversaries.
 
-Believing is just the starting point. This is honestly just the starting point. Obedience is **expected**. Also, Jesus is forgiving, unlike the angel.
+"Having believed" is just the starting point, but needs to continue, and all of that believing is obedient to God's commandment (**[I John 3:23](https://www.biblegateway.com/passage/?search=1%20John%203%3A23&version=ESV)**, **[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV)**, **[II Peter 2:20-22](https://www.biblegateway.com/passage/?search=2%20Peter%202%3A20-22&version=ESV)**, **[John 12:49-50](https://www.biblegateway.com/passage/?search=John%2012%3A49-50&version=ESV)**):
+
+> **[John 8:31-32](https://www.biblegateway.com/passage/?search=John%208%3A31-32&version=ESV)** - So Jesus said to the Jews who had believed [(G4100 pepisteukotas; having believed)](G4100) in him, **If** you abide [(G3306 meinēte; remain, abide, stay, continue, dwell, endure)](G3306) in my word, you are truly my disciples, and you will know the truth [(G225 alētheia; truth, reality; i.e. walking in reality)](G225), and the truth will set you free. (ESV)
+
+> **[Romans 10:14-21](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-21&version=ESV)** - **But how are they to call on him in whom they have not believed?** And how are they to believe in him of whom they have never heard? And how are they to hear without someone preaching? And how are they to preach unless they are sent? As it is written, How beautiful are the feet of those who preach the good news! <ins>But they have not all **obeyed** the gospel. For Isaiah says, Lord, who has believed what he has heard from us?</ins> So faith comes from hearing, and hearing through the word of Christ. But I ask, have they not heard? Indeed they have, for Their voice has gone out to all the earth, and their words to the ends of the world. But I ask, did Israel not understand? First Moses says, I will make you jealous of those who are not a nation; with a foolish nation I will make you angry. Then Isaiah is so bold as to say, I have been found by those who did not seek me; I have shown myself to those who did not ask for me. But of Israel he says, All day long I have held out my hands to a disobedient and contrary people. (ESV)
+
+> **[Hebrews 10:37-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37-39&version=ESV)** - For, Yet a little while, and the coming one will come and will not delay; but my righteous one shall **live by** faith, and if he shrinks back, my soul has no pleasure in him. But **we are not of those who shrink back and are destroyed**, but of those who have faith and preserve their souls. (ESV)
+
+While coming to a loving, obedient faith in Jesus Christ is a gift from God (**[Ezekiel 36:25-28](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A25-28&version=ESV)**), we are still instructed to believe in Jesus to be saved, and to obey Him to be saved.
+
+Also, Jesus is patient and full of grace, for people to repent from disbelief and to come to faith in Him, but we certainly must not neglect God's salvation, we certainly must not remain in disbelief, rejecting Jesus:
+
+> **[II Peter 3:15](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A15&version=ESV)** - And count the patience of our Lord as salvation, just as our beloved brother Paul also wrote to you according to the wisdom given him, (ESV)
+
+> **[John 12:44-47](https://www.biblegateway.com/passage/?search=John%2012%3A44-47&version=ESV)** - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me. And whoever sees me sees him who sent me. **I have come into the world as light, so that whoever believes in me may not remain in darkness**. If anyone hears my words and does not keep them, I do not judge him; for I did not come to judge the world but to save the world. (ESV)
+
+> **[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)** - And the Word became flesh, and dwelt among us, and we saw His glory, glory as of the only begotten from the Father, full of grace and truth.
+
+> **[John 20:27](https://www.biblegateway.com/passage/?search=John%2020%3A27&version=ESV)** - Then he said to Thomas, Put your finger here, and see my hands; and put out your hand, and place it in my side. Do not disbelieve, but believe. (ESV)
+
+> **[Hebrews 1:9](https://www.biblegateway.com/passage/?search=Hebrews%201%3A9&version=ESV),1:14,2:1-4** - You have loved righteousness and hated wickedness; therefore God, your God, has anointed you with the oil of gladness beyond your companions. Are they not all ministering spirits sent out to serve for the sake of those who are to inherit salvation? Therefore we must pay much closer attention to what we have heard, lest we drift away from it. For since the message declared by angels proved to be reliable and every transgression or disobedience received a just retribution, how shall we escape if we neglect such a great salvation? It was declared at first by the Lord, and it was attested to us by those who heard, while God also bore witness by signs and wonders and various miracles and by gifts of the Holy Spirit distributed according to his will. (ESV)
 
 Continuing to trust in Jesus as the Messiah, your Saviour, and the Only-begotten Son of God through patient endurance is enough to get saved, I think, but it's not enough to be counted a 'disciple' of Jesus.
 
@@ -71865,7 +71960,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgdb0ae8f)
+See: [33.4.1](#org21d0b4f)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -74521,7 +74616,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org985230c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org0480a45) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -74817,6 +74912,8 @@ Walk in the truth, love one another and do not deny that Jesus Christ has come i
 The words Jesus Christ spoke were **altogether** a commandment of eternal life which Father God had given Jesus to speak:
 
 > **[John 12:49-50](https://www.biblegateway.com/passage/?search=John%2012%3A49-50&version=ESV)** - For **I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak**. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+
+> **[John 6:40-47](https://www.biblegateway.com/passage/?search=John%206%3A40-47&version=ESV)** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. So the Jews grumbled about him, because he said, I am the bread that came down from heaven. They said, Is not this Jesus, the son of Joseph, whose father and mother we know? How does he now say, I have come down from heaven? Jesus answered them, Do not grumble among yourselves. No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— not that anyone has seen the Father except he who is from God; he has seen the Father. Truly, truly, I say to you, whoever believes has eternal life. (ESV)
 
 Have faith in God:
 
@@ -75244,6 +75341,8 @@ Those who proclaim the gospel should get their living by the gospel:
 The words Jesus Christ spoke were **altogether** a commandment of eternal life which Father God had given Jesus to speak:
 
 > **[John 12:49-50](https://www.biblegateway.com/passage/?search=John%2012%3A49-50&version=ESV)** - For **I have not spoken on my own authority, but the Father who sent me has himself given me a commandment—what to say and what to speak**. And I know that his commandment is eternal life. What I say, therefore, I say as the Father has told me. (ESV)
+
+> **[John 6:40-47](https://www.biblegateway.com/passage/?search=John%206%3A40-47&version=ESV)** - For this is the will of my Father, that everyone who looks on the Son and believes in him should have eternal life, and I will raise him up on the last day. So the Jews grumbled about him, because he said, I am the bread that came down from heaven. They said, Is not this Jesus, the son of Joseph, whose father and mother we know? How does he now say, I have come down from heaven? Jesus answered them, Do not grumble among yourselves. No one can come to me unless the Father who sent me draws him. And I will raise him up on the last day. It is written in the Prophets, And they will all be taught by God. Everyone who has heard and learned from the Father comes to me— not that anyone has seen the Father except he who is from God; he has seen the Father. Truly, truly, I say to you, whoever believes has eternal life. (ESV)
 
 -   **Video:** [youtube.com: "These things I command you" Jesus' own words from the 4 Gospels](https://www.youtube.com/watch?v=C7hdUorDU-U)
 
@@ -81332,7 +81431,7 @@ Now I'm saying that it's all in God's hands, and I've made an effort to have Jes
 
 > **[I Timothy 1:19](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A19&version=ESV)** - holding faith and a good conscience. By rejecting this, some have made shipwreck of their faith, (ESV)
 
-> **[Job 22:24-26](https://www.biblegateway.com/passage/?search=Job%2022%3A24-26&version=ESV)** - **if you lay gold in the dust**, and gold of Ophir among the stones of the torrent bed, **then the Almighty will be your gold and your precious silver. For then you will delight yourself in the Almighty and lift up your face to God.** (ESV)
+> **[Job 22:23-26](https://www.biblegateway.com/passage/?search=Job%2022%3A23-26&version=BSB)** - <ins>If you return to the Almighty, you will be restored. If you remove injustice from your tents and consign your gold to the dust and the gold of Ophir to the stones of the ravines, **then the Almighty will be your gold** and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.</ins> (engbsb2020eb)
 
 -   **God wants us to love Him, treasure Him ([25. agapaó](https://biblehub.com/greek/25.htm)), value Him with **all** our heart, and love and value and treasure one another ([25. agapaó](https://biblehub.com/greek/25.htm)) as ourselves:** [youtube.com: What Is It Like to Enjoy God? @time: 35 min 16 sec](https://youtube.com/watch?v=JkSAMTp5leQ&t=2116)
 
@@ -82862,7 +82961,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org985230c) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org0480a45) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -84200,7 +84299,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org4673d0d)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org8d716ef)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -87246,7 +87345,7 @@ A person does not need earthly goods to be allowed to marry.
 But that doesn't mean a person can marry whoever they want.
 If a person says that you need a job or a house or the world's goods in order to take a wife then they are lying or deceived.
 
-If someone says, "A women deserves to get married to a person who will be able to take care of them?" then you can respond to them, "Yahweh owns everything (**[Deuteronomy 10:14](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A14&version=ESV)**) and God delights in the welfare of His servant, and the whole duty of man is to fear God and keep His commandments and God thinks it's not good for man to be alone." I believe there is zero correlation between a man's right to take a wife and the amount of money he has.
+If someone says, "A women deserves to get married to a person who will be able to take care of them?" then you can respond to them, "Yahweh owns everything (**[Deuteronomy 10:14](https://www.biblegateway.com/passage/?search=Deuteronomy%2010%3A14&version=ESV)**, **[Exodus 19:4-6](https://www.biblegateway.com/passage/?search=Exodus%2019%3A4-6&version=ESV)**) and God delights in the welfare of His servant, and the whole duty of man is to fear God and keep His commandments and God thinks it's not good for man to be alone." I believe there is zero correlation between a man's right to take a wife and the amount of money he has.
 
 Is it not those who are rich with worldly posessions who lay up riches on themselves like clothing, like dust, and oppress the poor, and try to control them through controlling "employment"?
 
