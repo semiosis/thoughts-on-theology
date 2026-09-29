@@ -1375,6 +1375,11 @@ works (John 6:28-29) in them:
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
 
+  Romans 13:8-10 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
+  law. The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You shall not
+  covet, and any other commandment, are summed up in this word: You shall love your neighbor as yourself. Love
+  does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
 So we need to be saved through sanctification and faith in Jesus Christ:
 
   Acts 26:16-18 - But rise and stand upon your feet, for I have appeared to you for this purpose, to appoint you
@@ -81344,6 +81349,11 @@ works (John 6:28-29) in them:
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
 
+  Romans 13:8-10 - Owe no one anything, except to love each other, for the one who loves another has fulfilled the
+  law. The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You shall not
+  covet, and any other commandment, are summed up in this word: You shall love your neighbor as yourself. Love
+  does no wrong to a neighbor; therefore love is the fulfilling of the law. (ESV)
+
 It is not wrong to do good out of faith. But it's wrong to continue deeding when without faith:
 
   Matthew 12:12 - Of how much more value is a man than a sheep! So it is lawful to do good on the Sabbath. (ESV)
@@ -142376,7 +142386,7 @@ Date: 2026-09-29 Tue 16:22
 
 Author: Shane Mulligan
 
-Created: 2026-09-29 Tue 16:31
+Created: 2026-09-29 Tue 17:14
 
 Validate
 
