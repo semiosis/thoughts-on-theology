@@ -488,15 +488,14 @@ requires:
   John 17:26 - I made known to them your name, and I will continue to make it known, that the love with which you
   have loved me may be in them, and I in them. (ESV)
 
-Doing good, must come from a good heart, from a heart with good treasure in it (Luke 6:45). So we must treasure
+Doing good must come from a good heart, from a heart with good treasure in it (Luke 6:45). So we must treasure
 Jesus (Matthew 13:44-46, Matthew 10:37) and His word in our heart in order to produce good. God still uses our
-shortcomings (II Corinthians 12:9) and when our works appear to have not worked out from the natural (Romans 7:18)
-i.e. by been unsuccessful from external appearance:
+shortcomings (II Corinthians 12:9) even when our works appear to have not worked out from the natural (Romans
+7:18) i.e. to appear to man to have been unsuccessful 'from external appearance' when God actually looks at the
+heart (II Corinthians 5:9-12):
 
   Romans 3:20 - For by works of the law no human being will be justified in his sight, since through the law comes
   knowledge of sin. (ESV)
-
-  (II Corinthians 5:9-12, I Samuel 16:7)
 
   I Samuel 16:7 - But JEHOVAH said to Samuel, "Do not look on his face, or on the height of his stature; because I
   have rejected him: for I see not as man sees; for man looks at the outward appearance, but JEHOVAH looks at the
@@ -1346,11 +1345,13 @@ ungodly and it's coming for all the ungodly (Romans 1:18-25):
   until the day of judgment and destruction of the ungodly. (ESV)
 
 Like a person who goes bankrupt would be forced to stop trading (think Spirit Airlines forced to stop flying their
-planes), receiving the free gift of righteousness, does necessitate a cessation of work at some point and thus a
-cessation of bad works (Ephesians 2:1-3):
+planes), receiving the free gift (Mark 8:37) of righteousness, does necessitate a cessation of work at some point
+and thus a cessation of bad works (Ephesians 2:1-3):
 
   Romans 4:5 - And to the one who does not work but trusts (G4100 pisteuo) him who justifies the ungodly, his
   faith is counted as righteousness, (ESV)
+
+  Mark 8:37 - For what can a man give in return for his life? (ESV)
 
 It's imperative, no matter how much we've been attempting to work for God, that we accept the free gift from God,
 and that does require at least some point at which we have rested/abstained from working while holding faith in
@@ -142733,7 +142734,7 @@ Date: 2026-10-01 Thu 07:17
 
 Author: Shane Mulligan
 
-Created: 2026-10-01 Thu 07:29
+Created: 2026-10-01 Thu 08:04
 
 Validate
 
