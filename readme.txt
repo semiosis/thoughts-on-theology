@@ -750,10 +750,10 @@ The obedience by which a Christian is saved is obedience to God (Acts 5:32) incl
 5:8-9).
 
 And Christian obedience must be "desiring to do", "willing to do" the will of God, from love for God, and must
-continue and not rebel Hebrews 3:12-19):
+continue on, and in faith and not rebel Hebrews 3:12-19:
 
 blueletterbible.org: G2309 - thelo - Strong's Greek Lexicon {KJV}
-To will, have in mind, intend: 1) to be resolved or determined, to purpose, 2) to desire, to wish, 3) to lovew to
+To will, have in mind, intend: 1. to be resolved or determined, to purpose, 2. to desire, to wish, 3. to love, to
 like to do a thing, be fond of doing, 4) to take delight in, have pleasure
 
 Acts 7:39 (Interlinear)
@@ -770,9 +770,17 @@ Christian obedience is to be "pursuaded by authority to follow given commands th
 heeding God's instruction, and necessitates having love for God (Psalms 81:15) in the heart (I Corinthians 13:2-3)
 and faith (Hebrews 11:8, Romans 14:23) in the heart (Romans 10:8-10):
 
+  Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who
+  obey (G3980 peitharchousin; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow
+  commands) him. (ESV)
+
 Acts 5:32 (Interlinear)
 And we are witnesses of the things these and also the Spirit - Holy whom has given - God to those obeying (G3980
 peitharchousin; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands) him
+
+  Acts 27:21 - Since they had been without food for a long time, Paul stood up among them and said, Men, you
+  should have listened (G3980 peitharchēsantas; from peitharcheó: Obedient to, to obey, to be persuaded by
+  authority, to follow commands) to me and not have set sail from Crete and incurred this injury and loss. (ESV)
 
 Acts 27:21 (Interlinear)
 much also time without food there being at that time having stood up - Paul in midst of them said It behoved [you]
@@ -780,17 +788,24 @@ indeed O men having been obedient (G3980 peitharchēsantas; from peitharcheó: O
 by authority, to follow commands) to me not to have set sail from - Crete to have incurred moreover the disaster
 this and the loss
 
+  Titus 3:1 - Remind them to be submissive to rulers and authorities, to be obedient (G3980 peitharchein; from
+  peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands, to be ready for every good
+  work, (ESV)
+
 Titus 3:1 (Interlinear)
 Remind them to rulers to authorities to be subject to be obedient (G3980 peitharchein; from peitharcheó: Obedient
 to, to obey, to be persuaded by authority, to follow commands for every work (G2041 ergon) good (G18 agathon)
 ready (G2092 hetoimous) to be (G1510 einai)
 
+  Acts 5:29 - But Peter and the apostles answered, We must obey (G3980 Peitharchein; from peitharcheó: Obedient
+  to, to obey, to be persuaded by authority, to follow commands) God rather than men. (ESV)
+
 Acts 5:29 (Interlinear)
 answering moreover Peter and the apostles said To obey (G3980 Peitharchein; from peitharcheó: Obedient to, to
 obey, to be persuaded by authority, to follow commands) it is necessary God rather than men
 
-And obedience must continue too (Romans 6:16-18, Romans 2:8) to being unburdensome (I John 5:3-5, II Corinthians
-10:5-6).
+And obedience must continue too (Romans 6:16-18, Romans 2:8) to God's commandments for us being unburdensome (I
+John 5:3-5, II Corinthians 10:5-6).
 
 The person who loves Jesus is the person who loves His word (from the treasuring love of God's word) and keeps His
 commandments (have faith in Jesus Christ and love one another the way we've been commanded to):
@@ -1396,7 +1411,7 @@ Yet why would a person stop deeding if they had the faith to proceed?
 So I believe that while everyone "'has' deeds" (as in a history of deeds), it's still possible to have "stopped
 making deeds" while also still having faith, yet will go on to produce deeds (John 14:12).
 
-Yet even resting in faith, God is working, because the person still has faith:
+Yet even resting in faith, God is working through them, because the person still has faith:
 
   John 6:28-29 - Then they said to him, What must we do, to be doing the works of God? Jesus answered them, This
   is the work of God, that you believe (G4100 pisteuo) in him whom he has sent. (ESV)
@@ -21165,15 +21180,16 @@ We need to be "walking in faith":
 
 We need to be "walking in love":
 
-Romans 14:15 (Interlinear)
-If (G1487 ei) for (G1063 gar) on account of (G1223 dia) food (G1033 brōma) the (G3588 ho) brother (G80 adelphos)
-of you (G4771 sou) is grieved (G3076 lypeitai) no longer (G3765 ouketi) according to (G2596 kata) love (G26
-agapēn) are you walking (G4043 peripateis) Not (G3361 mē) with the (G3588 tō) food (G1033 brōmati) of you (G4771
-sou) that one (G1565 ekeinon) destroy (G622 apollye) for (G5228 hyper) whom (G3739 hou) Christ (G5547 Christos)
-died (G599 apethanen)
+  Romans 14:15 - For if your brother is grieved by what you eat, you are no longer walking in love. By what you
+  eat, do not destroy the one for whom Christ died. (ESV)
 
-And it's absolutely fine to continue doing good works as a Christian, in fact Jesus purchased us to be zealous for
-good works. And it's advised to do so as well, if we want to see good days:
+Romans 14:15 (Interlinear)
+If (G1487 ei) for on account of food the brother of you is grieved no longer according to (G2596 kata) love (G26
+agapēn) are you walking (G4043 peripateis) Not with the food of you that one destroy for whom Christ died
+
+And it's absolutely fine to continue doing good works as a Christian (despite the discouragement one might get),
+in fact Jesus purchased us to be zealous for good works. And it's advised to do so as well, if we want to see good
+days:
 
   I Peter 3:10-13 - For Whoever desires to love life and see good days, let him keep his tongue from evil and his
   lips from speaking deceit; let him turn away from evil and do good; let him seek peace and pursue it. For the
@@ -21190,6 +21206,10 @@ good works. And it's advised to do so as well, if we want to see good days:
   Hebrews 9:27-28 - And just as it is appointed for man to die once, and after that comes judgment, so Christ,
   having been offered once to bear the sins of many, will appear a second time, not to deal with sin but to save
   those who are eagerly waiting for him. (ESV)
+
+  Psalms 34:14-16 - Turn away from evil and do good; seek peace and pursue it. The eyes of the LORD are toward the
+  righteous and his ears toward their cry. The face of the LORD is against those who do evil, to cut off the
+  memory of them from the earth. (ESV)
 
 Jesus disciplines us because He loves us and wants to best for us. So be zealous, even for good work, and repent,
 turn away from evil and do good!:
@@ -142687,11 +142707,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-30 Wed 20:00
+Date: 2026-09-30 Wed 22:00
 
 Author: Shane Mulligan
 
-Created: 2026-09-30 Wed 20:05
+Created: 2026-09-30 Wed 22:08
 
 Validate
 

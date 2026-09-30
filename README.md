@@ -345,9 +345,9 @@ As while this faith is being held, one must be doing the will of God ([Mark 3:35
 
 The obedience by which a Christian is saved is obedience to God (**[Acts 5:32](https://www.biblegateway.com/passage/?search=Acts%205%3A32&version=ESV)**) including to Jesus Christ (**[Hebrews 5:8-9](https://www.biblegateway.com/passage/?search=Hebrews%205%3A8-9&version=ESV)**).
 
-And Christian obedience must be "desiring to do", "willing to do" the will of God, from love for God, and must continue and not rebel **[Hebrews 3:12-19](https://www.biblegateway.com/passage/?search=Hebrews%203%3A12-19&version=ESV)**):
+And Christian obedience must be "desiring to do", "willing to do" the will of God, from love for God, and must continue on, and in faith and not rebel **[Hebrews 3:12-19](https://www.biblegateway.com/passage/?search=Hebrews%203%3A12-19&version=ESV)**:
 
--   **[blueletterbible.org: G2309 - thelo - Strong's Greek Lexicon {KJV}](https://www.blueletterbible.org/lexicon/g2309/kjv/tr/0-1/):** To will, have in mind, intend: 1) to be resolved or determined, to purpose, 2) to desire, to wish, 3) to lovew to like to do a thing, be fond of doing, 4) to take delight in, have pleasure
+-   **[blueletterbible.org: G2309 - thelo - Strong's Greek Lexicon {KJV}](https://www.blueletterbible.org/lexicon/g2309/kjv/tr/0-1/):** To will, have in mind, intend: **1.** to be resolved or determined, to purpose, **2.** to desire, to wish, **3.** to love, to like to do a thing, be fond of doing, 4) to take delight in, have pleasure
 
 -   **[Acts 7:39](https://biblehub.com/interlinear/acts/7-39.htm) (Interlinear):** to whom not
     were willing [(G2309 ēthelēsan)](G2309)
@@ -365,11 +365,15 @@ And Christian obedience must be "desiring to do", "willing to do" the will of Go
 
 Christian obedience is to be "pursuaded by authority to follow given commands that they would do as commanded", heeding God's instruction, and necessitates having love for God ([Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)) in the heart (**[I Corinthians 13:2-3](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A2-3&version=ESV)**) and faith (**[Hebrews 11:8](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A8&version=ESV)**, **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**) in the heart (**[Romans 10:8-10](https://www.biblegateway.com/passage/?search=Romans%2010%3A8-10&version=ESV)**):
 
+> **[Acts 5:32](https://www.biblegateway.com/passage/?search=Acts%205%3A32&version=ESV)** - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who obey [(G3980 peitharchousin; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands)](G3980) him. (ESV)
+
 -   **[Acts 5:32](https://biblehub.com/interlinear/acts/5-32.htm) (Interlinear):** And we are witnesses of the things
     these and also the Spirit - Holy
     whom has given - God to those
     obeying [(G3980 peitharchousin; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands)](G3980)
     him
+
+> **[Acts 27:21](https://www.biblegateway.com/passage/?search=Acts%2027%3A21&version=ESV)** - Since they had been without food for a long time, Paul stood up among them and said, Men, you should have listened [(G3980 peitharchēsantas; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands)](G3980) to me and not have set sail from Crete and incurred this injury and loss. (ESV)
 
 -   **[Acts 27:21](https://biblehub.com/interlinear/acts/27-21.htm) (Interlinear):** much also time without food there being at that time
     having stood up - Paul in midst
@@ -379,6 +383,8 @@ Christian obedience is to be "pursuaded by authority to follow given commands th
     Crete to have incurred moreover the
     disaster this and the loss
 
+> **[Titus 3:1](https://www.biblegateway.com/passage/?search=Titus%203%3A1&version=ESV)** - Remind them to be submissive to rulers and authorities, to be obedient [(G3980 peitharchein; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands](G3980), to be ready for every good work, (ESV)
+
 -   **[Titus 3:1](https://biblehub.com/interlinear/titus/3-1.htm) (Interlinear):** Remind them to rulers to authorities to be subject
     to be obedient [(G3980 peitharchein; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands](G3980)
     for every
@@ -387,11 +393,13 @@ Christian obedience is to be "pursuaded by authority to follow given commands th
     ready [(G2092 hetoimous)](G2092)
     to be [(G1510 einai)](G1510)
 
+> **[Acts 5:29](https://www.biblegateway.com/passage/?search=Acts%205%3A29&version=ESV)** - But Peter and the apostles answered, We must obey [(G3980 Peitharchein; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands)](G3980) God rather than men. (ESV)
+
 -   **[Acts 5:29](https://biblehub.com/interlinear/acts/5-29.htm) (Interlinear):** answering moreover Peter and the apostles said
     To obey [(G3980 Peitharchein; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands)](G3980)
     it is necessary God rather than men
 
-And obedience must continue too (**[Romans 6:16-18](https://www.biblegateway.com/passage/?search=Romans%206%3A16-18&version=ESV)**, **[Romans 2:8](https://www.biblegateway.com/passage/?search=Romans%202%3A8&version=ESV)**) to being unburdensome (**[I John 5:3-5](https://www.biblegateway.com/passage/?search=1%20John%205%3A3-5&version=ESV)**, **[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)**).
+And obedience must continue too (**[Romans 6:16-18](https://www.biblegateway.com/passage/?search=Romans%206%3A16-18&version=ESV)**, **[Romans 2:8](https://www.biblegateway.com/passage/?search=Romans%202%3A8&version=ESV)**) to God's commandments for us being unburdensome (**[I John 5:3-5](https://www.biblegateway.com/passage/?search=1%20John%205%3A3-5&version=ESV)**, **[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)**).
 
 The person who loves Jesus is the person who loves His word (from the treasuring love of God's word) **and** keeps His commandments (have faith in Jesus Christ and love one another the way we've been commanded to):
 
@@ -746,7 +754,7 @@ Yet why would a person stop deeding if they had the faith to proceed?
 
 So I believe that while everyone "'has' deeds" (as in a history of deeds), it's still possible to have "stopped making deeds" while also still having faith, yet will go on to produce deeds (**[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)**).
 
-Yet even resting in faith, God is working, because the person still has faith:
+Yet even resting in faith, God is working through them, because the person still has faith:
 
 > **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
@@ -11088,34 +11096,22 @@ We need to be "walking in faith":
 
 We need to be "walking in love":
 
--   ****[Romans 14:15](https://www.biblegateway.com/passage/?search=Romans%2014%3A15&version=ESV)** (Interlinear):** If [(G1487 ei)](G1487)
-    for [(G1063 gar)](G1063)
-    on account of [(G1223 dia)](G1223)
-    food [(G1033 brōma)](G1033)
-    the [(G3588 ho)](G3588)
-    brother [(G80 adelphos)](G80)
-    of you [(G4771 sou)](G4771)
-    is grieved [(G3076 lypeitai)](G3076)
-    no longer [(G3765 ouketi)](G3765)
-    <ins>according to [(G2596 kata)](G2596) love [(G26 agapēn)](G26) are you walking [(G4043 peripateis)](G4043)</ins>
-    Not [(G3361 mē)](G3361)
-    with the [(G3588 tō)](G3588)
-    food [(G1033 brōmati)](G1033)
-    of you [(G4771 sou)](G4771)
-    that one [(G1565 ekeinon)](G1565)
-    destroy [(G622 apollye)](G622)
-    for [(G5228 hyper)](G5228)
-    whom [(G3739 hou)](G3739)
-    Christ [(G5547 Christos)](G5547)
-    died [(G599 apethanen)](G599)
+> **[Romans 14:15](https://www.biblegateway.com/passage/?search=Romans%2014%3A15&version=ESV)** - For if your brother is grieved by what you eat, you are no longer walking in love. By what you eat, do not destroy the one for whom Christ died. (ESV)
 
-And it's absolutely fine to continue doing good works as a Christian, in fact Jesus purchased us to be zealous for good works. And it's advised to do so as well, if we want to see good days:
+-   ****[Romans 14:15](https://www.biblegateway.com/passage/?search=Romans%2014%3A15&version=ESV)** (Interlinear):** If [(G1487 ei)](G1487)
+    for on account of food the brother of you is grieved no longer
+    <ins>according to [(G2596 kata)](G2596) love [(G26 agapēn)](G26) are you walking [(G4043 peripateis)](G4043)</ins>
+    Not with the food of you that one destroy for whom Christ died
+
+And it's absolutely fine to continue doing good works as a Christian (despite the discouragement one might get), in fact Jesus purchased us to be zealous for good works. And it's advised to do so as well, if we want to see good days:
 
 > **[I Peter 3:10-13](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A10-13&version=ESV)** - For Whoever desires to love life and see good days, let him keep his tongue from evil and his lips from speaking deceit; let him turn away from evil and do good; let him seek peace and pursue it. For the eyes of the Lord are on the righteous, and his ears are open to their prayer. But the face of the Lord is against those who do evil. Now who is there to harm you if you are zealous for what is good? (ESV)
 
 > **[Titus 2:11-15](https://www.biblegateway.com/passage/?search=Titus%202%3A11-15&version=ESV)** - For the grace of God has appeared, bringing salvation for all people, training us to renounce ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age, waiting for our blessed hope, the appearing of the glory of our great God and Savior Jesus Christ, who gave himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who are zealous for good works. Declare these things; exhort and rebuke with all authority. Let no one disregard you. (ESV)
 
 > **[Hebrews 9:27-28](https://www.biblegateway.com/passage/?search=Hebrews%209%3A27-28&version=ESV)** - And just as it is appointed for man to die once, and after that comes judgment, so Christ, having been offered once to bear the sins of many, will appear a second time, not to deal with sin but to save those who are eagerly waiting for him. (ESV)
+
+> **[Psalms 34:14-16](https://www.biblegateway.com/passage/?search=Psalms%2034%3A14-16&version=ESV)** - Turn away from evil and do good; seek peace and pursue it. The eyes of the LORD are toward the righteous and his ears toward their cry. The face of the LORD is against those who do evil, to cut off the memory of them from the earth. (ESV)
 
 Jesus disciplines us because He loves us and wants to best for us. So be zealous, even for good work, and repent, turn away from evil and do good!:
 
@@ -19538,7 +19534,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org59356f3) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org4696229) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -25362,7 +25358,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org6b794ee).
+I didn't know but it turned out to be the last day of my [sentence](#org50dd841).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -50308,7 +50304,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org932cc90)
+See: [33.4.1](#org8282e81)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -72039,7 +72035,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org932cc90)
+See: [33.4.1](#org8282e81)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -74695,7 +74691,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org55d778a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org47ffc00) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -83040,7 +83036,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org55d778a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org47ffc00) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -84378,7 +84374,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgfaf1f51)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org7207509)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
