@@ -738,6 +738,775 @@ Both are true, that faith in Jesus Christ saves, and so does obedience to Jesus 
 But faith must continue (Hebrews 10:37-39), hence why those who with faith and patience inherit the promises
 (Hebrews 6:11-18).
 
+As while this faith is being held, one must be doing the will of God (Mark 3:35) which is to abstain from worldly
+desires (I John 2:17), to do good (I Peter 2:15), to abstain from the passions of the flesh (I Peter 4:2), to give
+thanks in all circumstancs (I Thessalonians 5:18), to abstain from evil (I Thessalonians 4:3), to serve Christ
+(Ephesians 6:6):
+
+  Hebrews 10:36 - For you have need of endurance, so that when you have done the will of God you may receive what
+  is promised. (ESV)
+
+  I John 5:20 - And we know that the Son of God has come and has given us understanding, so that we may know him
+  who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal life. (ESV)
+
+  John 8:31-32 - So Jesus said to the Jews who had believed (G4100 pepisteukotas; having believed) in him, If you
+  abide (G3306 meinēte; remain, abide, stay, continue, dwell, endure) in my word, you are truly my disciples, and
+  you will know the truth (G225 alētheia; truth, reality; i.e. walking in reality), and the truth will set you
+  free. (ESV)
+
+  John 10:4-5 - When he has brought out all his own, he goes before them, and the sheep follow him, for they know
+  his voice. A stranger they will not follow, but they will flee from him, for they do not know the voice of
+  strangers. (ESV)
+
+  John 10:27 - My sheep hear my voice, and I know them, and they follow me. (ESV)
+
+  Psalms 138:6-8 - For though JEHOVAH is high, yet he looks after the lowly; but the proud, he knows from afar.
+  Though I walk in the midst of trouble, you will revive me. You will stretch forth your hand against the wrath of
+  my enemies. Your right hand will save me. JEHOVAH will fulfill that which concerns me; your loving kindness,
+  JEHOVAH, endures forever. Do not forsake the works of your own hands. (NHEBJE)
+
+  John 10:14-16 - I am the good shepherd. I know my own and my own know me, just as the Father knows me and I know
+  the Father; and I lay down my life for the sheep. And I have other sheep that are not of this fold. I must bring
+  them also, and they will listen to my voice. So there will be one flock, one shepherd. (ESV)
+
+  John 6:45 - It is written in the Prophets, And they will all be taught by God. Everyone who has heard and
+  learned from the Father comes to me— (ESV)
+
+  John 7:29 - I know him, for I come from him, and he sent me. (ESV)
+
+  I John 4:6 - We are from God. Whoever knows God listens to us; whoever is not from God does not listen to us. By
+  this we know the Spirit of truth and the spirit of error. (ESV)
+
+  I John 4:8,19-21 - Anyone who does not love does not know God, because God is love. We love because he first
+  loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother
+  whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever loves God
+  must also love his brother. (ESV)
+
+  Isaiah 45:19 - I did not speak in secret, in a land of darkness; I did not say to the offspring of Jacob, Seek
+  me in vain. I the LORD speak the truth; I declare what is right. (ESV)
+
+  II Timothy 2:19 - But God's firm foundation stands, bearing this seal: The Lord knows those who are his, and,
+  Let everyone who names the name of the Lord depart from iniquity. (ESV)
+
+  John 10:25-26 - Jesus answered them, I told you, and you do not believe. The works that I do in my Father's name
+  bear witness about me, but you do not believe because you are not part of my flock. (ESV)
+
+  John 16:2-3 - They will put you out of the synagogues. Indeed, the hour is coming when whoever kills you will
+  think he is offering service to God. And they will do these things because they have not known the Father, nor
+  me. (ESV)
+
+  John 3:3 - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of
+  God. (ESV)
+
+Father God's commandment for us is to hold faith (actively be trusting) in the name of Jesus Christ His Son and
+love one another as we've been commanded to (Matthew 22:36-40, I John 5:2) and this commandment is eternal life
+(John 12:44-50, Luke 10:25-28), and God helps us to fulfill this (Romans 8:3-4). As we by faith that loves God's
+word obey Jesus Christ for a sincere love of our family in Christ (I Peter 1:22), God sanctifies us to love Him
+with our whole heart (Romans 6:22, Deuteronomy 30:6):
+
+  Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who
+  obey him. (ESV)
+
+  I John 3:23-24 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
+  another, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this
+  we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+  John 14:1 - Let not your hearts be troubled. Believe in God; believe also in me. (ESV)
+
+  Hebrews 5:9 - And being made perfect, he became the source of eternal salvation to all who obey him, (ESV)
+
+  Hebrews 11:8 - By faith Abraham obeyed when he was called to go out to a place that he was to receive as an
+  inheritance. And he went out, not knowing where he was going. (ESV)
+
+  Hebrews 11:4 - By faith Abel offered to God a more acceptable sacrifice than Cain, through which he was
+  commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he
+  still speaks. (ESV)
+
+We are God's friends if we love in the way He has commanded us:
+
+  John 15:9-14 - As the Father has loved me, so have I loved you. Abide in my love. If you keep my commandments,
+  you will abide in my love, just as I have kept my Father's commandments and abide in his love. These things I
+  have spoken to you, that my joy may be in you, and that your joy may be full. This is my commandment, that you
+  love one another as I have loved you. Greater love has no one than this, that someone lays down his life for his
+  friends. You are my friends if you do what I command you. (ESV)
+
+  Proverbs 17:17 - A friend loves at all times, and a brother is born for adversity. (ESV)
+
+  John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
+  loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+  Proverbs 8:17 - “I love those who love me; And those who diligently seek me will find me. (NASB)
+
+God helps us as we hold the faith:
+
+  Jude 1:20-21 - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep
+  yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
+
+Obedience without love for the truth is feigned (Psalms 81:12-15). Obedience without faith doesn't exist (Romans
+14:23). Faith without love for the truth is evil (Luke 6:45), demonic (James 2:19, Matthew 8:29) and accursed (I
+Corinthians 16:22). Love for good produces good and love for evil produces evil (Luke 6:45). Works without faith
+are evil and sinful (Romans 14:23). Works without obedience are evil and slothful (Matthew 25:24-30, Titus
+1:9-16). As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (James
+2:26) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say
+that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With
+what faith are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing
+the deeds? (a) God working as one obediently abstains from woroking? (Romans 4:4-6), or b) oneself working deeds
+that are being wrought in God? (John 3:21)" Faith in lies is like doubting the truth (II Thessalonians 2:9-12,
+Jeremiah 29:31, Jeremiah 28:15, Isaiah 42:17, Habakkuk 2:18, Luke 8:12, John 8:43-47). Sin doesn't necessitate
+external action in order to be committed because sin can be committed in the heart (Matthew 5:28), which is
+precisely why we are in need of the atoning work of Jesus Christ (Hebrews 10:4) to be received by faith in Jesus
+Christ (Romans 3:23-26). A person is blessed if they have faith accompanied by deeds (James 1:21-25). Speaking the
+truth, even regarding sin is important (Ephesians 4:20-32). It's also correct to separate from people who love
+evil while professing to be family to a Christian (I Corinthians 5:9-13) but we have to be careful to not judge on
+matters that are not truly sinful (Romans 14:3, Romans 14:23). But there certainly are sinful behaviours that
+qualify one believer to judge or separate from another (I Timothy 1:8-11). Substance abuse is one such thing (I
+Corinthians 5:9-13), but some things in moderation could be OK (Titus 2:1-8). Truth without grace is judgemental,
+but truth with grace is truthful while patient (John 12:44-50), even though real grace is given to someone so that
+they may be sanctified by the truth (Titus 2:11-14) but "having grace" such as "time to repent" (Revelation of
+John 2:21, Revelation of John 16:8-11) could mean simply that a person is not yet in hell and so grace doesn't
+mean "saved" necessarily. Without repentance (i.e. without a change of mind), there is no salvation (Luke 13:3).
+Truth is convicting (John 16:8-9). Grace without the truth that convicts is not true grace because both grace and
+truth have come through Jesus Christ (John 1:14, John 14:6). Real love loves the truth and hates evil (Romans
+12:9). Real faith loves the truth (Mark 4:14-20, II Timothy 4:8).
+
+Love for evil or the world (G2889 kosmon) is not real love at all. But real love loves God (I John 2:15-17, I John
+4:7), doing as He commands (John 14:21) to love Him and our neighbour (Luke 10:27-28) including our family in
+Christ (John 13:34) the way we are commanded to (I John 5:2):
+
+  Luke 11:43 - Woe to you Pharisees! For you love the best seat in the synagogues and greetings in the
+  marketplaces. (ESV)
+
+  I John 2:15 - Do not love the world or the things in the world. If anyone loves the world, the love of the
+  Father is not in him. (ESV)
+
+  John 18:36 - Jesus answered, My kingdom is not of this world. If my kingdom were of this world, my servants
+  would have been fighting, that I might not be delivered over to the Jews. But my kingdom is not from the world.
+  (ESV)
+
+  John 14:21 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
+  loved by my Father, and I will love him and manifest myself to him. (ESV)
+
+Faith is not at all directly at odds to true obedience, but obedience when understood correctly actually implies
+faith as a person cannot truly obey God without a love for God (Psalms 81:12-15, James 2:5, Luke 6:45), say a love
+for His promise (Hebrews 11:8):
+
+  I Peter 2:6-8 - For it stands in Scripture: Behold, I am laying in Zion a stone, a cornerstone chosen and
+  precious, and whoever believes in him will not be put to shame. So the honor is for you who believe, but for
+  those who do not believe, The stone that the builders rejected has become the cornerstone, and A stone of
+  stumbling, and a rock of offense. They stumble because they disobey the word, as they were destined to do. (ESV)
+
+  Hebrews 11:29 - By faith the people crossed the Red Sea as if on dry land, but the Egyptians, when they
+  attempted to do the same, were drowned. (ESV)
+
+  Exodus 14:31 - When Israel saw the great power which the LORD had used against the Egyptians, the people feared
+  the LORD, and they believed (H539 'aman) in the LORD and in His servant Moses. (ESV)
+
+  Exodus 14:14-16 - The LORD will fight for you, and you have only to be silent. The LORD said to Moses, Why do
+  you cry to me? Tell the people of Israel to go forward. Lift up your staff, and stretch out your hand over the
+  sea and divide it, that the people of Israel may go through the sea on dry ground. (ESV)
+
+  Exodus 14:21-30 - Then Moses stretched out his hand over the sea, and the Lord drove the sea back by a strong
+  east wind all night and made the sea dry land, and the waters were divided. And the people of Israel went into
+  the midst of the sea on dry ground, the waters being a wall to them on their right hand and on their left. The
+  Egyptians pursued and went in after them into the midst of the sea, all Pharaoh's horses, his chariots, and his
+  horsemen. And in the morning watch the Lord in the pillar of fire and of cloud looked down on the Egyptian
+  forces and threw the Egyptian forces into a panic, clogging their chariot wheels so that they drove heavily. And
+  the Egyptians said, Let us flee from before Israel, for the Lord fights for them against the Egyptians. Then the
+  Lord said to Moses, Stretch out your hand over the sea, that the water may come back upon the Egyptians, upon
+  their chariots, and upon their horsemen. So Moses stretched out his hand over the sea, and the sea returned to
+  its normal course when the morning appeared. And as the Egyptians fled into it, the Lord threw the Egyptians
+  into the midst of the sea. The waters returned and covered the chariots and the horsemen; of all the host of
+  Pharaoh that had followed them into the sea, not one of them remained. But the people of Israel walked on dry
+  ground through the sea, the waters being a wall to them on their right hand and on their left. Thus the Lord
+  saved Israel that day from the hand of the Egyptians, and Israel saw the Egyptians dead on the seashore. (ESV)
+
+Someone having faith in Jesus Christ and His words, though they die, yet they will live (i.e. get born-again), and
+a born-again (living) person, if they have faith in Jesus Christ and His words, will never die. Being united in a
+resurrection like Jesus' surely means there is a bodily resurrection as well. Born-again (alive) must still
+continue on in the teaching of Christ:
+
+  Psalms 56:13 - For you have delivered my soul from death, yes, my feet from falling, that I may walk before God
+  in the light of life. (ESV)
+
+  John 8:12 - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in
+  darkness, but will have the light of life. (ESV)
+
+youtube.com: Near Death . Now Homeless . {@ thedayaheadpodcast }
+
+I commented:
+
+I believe I have had an actual death and spiritual resurrection on 2 April 2022. I would not call it simply a
+near-death experience, but I believe it was an actual death and rebirth. I'm just saying what happened to me I
+wouldn't call a "near death experience". I believe it was an actual death and rebirth, as in, baptized into
+Christ's death, and born-again. I was lying on my bed having a snooze and some time around mid day, suddenly I
+observed my soul being regenerated. It looked like a knitted fabric made of thin blue flame in the shape of a
+human, and it was me. Everything else was pitch black and I could only see my soul. I believe that I have been
+baptized into Jesus' death, and I believe that I have seen my new regenerated soul. While it was happening I
+called out to Jesus saying "Jesus, please save me, I don't know what's going on." And this lasted some minutes
+seeing this until I snapped back into having natural sight. So I'm a new person and I'm in a new creation, and I
+have a new Dad (Father God, Jesus Christ's Dad), who by faith in Jesus Christ I call upon as Dad. I'm still
+waiting for my resurrection body though. So I've been born twice now (new spirit inside old flesh). But there is a
+third birth to come so to speak which is the new flesh. Unless Jesus comes back before then and I am raptured out
+of here.
+
+Before I got born-again, I was also stuck in a cycle of sin and selfishness, etc. and I needed God to intervene
+and save me. Leading up to when I got born-again I had been calling out to God to rescue me, actually, even from
+the sin which I was enslaved to.
+
+What you've been saying about your previous lifestyle sounds similar to what I was also living like. When you say,
+"When I was behind that glass wall, I genuinely thought it was too late." I also was feeling like this for a
+little while. But I lay there, not knowing what was happening, initially concerned because I thought I might be
+dead and it was too late, but I called out to Jesus asking Him to save me. I was genuinely afraid but also all I
+could do was hope in God for Him to do something. Because I felt completely powerless. I believe the correct thing
+to do was to just wait it out and entrust myself to God. That entire aspect of my life belongs to Yahweh God,
+Father Son and Holy Spirit; Father God and Jesus Christ His Son and God's Holy Spirit. And now believing I've been
+given a second chance, the right thing to do is to go forward endeavouring to do God's will, with fear of God and
+abiding in Jesus' teachings.
+
+Praise God for intervening. God have mercy on us. It's really important I believe to continue on in faith in Jesus
+Christ and in the fear of God, receiving God's correction, even after getting born-again. It's important to not
+obey the flesh after getting born-again. If we live by the spirit let us also walk by the spirit. So before and
+after getting born-again, I believe it's important to abide in Christ's teachings and commandments.
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+  Romans 6:3-8 - Do you not know that all of us who have been baptized into Christ Jesus were baptized into his
+  death? We were buried therefore with him by baptism into death, in order that, just as Christ was raised from
+  the dead by the glory of the Father, we too might walk in newness of life. For if we have been united with him
+  in a death like his, we shall certainly be united with him in a resurrection like his. We know that our old self
+  was crucified with him in order that the body of sin might be brought to nothing, so that we would no longer be
+  enslaved to sin. For one who has died has been set free from sin. Now if we have died with Christ, we believe
+  that we will also live with him. (ESV)
+
+  II John 1:9-11 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his
+  wicked works. (ESV)
+
+  Colossians 3:12-14 - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility,
+  meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving each
+  other; as the Lord has forgiven you, so you also must forgive. And above all these put on love, which binds
+  everything together in perfect harmony. (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
+
+Being "made alive" is a gift that is gifted to us to save us from being enslaved to sin. This grace saves us:
+
+  Ephesians 2:1-10 - And you were dead in the trespasses and sins in which you once walked, following the course
+  of this world, following the prince of the power of the air, the spirit that is now at work in the sons of
+  disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body
+  and the mind, and were by nature children of wrath, like the rest of mankind. But God, being rich in mercy,
+  because of the great love with which he loved us, even when we were dead in our trespasses, made us alive
+  together with Christ—by grace you have been saved— and raised us up with him and seated us with him in the
+  heavenly places in Christ Jesus, so that in the coming ages he might show the immeasurable riches of his grace
+  in kindness toward us in Christ Jesus. For by grace you have been saved through faith. And this is not your own
+  doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship,
+  created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
+
+  I Corinthians 15:22-28 - For as in Adam all die, so also in Christ shall all be made alive. But each in his own
+  order: Christ the firstfruits, then at his coming those who belong to Christ. Then comes the end, when he
+  delivers the kingdom to God the Father after destroying every rule and every authority and power. For he must
+  reign until he has put all his enemies under his feet. The last enemy to be destroyed is death. For God has put
+  all things in subjection under his feet. But when it says, all things are put in subjection, it is plain that he
+  is excepted who put all things in subjection under him. When all things are subjected to him, then the Son
+  himself will also be subjected to him who put all things in subjection under him, that God may be all in all.
+  (ESV)
+
+  John 5:21-24 - `For, as the Father doth raise the dead, and doth make alive, so also the Son doth make alive
+  whom he willeth; for neither doth the Father judge any one, but all the judgment He hath given to the Son, that
+  all may honour the Son according as they honour the Father; he who is not honouring the Son, doth not honour the
+  Father who sent him. `Verily, verily, I say to you–He who is hearing my word, and is believing Him who sent me,
+  hath life age-during, and to judgment he doth not come (G2064 erchomai), but hath passed (G3327 metabain;
+  changes place; From meta and the base of basis; to change place – depart, go, pass, remove.) out of the death to
+  the life. (YLT)
+
+We receive grace from God which is the mercy we receive that leads to eternal life. I believe I received that
+grace when I was born-again:
+
+  Jude 1:20-21 - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep
+  yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
+
+I am not the same person as the person who died in baptism on 2 April 2022. 2 April 2022 is the death day of my
+previous self. It's very important then to walk in faith, love, holiness and truth. The former manner of life is
+corrupt and must be put off. Rather, we must put on the new self:
+
+  Romans 6:6 - We know that our old self was crucified with him in order that the body of sin might be brought to
+  nothing, so that we would no longer be enslaved to sin. (ESV)
+
+  Colossians 3:9-10 - Do not lie to one another, seeing that you have put off the old self with its practices and
+  have put on the new self, which is being renewed in knowledge after the image of its creator. (ESV)
+
+  Ephesians 4:17-24 - Now this I say and testify in the Lord, that you must no longer walk as the Gentiles do, in
+  the futility of their minds. They are darkened in their understanding, alienated from the life of God because of
+  the ignorance that is in them, due to their hardness of heart. They have become callous and have given
+  themselves up to sensuality, greedy to practice every kind of impurity. But that is not the way you learned
+  Christ!— assuming that you have heard about him and were taught in him, as the truth is in Jesus, to put off
+  your old self, which belongs to your former manner of life and is corrupt through deceitful desires, and to be
+  renewed in the spirit of your minds, and to put on the new self, created after the likeness of God in true
+  righteousness and holiness. (ESV)
+
+If a person does good from faith in Jesus Christ and His words and commandments then when they are doing good they
+are not doing evil.
+
+  Galatians 5:16-17 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the
+  desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are
+  opposed to each other, to keep you from doing the things you want to do. (ESV)
+
+  Galatians 3:24 - So then, the law was our guardian until Christ came, in order that we might be justified by
+  faith. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  Hebrews 3:12-13 - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to
+  fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
+  may be hardened by the deceitfulness of sin. (ESV)
+
+Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
+a "here and now" thing. If we are confessing and believing the same as God as regards Jesus Christ then that is
+what saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of
+Jesus Christ and His words are so vital to remain in agreement with. The faith is needed first and good deeds are
+produced while holding good faith. From faith in Jesus and His words we do what He says:
+
+  Romans 10:3-11 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
+  own, they did not submit to God's righteousness. For Christ is the end (G5056 telos) of the law for
+  righteousness to everyone who believes. For Moses writes about the righteousness that is based on the law, that
+  the person who does the commandments shall live by them. But the righteousness based on faith says, Do not say
+  in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the abyss?
+  (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth and in
+  your heart (that is, the word of faith that we proclaim); because, if you confess (G3670 homologēsēs; from
+  homologeó: To confess, to acknowledge, to agree) with your mouth that Jesus is Lord and believe in your heart
+  that God raised him from the dead, you will be saved. For with the heart one believes and is justified, and with
+  the mouth one confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to
+  shame. (ESV)
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+  Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
+  (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+We need to be doers of what Jesus Christ says here. Being led by the spirit and not under the law, a person would
+be "seeking first the Kingdom of God and His righteousness" in preference to worrying about worldly concerns to
+make the flesh their strength, and so would prioritise by faith obeying Jesus Christ's commandments in reality
+over, say, "ironing a shirt". God wants us to walk by the spirit (do the will of God which He has commanded us)
+and to leave the rest to Him which includes providing us with our material needs:
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+  Matthew 6:24-25 - No one can serve two masters, for either he will hate the one and love the other, or he will
+  be devoted to the one and despise the other. You cannot serve God and money. Therefore I tell you, do not be
+  anxious about your life, what you will eat or what you will drink, nor about your body, what you will put on. Is
+  not life more than food, and the body more than clothing? (ESV)
+
+  Matthew 6:31-33 - Therefore do not be anxious, saying, What shall we eat? or What shall we drink? or What shall
+  we wear? For the Gentiles seek after all these things, and your heavenly Father knows that you need them all.
+  But seek first the kingdom of God and his righteousness, and all these things will be added to you. (ESV)
+
+  II Timothy 2:3-4 - Share in suffering as a good soldier of Christ Jesus. No soldier gets entangled in civilian
+  pursuits, since his aim is to please the one who enlisted him. (ESV)
+
+  Psalms 103:17-18 - But the steadfast love of the LORD is from everlasting to everlasting on those who fear him,
+  and his righteousness to children's children, to those who keep his covenant and remember to do his
+  commandments. (ESV)
+
+  Matthew 7:7-24 - Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you.
+  For everyone who asks receives, and the one who seeks finds, and to the one who knocks it will be opened. Or
+  which one of you, if his son asks him for bread, will give him a stone? Or if he asks for a fish, will give him
+  a serpent? If you then, who are evil, know how to give good gifts to your children, how much more will your
+  Father who is in heaven give good things to those who ask him! So whatever you wish that others would do to you,
+  do also to them, for this is the Law and the Prophets. Enter by the narrow gate. For the gate is wide and the
+  way is easy that leads to destruction, and those who enter by it are many. For the gate is narrow and the way is
+  hard that leads to life, and those who find it are few. Beware of false prophets, who come to you in sheep's
+  clothing but inwardly are ravenous wolves. You will recognize them by their fruits. Are grapes gathered from
+  thornbushes, or figs from thistles? So, every healthy tree bears good fruit, but the diseased tree bears bad
+  fruit. A healthy tree cannot bear bad fruit, nor can a diseased tree bear good fruit. Every tree that does not
+  bear good fruit is cut down and thrown into the fire. Thus you will recognize them by their fruits. Not everyone
+  who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does the will of my Father who is
+  in heaven. On that day many will say to me, Lord, Lord, did we not prophesy in your name, and cast out demons in
+  your name, and do many mighty works in your name? And then will I declare to them, I never knew you; depart from
+  me, you workers of lawlessness. Everyone then who hears these words of mine and does them will be like a wise
+  man who built his house on the rock. (ESV)
+
+  II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+The faith which a person is justified by is counted distinctly from (G5565 chōris) any corresponding external
+actions and distinctly from any corresponding law. This is very clearly not implying that a person doesn't have
+corresponding works (e.g. Abel's offering was done in faith), and very clearly not implying that a person does not
+seek to keep some law as they exercise their faith (Romans 14:23, Romans 9:30-32). But it's the faith which is
+counted distinctly from any corresponding external action or law:
+
+  Romans 3:20-25 - For by works of the law no human being will be justified in his sight, since through the law
+  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
+  (G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in
+  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
+  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
+  forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
+  in his divine forbearance he had passed over former sins. (ESV)
+
+That is what is truly justification by faith 'alone', rather than what an antinomian / disobedient / faithless
+person might think faith alone is.
+
+Without the love of God, the love for the truth, in them, a person can't have saving faith:
+
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  Job 22:23-26 - If you return to the Almighty, you will be restored. If you remove injustice from your tents and
+  consign your gold to the dust and the gold of Ophir to the stones of the ravines, then the Almighty will be your
+  gold and the finest silver for you. Surely then you will delight in the Almighty and lift up your face to God.
+  (engbsb2020eb)
+
+So we should "do good". Putting on the new self, and be renewed in mind, and truly love in the way which God
+requires:
+
+  Luke 6:32-36 - If you love those who love you, what benefit is that to you? For even sinners love those who love
+  them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same.
+  And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to
+  sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return,
+  and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the
+  evil. Be merciful, even as your Father is merciful. (ESV)
+
+  Isaiah 1:16-17 - Wash yourselves; make yourselves clean; remove the evil of your deeds from before my eyes;
+  cease to do evil, learn to do good; seek justice, correct oppression; bring justice to the fatherless, plead the
+  widow's cause. (ESV)
+
+  John 12:35-36 - So Jesus said to them, The light is among you for a little while longer. Walk while you have the
+  light, lest darkness overtake you. The one who walks in the darkness does not know where he is going. While you
+  have the light, believe in the light, that you may become sons of light. When Jesus had said these things, he
+  departed and hid himself from them. (ESV)
+
+  I John 2:8-9 - At the same time, it is a new commandment that I am writing to you, which is true in him and in
+  you, because the darkness is passing away and the true light is already shining. Whoever says he is in the light
+  and hates his brother is still in darkness. (ESV)
+
+  I John 3:14 - We know that we have passed out of death into life, because we love the brothers. Whoever does not
+  love abides in death. (ESV)
+
+  John 17:26 - I made known to them your name, and I will continue to make it known, that the love with which you
+  have loved me may be in them, and I in them. (ESV)
+
+God still uses our shortcomings and when our works appear to have not worked out from the natural. We should do
+good from the love of God and leave the justifying to God. And persevere with being wise for what is good and
+innocent as to evil, to conquer:
+
+  Romans 8:28 - And we know that for those who love God all things work together for good, for those who are
+  called according to his purpose. (ESV)
+
+  II Corinthians 12:9 - But he said to me, My grace is sufficient for you, for my power is made perfect in
+  weakness. Therefore I will boast all the more gladly of my weaknesses, so that the power of Christ may rest upon
+  me. (ESV)
+
+  II Corinthians 5:9-12 - So whether we are at home or away, we make it our aim to please him. For we must all
+  appear before the judgment seat of Christ, so that each one may receive what is due for what he has done in the
+  body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But what we are is
+  known to God, and I hope it is known also to your conscience. We are not commending ourselves to you again but
+  giving you cause to boast about us, so that you may be able to answer those who boast about outward appearance
+  and not about what is in the heart. (ESV)
+
+  Matthew 25:31-40 - When the Son of Man comes in his glory, and all the angels with him, then he will sit on his
+  glorious throne. Before him will be gathered all the nations, and he will separate people one from another as a
+  shepherd separates the sheep from the goats. And he will place the sheep on his right, but the goats on the
+  left. Then the King will say to those on his right, Come, you who are blessed by my Father, inherit the kingdom
+  prepared for you from the foundation of the world. For I was hungry and you gave me food, I was thirsty and you
+  gave me drink, I was a stranger and you welcomed me, I was naked and you clothed me, I was sick and you visited
+  me, I was in prison and you came to me. Then the righteous will answer him, saying, Lord, when did we see you
+  hungry and feed you, or thirsty and give you drink? And when did we see you a stranger and welcome you, or naked
+  and clothe you? And when did we see you sick or in prison and visit you? And the King will answer them, Truly, I
+  say to you, as you did it to one of the least of these my brothers, you did it to me.
+
+  Romans 16:19-20 - For your obedience is known to all, so that I rejoice over you, but I want you to be wise as
+  to what is good and innocent as to what is evil. The God of peace will soon crush Satan under your feet. The
+  grace of our Lord Jesus Christ be with you. (ESV)
+
+  Romans 12:19-21 - Beloved, never avenge yourselves, but leave it to the wrath of God, for it is written,
+  Vengeance is mine, I will repay, says the Lord. To the contrary, if your enemy is hungry, feed him; if he is
+  thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be
+  overcome by evil, but overcome evil with good. (ESV)
+
+By faith, in obedience to Jesus Christ we are to overcome evil with good loving as Father God loves:
+
+  Hebrews 12:4-8 - In your struggle against sin you have not yet resisted to the point of shedding your blood. And
+  have you forgotten the exhortation that addresses you as sons? My son, do not regard lightly the discipline of
+  the Lord, nor be weary when reproved by him. For the Lord disciplines the one he loves, and chastises every son
+  whom he receives. It is for discipline that you have to endure. God is treating you as sons. For what son is
+  there whom his father does not discipline? If you are left without discipline, in which all have participated,
+  then you are illegitimate children and not sons. (ESV)
+
+  Revelation of John 21:7 - The one who conquers will have this heritage, and I will be his God and he will be my
+  son. (ESV)
+
+  Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
+  to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
+  heaven. For he makes his sun rise on the evil and on the good, and sends rain on the just and on the unjust. For
+  if you love those who love you, what reward do you have? Do not even the tax collectors do the same? And if you
+  greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
+  therefore must be perfect, as your heavenly Father is perfect. (ESV)
+
+  John 17:26 - I made known to them your name, and I will continue to make it known, that the love with which you
+  have loved me may be in them, and I in them. (ESV)
+
+All things being new from my perspective, I believe God's will for me is to go on bearing with my family in Christ
+in love and forgiveness (Colossians 3:12-13) towards them. As for my neighbour generally, I forgive any offences
+against me personally. I'll endeavour in the imitation of Jesus to preach the gospel of God, and not be quick to
+judge (Polycarp 6:1), perhaps quote John 12:44-50 to them and let them know that Jesus' word will judge on the
+last day but that Jesus has come to save and we should imitate His patience (II Peter 3:15) with others. Whoever
+is having faith in Jesus Christ is not judged, but whoever rejects Him and His words has a judge (John 12:47-48).
+Whoever is disbelieving in Jesus Christ (i.e. rejects the truth of, hates the truth of God revealed in Jesus
+Christ) is judged already (John 3:14-21). Even if I myself forgive others for any perceived wrong against me, if
+they remain against Jesus then that remains a problem for them. I can only bear fruit for God while done in Christ
+(John 15:4) abiding in His teachings. There's no other name under heaven among men by which we must be saved other
+than the name of Jesus Christ (Acts 4:8-12):
+
+  Luke 13:3 - No, I tell you; but unless you repent (3340. metanoeó), you will all likewise perish. (ESV)
+
+The person who hopes in Jesus Christ purifies themself (I John 3:3-11) as Jesus is pure:
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  I John 3:3-11 - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice
+  of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in
+  him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him
+  or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. (ESV)
+
+Being born of God, by the will of God, could be in "doing good" because it may be God's will for a person to do
+good and a person is born of God by the will of God (I Peter 2:15) if it is God's will (I Peter 3:17).
+
+A person who loves in the truth is born of God (I John 4:7).
+
+Those who have faith in Jesus have faith in Jesus in their own heart thanks to God. All glory to God:
+
+  I Peter 1:21 - who through him are believers in God, who raised him from the dead and gave him glory, so that
+  your faith and hope are in God. (ESV)
+
+I Peter 1:21 (Interlinear)
+who (G3588 tous) by (G1223 di’) him (G846 autou) believe (G4103 pistous) in (G1519 eis) God (G2316 Theon) - (G3588
+ton) having raised up (G1453 egeiranta) Him (G846 auton) out from (G1537 ek) [the] dead (G3498 nekrōn) and (G2532
+kai) glory (G1391 doxan) Him (G846 autō) having given (G1325 donta) so as for (G5620 hōste) the (G3588 tēn) faith
+(G4102 pistin) of you (G4771 hymōn) and (G2532 kai) hope (G1680 elpida) to be (G1510 einai) in (G1519 eis) God
+(G2316 Theon)
+
+If a person has faith in God then it's because of His grace. If a person has obedience in their heart to God then
+it's because of His grace. If a person has good works then it's because of God's grace.
+
+Nevertheless, we are still instructed to repent and believe in the gospel, in Jesus Christ, in God to be saved.
+Just because the Bible instructs us to do something, does not mean that it is us apart from God's doing who does
+it.
+
+Indeed, even after being born-again by God's grace, we are instructed to do God's will for us, to keep His
+commandments for us:
+
+Polycarp 1:3
+
+though ye saw Him not, ye believe with joy unutterable and full of glory; unto which joy many desire to enter in;
+forasmuch as ye know that it is by grace ye are saved, not of works, but by the will of God through Jesus Christ.
+
+2:1 Wherefore gird up your loins and serve God in fear and truth, forsaking the vain and empty talking and the
+error of the many, for that ye have believed on Him that raised our Lord Jesus Christ from the dead and gave unto
+him glory and a throne on His right hand; unto whom all things were made subject that are in heaven and that are
+on the earth; to whom every creature that hath breath doeth service; who cometh as judge of quick and dead; whose
+blood God will require of them that are disobedient unto Him.
+
+2:2 Now He that raised Him from the dead will raise us also; if we do His will and walk in His commandments and
+love the things which He loved, abstaining from all unrighteousness, covetousness, love of money, evil speaking,
+false witness; not rendering evil for evil or railing for railing or blow for blow or cursing for cursing;
+
+  John 12:46 - I have come into the world as light, so that whoever believes in me may not remain in darkness.
+  (ESV)
+
+  John 9:5 - As long as I am in the world, I am the light of the world.
+
+  Matthew 5:14 - You are the light of the world. A city set on a hill cannot be hidden. (ESV)
+
+The resurrection of the body is to be awaited i.e. (it hasn't happened yet). Sure, I have been spiritually
+resurrected (new spirit in old flesh), but there is a bodily resurrection also, which I take it happens typically
+after old flesh dies (I Corinthians 15:42-48). In the resurrection they neither marry nor are given in marriage.
+Am I allowed to marry a believing (holding faith in Jesus Christ) wife? According to my present understanding, I
+think so (I Corinthians 9:5-9), but not whoever I want as a wife is a gift from God (I Corinthians 7:7) and they
+are given (Matthew 22:30). But even if I think that I am allowed to marry at all, that doesn't mean I would. I
+feel like my situation is very highly strung, so I wouldn't marry in my present state I think, and certainly not
+without reliable (I John 4:1-3) instruction (Matthew 1:20) from God:
+
+  II Timothy 2:11-18 - The saying is trustworthy, for: If we have died with him, we will also live with him; if we
+  endure, we will also reign with him; if we deny him, he also will deny us; if we are faithless, he remains
+  faithful— for he cannot deny himself. Remind them of these things, and charge them before God not to quarrel
+  about words, which does no good, but only ruins the hearers. Do your best to present yourself to God as one
+  approved, a worker who has no need to be ashamed, rightly handling the word of truth. But avoid irreverent
+  babble, for it will lead people into more and more ungodliness, and their talk will spread like gangrene. Among
+  them are Hymenaeus and Philetus, who have swerved from the truth, saying that the resurrection has already
+  happened. They are upsetting the faith of some. (ESV)
+
+  Matthew 22:30 - For in the resurrection they neither marry nor are given in marriage, but are like angels in
+  heaven. (ESV)
+
+  Philippians 3:20-21 - But our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ,
+  who will transform our lowly body to be like his glorious body, by the power that enables him even to subject
+  all things to himself. (ESV)
+
+  II Corinthians 4:6-12 - For God, who said, Let light shine out of darkness, has shone in our hearts to give the
+  light of the knowledge of the glory of God in the face of Jesus Christ. But we have this treasure in jars of
+  clay, to show that the surpassing power belongs to God and not to us. We are afflicted in every way, but not
+  crushed; perplexed, but not driven to despair; persecuted, but not forsaken; struck down, but not destroyed;
+  always carrying in the body the death of Jesus, so that the life of Jesus may also be manifested in our bodies.
+  For we who live are always being given over to death for Jesus' sake, so that the life of Jesus also may be
+  manifested in our mortal flesh. So death is at work in us, but life in you. (ESV)
+
+  I Corinthians 7:28-35 - But if you do marry, you have not sinned, and if a betrothed woman marries, she has not
+  sinned. Yet those who marry will have worldly troubles, and I would spare you that. This is what I mean,
+  brothers: the appointed time has grown very short. From now on, let those who have wives live as though they had
+  none, and those who mourn as though they were not mourning, and those who rejoice as though they were not
+  rejoicing, and those who buy as though they had no goods, and those who deal with the world as though they had
+  no dealings with it. For the present form of this world is passing away. I want you to be free from anxieties.
+  The unmarried man is anxious about the things of the Lord, how to please the Lord. But the married man is
+  anxious about worldly things, how to please his wife, and his interests are divided. And the unmarried or
+  betrothed woman is anxious about the things of the Lord, how to be holy in body and spirit. But the married
+  woman is anxious about worldly things, how to please her husband. I say this for your own benefit, not to lay
+  any restraint upon you, but to promote good order and to secure your undivided devotion to the Lord. (ESV)
+
+A person gets born-again (made alive, made new) by the word of God (I Peter 1:23), but must go on as a believer
+with the circumcision of the heart to love God with their whole heart, practicing righteousness abiding in Jesus'
+commandments which involves having love for God and for God's children:
+
+  John 11:25-27 - Jesus said to her, I am the resurrection and the life. Whoever believes in me, though he die,
+  yet shall he live, and everyone who lives and believes in me shall never (G3756 οὐ) (G3361 μή) die. Do you
+  believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
+  the world. (ESV)
+
+  Romans 7:9-13 - I was once alive apart from the law, but when the commandment came, sin came alive and I died.
+  The very commandment that promised life proved to be death to me. For sin, seizing an opportunity through the
+  commandment, deceived me and through it killed me. So the law is holy, and the commandment is holy and righteous
+  and good. Did that which is good, then, bring death to me? By no means! It was sin, producing death in me
+  through what is good, in order that sin might be shown to be sin, and through the commandment might become
+  sinful beyond measure. (ESV)
+
+I commented on the following video: youtube.com: Comment from @ ShaneMulligan - n7h {@ GESvids }
+
+I think it's important to grasp the concepts of faith in and obedience to God, and of faithlessness and
+disobedience to God, and the consequences. Grasp the basics first, understand what we even mean by "faith", and
+then the object of our faith, which should be God the Father of Jesus Christ and Jesus Christ who He sent, and
+then start to reason about things like eschatology, and what happens ultimately. And I think that because whatever
+does not proceed from faith is sin and because biblical faith looks like Abraham's faith. The faith we need to
+have when "believing" in Jesus looks like Abraham's faith. One characteristic of Abraham's faith is, for example,
+the fear of God.
+
+It's non-self-commending faith in Jesus Christ (i.e. lets God be the judge of the person's faith, rather than
+patting oneself on the back) that we need to be saved. Faith is to do with the heart attitudes. Works/deeds are
+external actions which are done in either faith in God or without faith in God. Real faith in Jesus isn't like the
+way demons believe. Real faith in Jesus loves the truth as opposed to hates the truth. That's evident when Jesus
+says, "If God were your father, you would love me." Faith in Jesus isn't self-righteous, and so faith in Jesus has
+the fear of God (i.e. seeking to please God, knowing God can point out fault in any of us etc., humility, etc.).
+Faith in Jesus receives correction from Jesus (i.e. teachable by God). Any deeds done without faith are evil
+deeds. Faith needs to continue in order to receive the promises. If a person has this genuine faith in Jesus then
+God justifies that person, and as they hold this faith and go through suffering, they are being sanctified to love
+in the way God wants us to love. The love of God in a person is only partial if they only love the truth that they
+have been loved by God in God having sent Jesus to die for them yet do not love their brother. The love of God is
+made complete in a person when they love others too the way God wants us to love others. That doesn't mean love
+everyone the same way, but it does mean loving people in the way God instructs without partiality. Getting cleaned
+up to love in a complete way is the process of sanctification. God gives us a new heart, a heart of flesh and then
+circumcises it to love Him with our whole heart, writing His laws on our hearts, so that we have good desires in
+our heart, love God with all our heart and live. God's work of sanctification in us happens as we have faith in
+Jesus and take every thought captive for obedience to Him. If a person has obedience in their heart then they
+willingly obey. So I make a distinction between obedience and works. The two are not the same. Desires for other
+things compete with a person's faith. So we are instructed very sound advice to persevere, to not agape love
+money, the world's possessions, etc. etc. etc. If a person [presently] rejects Jesus then they are presently
+condemned [and they need to repent]. Faith and obedience to Jesus are sanctifying (salvific) and both depend on
+having a love for the truth. Obeying sin and distrust for Jesus, etc. is destructive.
+
+  II Timothy 2:5 - An athlete is not crowned unless he competes according to the rules. (ESV)
+
+Now, if a person has faith in the word of God when reading from Hebrews 5:9 then they will believe that a person
+is saved by obeying Jesus Christ:
+
+  Hebrews 5:9 - And being made perfect, he became the source of eternal salvation to all who obey him, (ESV)
+
+And if a person has faith in the word of God when reading from Acts 16:31 then they will believe that a person is
+saved by faith in Jesus Christ:
+
+  Acts 16:31 - And they said, Believe in the Lord Jesus, and you will be saved, you and your household. (ESV)
+
+Both are true, that faith in Jesus Christ saves, and so does obedience to Jesus Christ.
+
+But faith must continue (Hebrews 10:37-39), hence why those who with faith and patience inherit the promises
+(Hebrews 6:11-18).
+
+As while this faith is being held, one must be doing the will of God (Mark 3:35) which is to abstain from worldly
+desires (I John 2:17), to do good (I Peter 2:15), to abstain from the passions of the flesh (I Peter 4:2), to give
+thanks in all circumstancs (I Thessalonians 5:18), to abstain from evil (I Thessalonians 4:3), to serve Christ
+(Ephesians 6:6):
+
+  Hebrews 10:36 - For you have need of endurance, so that when you have done the will of God you may receive what
+  is promised. (ESV)
+
+The obedience by which a Christian is saved is obedience to God (Acts 5:32) including to Jesus Christ (Hebrews
+5:8-9).
+
+And Christian obedience must be "desiring to do", "willing to do" the will of God, from love for God, and must
+continue and not rebel Hebrews 3:12-19):
+
+blueletterbible.org: G2309 - thelo - Strong's Greek Lexicon {KJV}
+To will, have in mind, intend: 1) to be resolved or determined, to purpose, 2) to desire, to wish, 3) to lovew to
+like to do a thing, be fond of doing, 4) to take delight in, have pleasure
+
+Acts 7:39 (Interlinear)
+to whom not were willing (G2309 ēthelēsan) obedient (G5255 hypēkooi) to be the fathers of us but thrust [him] away
+(G683 apōsanto) and turned back (G4762 estraphēsan) in the hearts of them to Egypt
+
+Christian obedience is to be "pursuaded by authority to follow given commands that they would do as commanded",
+heeding God's instruction, and necessitates having love for God (Psalms 81:15) in the heart (I Corinthians 13:2-3)
+and faith (Hebrews 11:8, Romans 14:23) in the heart (Romans 10:8-10):
+
+[[https://www.biblegateway.com/passage/?search=Acts%205%3A32&version=ESV][Acts 5:32]] (Interlinear)
+And we are witnesses of the things these and also the Spirit - Holy whom has given - God to those obeying (G3980
+peitharchousin; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands. 1. to be
+persuaded by a ruler; 2. {genitive case} to submit to authority; 3. {by analogy} to conform to advice) him
+
+[[https://www.biblegateway.com/passage/?search=Acts%2027%3A21&version=ESV][Acts 27:21]] (Interlinear)
+much also time without food there being at that time having stood up - Paul in midst of them said It behoved [you]
+indeed O men having been obedient (G3980 peitharchēsantas; from peitharcheó: Obedient to, to obey, to be persuaded
+by authority, to follow commands. 1. to be persuaded by a ruler; 2. {genitive case} to submit to authority; 3. {by
+analogy} to conform to advice) to me not to have set sail from - Crete to have incurred moreover the disaster this
+and the loss
+
+[[https://www.biblegateway.com/passage/?search=Titus%203%3A1&version=ESV][Titus 3:1]] (Interlinear)
+Remind them to rulers to authorities to be subject to be obedient (G3980 peitharchein; from peitharcheó: Obedient
+to, to obey, to be persuaded by authority, to follow commands. 1. to be persuaded by a ruler; 2. {genitive case}
+to submit to authority; 3. {by analogy} to conform to advice) for every work (G2041 ergon) good (G18 agathon)
+ready (G2092 hetoimous) to be (G1510 einai)
+
+[[https://www.biblegateway.com/passage/?search=Acts%205%3A29&version=ESV][Acts 5:29]] (Interlinear)
+answering moreover Peter and the apostles said To obey (G3980 Peitharchein; from peitharcheó: Obedient to, to
+obey, to be persuaded by authority, to follow commands. 1. to be persuaded by a ruler; 2. {genitive case} to
+submit to authority; 3. {by analogy} to conform to advice) it is necessary God rather than men
+
 And obedience must continue too (Romans 6:16-18, Romans 2:8) to being unburdensome (I John 5:3-5, II Corinthians
 10:5-6).
 
@@ -4469,8 +5238,16 @@ word, by faith obeying Jesus Christ, is the way in which a person is justified i
   we are in him: (ESV)
 
 Walking righteously, a person would not be inventing wicked thoughts. Rather, the righteous may, for example, be
-thinking of ways to please God with the intention of maybe doing something hoping to please God in their actions
-out of faith in God's word.
+thinking of ways to please God with the willing intention (G2309 ēthelēsan) of maybe doing something hoping to
+please God in their actions out of faith in God's word.
+
+blueletterbible.org: G2309 - thelo - Strong's Greek Lexicon {KJV}
+To will, have in mind, intend: 1) to be resolved or determined, to purpose, 2) to desire, to wish, 3) to lovew to
+like to do a thing, be fond of doing, 4) to take delight in, have pleasure
+
+Acts 7:39 (Interlinear)
+to whom not were willing (G2309 ēthelēsan) obedient (G5255 hypēkooi) to be the fathers of us but thrust [him] away
+(G683 apōsanto) and turned back (G4762 estraphēsan) in the hearts of them to Egypt
 
 But the wicked devise evil thoughts, evil plans, etc. The mind of the wicked is not by faith obeying God's word:
 
@@ -7724,6 +8501,9 @@ Him:
   Hebrews 6:11-12 - And we desire each one of you to show the same earnestness to have the full assurance of hope
   until the end, so that you may not be sluggish, but imitators of those who through faith and patience inherit
   the promises. (ESV)
+
+  Colossians 4:12 - Epaphras, who is one of you, a servant of Christ Jesus, greets you, always struggling on your
+  behalf in his prayers, that you may stand mature and fully assured in all the will of God. (ESV)
 
   III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
   has not seen God. (ESV)
@@ -142612,11 +143392,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-30 Wed 10:07
+Date: 2026-09-30 Wed 18:03
 
 Author: Shane Mulligan
 
-Created: 2026-09-30 Wed 10:14
+Created: 2026-09-30 Wed 18:43
 
 Validate
 
