@@ -760,32 +760,34 @@ Acts 7:39 (Interlinear)
 to whom not were willing (G2309 ēthelēsan) obedient (G5255 hypēkooi) to be the fathers of us but thrust [him] away
 (G683 apōsanto) and turned back (G4762 estraphēsan) in the hearts of them to Egypt
 
+G3980 Peitharchein
+From peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands.
+ 1. to be persuaded by a ruler;
+ 2. {genitive case} to submit to authority;
+ 3. {by analogy} to conform to advice)
+
 Christian obedience is to be "pursuaded by authority to follow given commands that they would do as commanded",
 heeding God's instruction, and necessitates having love for God (Psalms 81:15) in the heart (I Corinthians 13:2-3)
 and faith (Hebrews 11:8, Romans 14:23) in the heart (Romans 10:8-10):
 
-[[https://www.biblegateway.com/passage/?search=Acts%205%3A32&version=ESV][Acts 5:32]] (Interlinear)
+Acts 5:32 (Interlinear)
 And we are witnesses of the things these and also the Spirit - Holy whom has given - God to those obeying (G3980
-peitharchousin; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands. 1. to be
-persuaded by a ruler; 2. {genitive case} to submit to authority; 3. {by analogy} to conform to advice) him
+peitharchousin; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow commands) him
 
-[[https://www.biblegateway.com/passage/?search=Acts%2027%3A21&version=ESV][Acts 27:21]] (Interlinear)
+Acts 27:21 (Interlinear)
 much also time without food there being at that time having stood up - Paul in midst of them said It behoved [you]
 indeed O men having been obedient (G3980 peitharchēsantas; from peitharcheó: Obedient to, to obey, to be persuaded
-by authority, to follow commands. 1. to be persuaded by a ruler; 2. {genitive case} to submit to authority; 3. {by
-analogy} to conform to advice) to me not to have set sail from - Crete to have incurred moreover the disaster this
-and the loss
+by authority, to follow commands) to me not to have set sail from - Crete to have incurred moreover the disaster
+this and the loss
 
-[[https://www.biblegateway.com/passage/?search=Titus%203%3A1&version=ESV][Titus 3:1]] (Interlinear)
+Titus 3:1 (Interlinear)
 Remind them to rulers to authorities to be subject to be obedient (G3980 peitharchein; from peitharcheó: Obedient
-to, to obey, to be persuaded by authority, to follow commands. 1. to be persuaded by a ruler; 2. {genitive case}
-to submit to authority; 3. {by analogy} to conform to advice) for every work (G2041 ergon) good (G18 agathon)
+to, to obey, to be persuaded by authority, to follow commands for every work (G2041 ergon) good (G18 agathon)
 ready (G2092 hetoimous) to be (G1510 einai)
 
-[[https://www.biblegateway.com/passage/?search=Acts%205%3A29&version=ESV][Acts 5:29]] (Interlinear)
+Acts 5:29 (Interlinear)
 answering moreover Peter and the apostles said To obey (G3980 Peitharchein; from peitharcheó: Obedient to, to
-obey, to be persuaded by authority, to follow commands. 1. to be persuaded by a ruler; 2. {genitive case} to
-submit to authority; 3. {by analogy} to conform to advice) it is necessary God rather than men
+obey, to be persuaded by authority, to follow commands) it is necessary God rather than men
 
 And obedience must continue too (Romans 6:16-18, Romans 2:8) to being unburdensome (I John 5:3-5, II Corinthians
 10:5-6).
@@ -142685,11 +142687,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-30 Wed 18:03
+Date: 2026-09-30 Wed 20:00
 
 Author: Shane Mulligan
 
-Created: 2026-09-30 Wed 19:32
+Created: 2026-09-30 Wed 20:05
 
 Validate
 
