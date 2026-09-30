@@ -488,9 +488,28 @@ requires:
   John 17:26 - I made known to them your name, and I will continue to make it known, that the love with which you
   have loved me may be in them, and I in them. (ESV)
 
-God still uses our shortcomings and when our works appear to have not worked out from the natural. We should do
-good from the love of God and leave the justifying to God. And persevere with being wise for what is good and
-innocent as to evil, to conquer:
+Doing good, must come from a good heart, from a heart with good treasure in it (Luke 6:45). So we must treasure
+Jesus (Matthew 13:44-46, Matthew 10:37) and His word in our heart in order to produce good. God still uses our
+shortcomings (II Corinthians 12:9) and when our works appear to have not worked out from the natural (Romans 7:18)
+i.e. by been unsuccessful from external appearance:
+
+  Romans 3:20 - For by works of the law no human being will be justified in his sight, since through the law comes
+  knowledge of sin. (ESV)
+
+  (II Corinthians 5:9-12, I Samuel 16:7)
+
+  I Samuel 16:7 - But JEHOVAH said to Samuel, "Do not look on his face, or on the height of his stature; because I
+  have rejected him: for I see not as man sees; for man looks at the outward appearance, but JEHOVAH looks at the
+  heart." (NHEBJE)
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  Romans 7:18 - For I know that nothing good dwells in me, that is, in my flesh; for the willing is present in me,
+  but the working out of the good is not. (LSB)
+
+We should do good from the love of God and leave the justifying to God. And persevere with being wise for what is
+good and innocent as to evil, to conquer:
 
   Romans 8:28 - And we know that for those who love God all things work together for good, for those who are
   called according to his purpose. (ESV)
@@ -754,7 +773,7 @@ continue on, and in faith and not rebel Hebrews 3:12-19:
 
 blueletterbible.org: G2309 - thelo - Strong's Greek Lexicon {KJV}
 To will, have in mind, intend: 1. to be resolved or determined, to purpose, 2. to desire, to wish, 3. to love, to
-like to do a thing, be fond of doing, 4) to take delight in, have pleasure
+like to do a thing, be fond of doing, 4. to take delight in, have pleasure
 
 Acts 7:39 (Interlinear)
 to whom not were willing (G2309 ēthelēsan) obedient (G5255 hypēkooi) to be the fathers of us but thrust [him] away
@@ -766,9 +785,9 @@ From peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow
  2. {genitive case} to submit to authority;
  3. {by analogy} to conform to advice)
 
-Christian obedience is to be "pursuaded by authority to follow given commands that they would do as commanded",
-heeding God's instruction, and necessitates having love for God (Psalms 81:15) in the heart (I Corinthians 13:2-3)
-and faith (Hebrews 11:8, Romans 14:23) in the heart (Romans 10:8-10):
+Christian obedience is to be "pursuaded by authority to follow given commands so that they would do as commanded",
+and is "heeding God's instruction", and necessitates having "love for God" (Psalms 81:15) in the heart (I
+Corinthians 13:2-3) and faith (Hebrews 11:8, Romans 14:23) in the heart (Romans 10:8-10):
 
   Acts 5:32 - And we are witnesses to these things, and so is the Holy Spirit, whom God has given to those who
   obey (G3980 peitharchousin; from peitharcheó: Obedient to, to obey, to be persuaded by authority, to follow
@@ -807,8 +826,11 @@ obey, to be persuaded by authority, to follow commands) it is necessary God rath
 And obedience must continue too (Romans 6:16-18, Romans 2:8) to God's commandments for us being unburdensome (I
 John 5:3-5, II Corinthians 10:5-6).
 
-The person who loves Jesus is the person who loves His word (from the treasuring love of God's word) and keeps His
-commandments (have faith in Jesus Christ and love one another the way we've been commanded to):
+The person who loves Jesus is the person who loves His word (from the treasuring love of God's word) and keeps (is
+'abiding in') His commandments (so have faith in Jesus Christ and love one another the way they have been
+commanded to). The person who has faith in Jesus is abiding in Him (John 5:21-24) and does love their family in
+Christ (I John 3:13-16, I John 3:13-16), and this is to be law-abiding (Matthew 7:23, I Corinthians 8:3) to the
+law of faith (John 14:15) by faith in Christ Jesus:
 
   John 14:21-24 - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be
   loved by my Father, and I will love him and manifest myself to him. Judas (not Iscariot) said to him, Lord, how
@@ -142707,11 +142729,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-09-30 Wed 22:00
+Date: 2026-10-01 Thu 07:17
 
 Author: Shane Mulligan
 
-Created: 2026-09-30 Wed 22:08
+Created: 2026-10-01 Thu 07:29
 
 Validate
 
