@@ -62,6 +62,9 @@ us into Christ (I Corinthians 1:30) but we must remain in Him (John 15:1-6):
   whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever loves God
   must also love his brother. (ESV)
 
+  Hosea 6:6 - For I desire steadfast love and not sacrifice, the knowledge of God rather than burnt offerings.
+  (ESV)
+
   Isaiah 45:19 - I did not speak in secret, in a land of darkness; I did not say to the offspring of Jacob, Seek
   me in vain. I the LORD speak the truth; I declare what is right. (ESV)
 
@@ -116,6 +119,21 @@ We are God's friends if we love in the way He has commanded us:
   loved by my Father, and I will love him and manifest myself to him. (ESV)
 
   Proverbs 8:17 - “I love those who love me; And those who diligently seek me will find me. (NASB)
+
+youtube.com: The Gospel Before Jesus Died {@ desiringGod } @time: 10 min 31 sec
+And if we ask, "How much did various people understand in order to be saved?" Because people were saved by the
+death of Christ before the death of Christ. We know that from Romans 3:25. The best way to answer that question, I
+think, is to say people generally embraced Christ with very different levels of understanding and whether that
+initial faith was real and saving (with its imperfect understanding), whether or not it was real was proved by
+whether or not a person kept on embracing the gospel as more and more of it was revealed to them. And I think
+that's exactly the way it is today.
+
+  Luke 2:10-11 - And the angel said to them, Fear not, for behold, I bring you good news of a great joy that will
+  be for all the people. For unto you is born this day in the city of David a Savior, who is Christ the Lord.
+  (ESV)
+
+  Romans 3:25 - whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
 
 God helps us as we hold the faith:
 
@@ -429,11 +447,26 @@ and to leave the rest to Him which includes providing us with our material needs
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
 
+A person is justified by the law of faith (what is in the heart) rather than by a law of works (i.e. inclusive of
+the successful carrying out of external actions in the world):
+
+  Romans 3:27-31 - Then what becomes of our boasting? It is excluded. By what kind of law? By a law of works? No,
+  but by the law of faith. For we hold that one is justified by faith apart from works of the law. Or is God the
+  God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God is one. He will justify
+  the circumcised by faith and the uncircumcised through faith. Do we then overthrow the law by this faith? By no
+  means! On the contrary, we uphold the law. (ESV)
+
 The faith which a person is justified by is counted distinctly from (G5565 chōris) any corresponding external
-actions and distinctly from any corresponding law. This is very clearly not implying that a person doesn't have
-corresponding works (e.g. Abel's offering was done in faith), and very clearly not implying that a person does not
-seek to keep some law as they exercise their faith (Romans 14:23, Romans 9:30-32). But it's the faith which is
-counted distinctly from any corresponding external action or law:
+actions and distinctly from any corresponding law of works (Galatians 3:12). The Old Covenant Law was pursued by
+some as though it was based on works and that is the problem:
+
+  Galatians 3:12 - But the law is not of faith, rather The one who does (G4160 poiēsas; having done) them shall
+  live by them. (ESV)
+
+  Romans 9:30-32 - What shall we say, then? That Gentiles who did not pursue righteousness have attained it, that
+  is, a righteousness that is by faith; but that Israel who pursued a law that would lead to righteousness did not
+  succeed in reaching that law. Why? Because they did not pursue it by faith, but as if it were based on works.
+  They have stumbled over the stumbling stone, (ESV)
 
   Romans 3:20-25 - For by works of the law no human being will be justified in his sight, since through the law
   comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
@@ -443,13 +476,80 @@ counted distinctly from any corresponding external action or law:
   forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
   in his divine forbearance he had passed over former sins. (ESV)
 
-That is what is truly justification by faith 'alone', rather than what an antinomian / disobedient / faithless
-person might think faith alone is.
+Faith 'alone' (G3440 monon; only) which the Apostle James speaks of (James 2:22-24), is not precisely the same
+thing as faith 'apart from' (G5565 chōris) works which the Apostle Paul speaks of (Romans 4:5).
 
-Without the love of God, the love for the truth, in them, a person can't have saving faith:
+The Apostle Paul speaks of faith while "not working" (doing deeds), and so faith while "resting" (for example, in
+faith keeping the Sabbath command to rest).
 
-  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
-  Father's who sent me. (ESV)
+Even when a person is resting in faith, God is working (John 6:28-29), so long as that resting is truly done in
+faith (rather than, for example, a "sin of omission" - see James 4:17).
+
+So therefore, faith while resting from working is not alone because God still works. So it's not accurate to take
+Romans 4:5 and say this "faith without working" is faith that's alone without works.
+
+To make things confusing, people often talk about how a person is justified by "faith alone" while referring to
+Paul's writings. But Paul doesn't talk about faith alone (G3440 monon; only). Rather, Paul talks about faith
+"apart from" (G5565 chōris) works.
+
+For faith 'alone' to really be faith 'alone', it must be counted and considered distinctly from any corresponding
+"external actions".
+
+Faith "apart from" (G5565 chōris) works is what is in the heart counted distinctly from any corresponding works
+(for example, faith working through love producing good deeds while abiding in Jesus Christ), or faith "apart
+from" works would be while having "ceased" working (Romans 4:5, Romans 6:22-23; i.e. the free gift), and God still
+working (John 6:28-29). This latter state of not working, yet having faith, is important for justification, I
+believe, because given a history of evil deeds, a person must have stopped what they are doing so as for them to
+not be established by wickedness, otherwise it might be establishing one's own righteousness (Romans 10:3-11, John
+15:1-6). A person must be able to stop (Romans 3:19):
+
+  Proverbs 12:3 - No one is established by wickedness, but the root of the righteous will never be moved. (ESV)
+
+It's imperative, no matter how much we've been attempting to work for God, that we accept the free gift from God,
+and that does require at least some point at which we have rested/abstained from working while holding faith in
+Jesus Christ while ceasing from working altogether. In holding faith in Jesus while abstaining from working in a
+legitimate way (i.e. in a way that is obedient to God as opposed to abstaining from working in a way that is
+committing sin as a "sin of omission" - see James 4:17), while acknowledging their ungodliness (their sin) one
+receives the gift of righteousness.
+
+There is "faith working righteousness" (John 3:21, John 4:34, Galatians 6:7-10, John 6:27), which is a good place
+to be.
+
+There is also "love for evil working lawlessness" (John 3:20, Romans 6:22-23; i.e. the wages of sin), which a
+person must cease doing.
+
+But a third state to be in is 'faith without working' (G2038 ergazomenō; working) (Romans 4:5, Romans 6:22-23;
+i.e. the free gift). We all must receive this (Romans 11:29-33, Proverbs 12:3), even the one who works has to have
+received this (i.e. have ceased trusting in themselves that they are in themselves righteous apart from (G5565
+chōris) Jesus Christ and to have refrained from working in order to received the gift), because we must not be
+establishing a righteousness of our own which is apart from (G5565 chōris) Christ (Romans 10:3-11, John 15:1-6).
+So there must be a point at which God affirms that we have recognised our own deeds have been evil, and we need
+His mercy, and we need forgiveness and atonement for the sin incurred due to our history of evil deeds, and had
+faith in Jesus Christ while resting/abstaining from working so as to not commit sin.
+
+Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
+decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a
+person needs to have stopped working (i.e. resting, abstaining from working evil) at some point that God alone
+works (John 6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in
+Jesus Christ:
+
+  I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
+  whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
+  longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles
+  want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
+
+  This "faith apart from works" is what so-called "justification by faith 'alone'" (i.e. what the Apostle Paul
+  speaks of) is based on, I think, (Romans 3:21,9:31,10:4-10), rather than what an antinomian / disobedient /
+  faithless person might think faith alone is.
+
+  Also, this "faith apart from works" is "obedient" to the gospel of the Lord Jesus Christ. It's obedient to God
+  (Acts 5:32), and abiding by the law of faith (John 14:15) by faith in Christ Jesus, and is obeying God's gospel
+  (Romans 10:14-21).
+
+  Without the love of God, the love for the truth, in them, a person can't have saving faith:
+
+  #+BEGIN[QUOTE] John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not
+  mine but the Father's who sent me. (ESV)
 
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
@@ -621,7 +721,8 @@ Just because the Bible instructs us to do something, does not mean that it is us
 it.
 
 Indeed, even after being born-again by God's grace, we are instructed to do God's will for us, to keep His
-commandments for us:
+commandments for us, and so we must not go back into committing sin (I Corinthians 5:1-5,5:11-13, I Corinthians
+6:9-20, Hebrews 3:12-19):
 
 Polycarp 1:3
 
@@ -4492,9 +4593,9 @@ Jesus loved us first. But we must go on in love for our family in Christ to abid
   love abides in death. (ESV)
 
 Where the Bible says "people loved the darkness rather than the light because their deeds were evil", it's saying
-that these people who have evil deeds (for example, Cain) have done them from the love of evil. But people who do
-good deeds do them in love for the truth. We must be those who do their deeds from the love of the truth rather
-than from the love of evil:
+that these people who have evil deeds (for example, Cain) have done them from the love of evil (Proverbs 21:27).
+But people who do good deeds do them in love for the truth. We must be those who do their deeds from the love of
+the truth rather than from the love of evil:
 
   John 3:17-21 - For God did not send his Son into the world to condemn the world, but in order that the world
   might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned
@@ -4832,6 +4933,27 @@ Hearing the word and holding it fast in an honest and good heart, a person loves
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
+The Gospel includes:
+
+• God as Creator, King of the world
+• Jesus' Reign as King
+• God's Kingdom coming through the arrival of God's Son
+• Jesus giving his life as a ransom for sinners
+• youtube.com: The Gospel Before Jesus Died {@ desiringGod } @time: 10 min 31 sec
+">And if we ask, "How much did various people understand in order to be saved?" Because people were saved by the
+death of Christ before the death of Christ. We know that from Romans 3:25. The best way to answer that question, I
+think, is to say people generally embraced Christ with very different levels of understanding and whether that
+initial faith was real and saving (with its imperfect understanding), whether or not it was real was proved by
+whether or not a person kept on embracing the gospel as more and more of it was revealed to them. And I think
+that's exactly the way it is today.
+
+  Luke 2:10-11 - And the angel said to them, Fear not, for behold, I bring you good news of a great joy that will
+  be for all the people. For unto you is born this day in the city of David a Savior, who is Christ the Lord.
+  (ESV)
+
+  Romans 3:25 - whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
+
 Having faith in Jesus Christ a person receives forgiveness (Acts 10:41-44) and a person who is forgiven by Jesus
 must [now] love Jesus because they have been forgiven (Luke 7:40-50). Whoever is forgiven also loves the Truth,
 Jesus. If someone doesn't love Jesus then they are accursed (I Corinthians 16:22). A person who loves Jesus must
@@ -5000,6 +5122,8 @@ Cain was not doing his deeds from the love of God, but rather doing them from th
   Hebrews 11:4 - By faith Abel offered to God a more acceptable sacrifice than Cain, through which he was
   commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he
   still speaks. (ESV)
+
+  Proverbs 21:27 - The sacrifice of the wicked is abomination, Much more when in wickedness he bringeth it. (YLT)
 
 I do not believe that a Christians' faith is centered on the promise that God has given to Abraham and to his
 offspring, Christ. If someone were to make the promise given to Abraham the foundation of their own personal faith
@@ -6751,19 +6875,26 @@ the third day and has ascended into heaven":
   Mark 16:16 - Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
   (ESV)
 
-The faith which a person is justified by is counted distinctly from (G5565 chōris) any corresponding external
-actions and distinctly from any corresponding law. This is very clearly not implying that a person doesn't have
-corresponding works (e.g. Abel's offering was done in faith), and very clearly not implying that a person does not
-seek to keep some law as they exercise their faith. But it's the faith which is counted distinctly from any
-corresponding external action or law:
+A person is justified by the law of faith (what is in the heart) rather than by a law of works (i.e. inclusive of
+the successful carrying out of external actions in the world):
 
-  Romans 3:20-25 - For by works of the law no human being will be justified in his sight, since through the law
-  comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
-  (G3551 nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in
-  Jesus Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory
-  of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put
-  forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
-  in his divine forbearance he had passed over former sins. (ESV)
+  Romans 3:27-31 - Then what becomes of our boasting? It is excluded. By what kind of law? By a law of works? No,
+  but by the law of faith. For we hold that one is justified by faith apart from works of the law. Or is God the
+  God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God is one. He will justify
+  the circumcised by faith and the uncircumcised through faith. Do we then overthrow the law by this faith? By no
+  means! On the contrary, we uphold the law. (ESV)
+
+The faith which a person is justified by is counted distinctly from (G5565 chōris) any corresponding external
+actions and distinctly from any corresponding law of works (Galatians 3:12). The Old Covenant Law was pursued by
+some as though it was based on works and that is the problem:
+
+  Galatians 3:12 - But the law is not of faith, rather The one who does (G4160 poiēsas; having done) them shall
+  live by them. (ESV)
+
+  Romans 9:30-32 - What shall we say, then? That Gentiles who did not pursue righteousness have attained it, that
+  is, a righteousness that is by faith; but that Israel who pursued a law that would lead to righteousness did not
+  succeed in reaching that law. Why? Because they did not pursue it by faith, but as if it were based on works.
+  They have stumbled over the stumbling stone, (ESV)
 
 So, for example, we should never 'rely' merely (Mark 16:15-16) on "having been baptised" (Acts 8:13-23) or on
 merely, say, being physically circumcised (Galatians 5:1-7). But we must have a circumcised heart (Romans 2:29).
@@ -11234,6 +11365,9 @@ cheat (Genesis 14:21-24). He was a doer in reality (John 8:37-45).
   Proverbs 16:6 - By steadfast love and faithfulness iniquity is atoned for, and by the fear of the LORD one turns
   away from evil. (ESV)
 
+  Hosea 6:6 - For I desire steadfast love and not sacrifice, the knowledge of God rather than burnt offerings.
+  (ESV)
+
   Psalms 78:37 - Their heart was not steadfast toward him; they were not faithful to his covenant. (ESV)
 
   I Corinthians 10:6,11 - Now these things took place as examples for us, that we might not desire evil as they
@@ -14099,6 +14233,9 @@ God has made the "first move":
   love, not that we have loved God but that he loved us and sent his Son to be the propitiation for our sins.
   (ESV)
 
+  Hosea 6:6 - For I desire steadfast love and not sacrifice, the knowledge of God rather than burnt offerings.
+  (ESV)
+
 In God's unconditional love He has paid the price for us to be saved from sin and death and hell. John 3:16 is not
 only saying that God has done what is needed for our sins to be forgiven, but is also saying that Jesus has come
 into the world as light so we can even turn away from darkness and towards light. Whoever stops following darkness
@@ -16710,6 +16847,8 @@ As Christians we endeavour to be justified in Christ as we trust and obey Him:
   commended as righteous, God commending him by accepting his gifts. And through his faith, though he died, he
   still speaks. (ESV)
 
+  Proverbs 21:27 - The sacrifice of the wicked is abomination, Much more when in wickedness he bringeth it. (YLT)
+
 As we seek God in faith (Hebrews 11:6) we should do so with a heart that loves Jesus Christ:
 
   I Timothy 6:9-10 - But those who desire to be rich fall into temptation, into a snare, into many senseless and
@@ -18286,6 +18425,9 @@ Knowing God involves loving the truth and loving the truth as God has commanded:
   him. (ESV)
 
   I John 4:8 - Anyone who does not love does not know God, because God is love. (ESV)
+
+  Hosea 6:6 - For I desire steadfast love and not sacrifice, the knowledge of God rather than burnt offerings.
+  (ESV)
 
   I John 4:19-21 - We love because he first loved us. If anyone says, I love God, and hates his brother, he is a
   liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this
@@ -21692,7 +21834,14 @@ justified by faith has a faith that doesn't feign obedience:
 
 We must not be those who rely on being able to execute perfect deeds because then we'd be "under the law". It's
 not on the basis of works that a person can have the righteous that is through faith in Jesus Christ. It's not on
-the basis of works. It's on the basis of faith. Remember that faith to works is like spirit to body:
+the basis of works. It's on the basis of faith. Remember that faith (what's in the heart) to works (external
+actions done with the flesh from the heart) is like spirit to body (flesh):
+
+  Galatians 3:2-6 - Let me ask you only this: Did you receive the Spirit by works of the law or by hearing with
+  faith? Are you so foolish? Having begun by the Spirit, are you now being perfected by the flesh? Did you suffer
+  so many things in vain—if indeed it was in vain? Does he who supplies the Spirit to you and works miracles among
+  you do so by works of the law, or by hearing with faith— just as Abraham believed God, and it was counted to him
+  as righteousness? (ESV)
 
   Galatians 3:10 - For as many as are of the works of the Law are under a curse; for it is written, “Cursed is
   everyone who does not abide by all things written in the book of the law, to perform them.” (NASB)
@@ -32799,6 +32948,21 @@ not even like this publican back here who's so bad.
 
 I'm not the one to condemn but Jesus' word will judge on the last day the one who rejects Jesus' words. I believe
 we must be corrected by the Truth, as it is revealed to us through God's Word as we are walking by the Spirit.
+
+youtube.com: The Gospel Before Jesus Died {@ desiringGod } @time: 10 min 31 sec
+And if we ask, "How much did various people understand in order to be saved?" Because people were saved by the
+death of Christ before the death of Christ. We know that from Romans 3:25. The best way to answer that question, I
+think, is to say people generally embraced Christ with very different levels of understanding and whether that
+initial faith was real and saving (with its imperfect understanding), whether or not it was real was proved by
+whether or not a person kept on embracing the gospel as more and more of it was revealed to them. And I think
+that's exactly the way it is today.
+
+  Luke 2:10-11 - And the angel said to them, Fear not, for behold, I bring you good news of a great joy that will
+  be for all the people. For unto you is born this day in the city of David a Savior, who is Christ the Lord.
+  (ESV)
+
+  Romans 3:25 - whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
 
 This quite clearly shows that the Truth is Jesus Christ is Almighty God and God is Father, Son (Jesus Christ, His
 Eternal Word, made flesh) and Holy Spirit:
@@ -44643,6 +44807,9 @@ to know Him:
   I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
   know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
+  Hosea 6:6 - For I desire steadfast love and not sacrifice, the knowledge of God rather than burnt offerings.
+  (ESV)
+
 We must live in the spirit the way God does, not for human passions, but for the will of God:
 
   I Peter 4:1-6 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
@@ -55451,6 +55618,27 @@ youtube.com: Everlasting God
   destitute. Rescue the weak and the needy; deliver them from the hand of the wicked. (ESV)
 
 3.22.4. The free gift is God - God is the Gospel
+
+The Gospel includes:
+
+• God as Creator, King of the world
+• Jesus' Reign as King
+• God's Kingdom coming through the arrival of God's Son
+• Jesus giving his life as a ransom for sinners
+• youtube.com: The Gospel Before Jesus Died {@ desiringGod } @time: 10 min 31 sec
+">And if we ask, "How much did various people understand in order to be saved?" Because people were saved by the
+death of Christ before the death of Christ. We know that from Romans 3:25. The best way to answer that question, I
+think, is to say people generally embraced Christ with very different levels of understanding and whether that
+initial faith was real and saving (with its imperfect understanding), whether or not it was real was proved by
+whether or not a person kept on embracing the gospel as more and more of it was revealed to them. And I think
+that's exactly the way it is today.
+
+  Luke 2:10-11 - And the angel said to them, Fear not, for behold, I bring you good news of a great joy that will
+  be for all the people. For unto you is born this day in the city of David a Savior, who is Christ the Lord.
+  (ESV)
+
+  Romans 3:25 - whom God put forward as a propitiation by his blood, to be received by faith. This was to show
+  God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
 
 We get out of the way everything that is an obstacle to enjoying God when we are forgiven. AMEN:
 
@@ -82049,11 +82237,31 @@ and to leave the rest to Him which includes providing us with our material needs
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
 
+A person is justified by the law of faith (what is in the heart) rather than by a law of works (i.e. inclusive of
+the successful carrying out of external actions in the world):
+
+  Romans 3:27-31 - Then what becomes of our boasting? It is excluded. By what kind of law? By a law of works? No,
+  but by the law of faith. For we hold that one is justified by faith apart from works of the law. Or is God the
+  God of Jews only? Is he not the God of Gentiles also? Yes, of Gentiles also, since God is one. He will justify
+  the circumcised by faith and the uncircumcised through faith. Do we then overthrow the law by this faith? By no
+  means! On the contrary, we uphold the law. (ESV)
+
 The faith which a person is justified by is counted distinctly from (G5565 chōris) any corresponding external
-actions and distinctly from any corresponding law. This is very clearly not implying that a person doesn't have
-corresponding works (e.g. Abel's offering was done in faith), and very clearly not implying that a person does not
-seek to keep some law as they exercise their faith (Romans 14:23, Romans 9:30-32). But it's the faith which is
-counted distinctly from any corresponding external action or law:
+actions and distinctly from any corresponding law of works (Galatians 3:12). The Old Covenant Law was pursued by
+some as though it was based on works and that is the problem:
+
+  Galatians 3:12 - But the law is not of faith, rather The one who does (G4160 poiēsas; having done) them shall
+  live by them. (ESV)
+
+  Romans 9:30-32 - What shall we say, then? That Gentiles who did not pursue righteousness have attained it, that
+  is, a righteousness that is by faith; but that Israel who pursued a law that would lead to righteousness did not
+  succeed in reaching that law. Why? Because they did not pursue it by faith, but as if it were based on works.
+  They have stumbled over the stumbling stone, (ESV)
+
+This is very clearly not implying that a person doesn't have corresponding works (e.g. Abel's offering was done in
+faith), and very clearly not implying that a person does not seek to keep some law as they exercise their faith
+(Romans 14:23, Romans 9:30-32). But it's the faith which is counted distinctly from any corresponding external
+action or law:
 
   Romans 3:20-25 - For by works of the law no human being will be justified in his sight, since through the law
   comes knowledge of sin. But now the righteousness of God has been manifested apart from (G5565 chōris) the law
@@ -82063,13 +82271,80 @@ counted distinctly from any corresponding external action or law:
   forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because
   in his divine forbearance he had passed over former sins. (ESV)
 
-That is what is truly justification by faith 'alone', rather than what an antinomian / disobedient / faithless
-person might think faith alone is.
+Faith 'alone' (G3440 monon; only) which the Apostle James speaks of (James 2:22-24), is not precisely the same
+thing as faith 'apart from' (G5565 chōris) works which the Apostle Paul speaks of (Romans 4:5).
 
-Without the love of God, the love for the truth, in them, a person can't have saving faith:
+The Apostle Paul speaks of faith while "not working" (doing deeds), and so faith while "resting" (for example, in
+faith keeping the Sabbath command to rest).
 
-  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
-  Father's who sent me. (ESV)
+Even when a person is resting in faith, God is working (John 6:28-29), so long as that resting is truly done in
+faith (rather than, for example, a "sin of omission" - see James 4:17).
+
+So therefore, faith while resting from working is not alone because God still works. So it's not accurate to take
+Romans 4:5 and say this "faith without working" is faith that's alone without works.
+
+To make things confusing, people often talk about how a person is justified by "faith alone" while referring to
+Paul's writings. But Paul doesn't talk about faith alone (G3440 monon; only). Rather, Paul talks about faith
+"apart from" (G5565 chōris) works.
+
+For faith 'alone' to really be faith 'alone', it must be counted and considered distinctly from any corresponding
+"external actions".
+
+Faith "apart from" (G5565 chōris) works is what is in the heart counted distinctly from any corresponding works
+(for example, faith working through love producing good deeds while abiding in Jesus Christ), or faith "apart
+from" works would be while having "ceased" working (Romans 4:5, Romans 6:22-23; i.e. the free gift), and God still
+working (John 6:28-29). This latter state of not working, yet having faith, is important for justification, I
+believe, because given a history of evil deeds, a person must have stopped what they are doing so as for them to
+not be established by wickedness, otherwise it might be establishing one's own righteousness (Romans 10:3-11, John
+15:1-6). A person must be able to stop (Romans 3:19):
+
+  Proverbs 12:3 - No one is established by wickedness, but the root of the righteous will never be moved. (ESV)
+
+It's imperative, no matter how much we've been attempting to work for God, that we accept the free gift from God,
+and that does require at least some point at which we have rested/abstained from working while holding faith in
+Jesus Christ while ceasing from working altogether. In holding faith in Jesus while abstaining from working in a
+legitimate way (i.e. in a way that is obedient to God as opposed to abstaining from working in a way that is
+committing sin as a "sin of omission" - see James 4:17), while acknowledging their ungodliness (their sin) one
+receives the gift of righteousness.
+
+There is "faith working righteousness" (John 3:21, John 4:34, Galatians 6:7-10, John 6:27), which is a good place
+to be.
+
+There is also "love for evil working lawlessness" (John 3:20, Romans 6:22-23; i.e. the wages of sin), which a
+person must cease doing.
+
+But a third state to be in is 'faith without working' (G2038 ergazomenō; working) (Romans 4:5, Romans 6:22-23;
+i.e. the free gift). We all must receive this (Romans 11:29-33, Proverbs 12:3), even the one who works has to have
+received this (i.e. have ceased trusting in themselves that they are in themselves righteous apart from (G5565
+chōris) Jesus Christ and to have refrained from working in order to received the gift), because we must not be
+establishing a righteousness of our own which is apart from (G5565 chōris) Christ (Romans 10:3-11, John 15:1-6).
+So there must be a point at which God affirms that we have recognised our own deeds have been evil, and we need
+His mercy, and we need forgiveness and atonement for the sin incurred due to our history of evil deeds, and had
+faith in Jesus Christ while resting/abstaining from working so as to not commit sin.
+
+Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
+decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a
+person needs to have stopped working (i.e. resting, abstaining from working evil) at some point that God alone
+works (John 6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in
+Jesus Christ:
+
+  I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
+  whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
+  longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles
+  want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
+
+  This "faith apart from works" is what so-called "justification by faith 'alone'" (i.e. what the Apostle Paul
+  speaks of) is based on, I think, (Romans 3:21,9:31,10:4-10), rather than what an antinomian / disobedient /
+  faithless person might think faith alone is.
+
+  Also, this "faith apart from works" is "obedient" to the gospel of the Lord Jesus Christ. It's obedient to God
+  (Acts 5:32), and abiding by the law of faith (John 14:15) by faith in Christ Jesus, and is obeying God's gospel
+  (Romans 10:14-21).
+
+  Without the love of God, the love for the truth, in them, a person can't have saving faith:
+
+  #+BEGIN[QUOTE] John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not
+  mine but the Father's who sent me. (ESV)
 
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
@@ -142730,11 +143005,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-01 Thu 07:17
+Date: 2026-10-02 Fri 09:28
 
 Author: Shane Mulligan
 
-Created: 2026-10-01 Thu 08:04
+Created: 2026-10-02 Fri 10:59
 
 Validate
 
