@@ -492,9 +492,6 @@ To make things confusing, people often talk about how a person is justified by "
 Paul's writings. But Paul doesn't talk about faith alone (G3440 monon; only). Rather, Paul talks about faith
 "apart from" (G5565 chōris) works.
 
-For faith 'alone' to really be faith 'alone', it must be counted and considered distinctly from any corresponding
-"external actions".
-
 Faith "apart from" (G5565 chōris) works is what is in the heart counted distinctly from any corresponding works
 (for example, faith working through love producing good deeds while abiding in Jesus Christ), or faith "apart
 from" works would be while having "ceased" working (Romans 4:5, Romans 6:22-23; i.e. the free gift), and God still
@@ -528,28 +525,45 @@ His mercy, and we need forgiveness and atonement for the sin incurred due to our
 faith in Jesus Christ while resting/abstaining from working so as to not commit sin.
 
 Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
-decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a
-person needs to have stopped working (i.e. resting, abstaining from working evil) at some point that God alone
-works (John 6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in
-Jesus Christ:
+decide, "I will not steal" is to decide to "not work lawlessness".
+
+Keeping a commandment to "not do" something (such as to "not steal") does not mean "working".
+
+And a cessation from working alongside the faith described in Romans 4:5 is necessary to receive the blessing of
+forgiveness for past sins (Romans 4:6-8).
+
+For a person to be justified by 'faith alone' as some people affirm (not of our own works)a person needs to have
+actually stopped working (i.e. resting, abstaining from working evil) at some point that God alone works (John
+6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in Jesus Christ.
+In other words, if somebody is saying to others "I'm justified by faith alone, not my own work, but Jesus' works
+only" while they are themselves actually "deeding" (rather than resting), or if they are still doing evil deeds
+(lying, stealing, lusting, etc.) , then that goes against Romans 4:5. A person has to have stopped working in
+actuality, while still holding faith, so doing so obediently, not resting, say, with a sin of omission:
 
   I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
   whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
   longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles
   want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
 
-  This "faith apart from works" is what so-called "justification by faith 'alone'" (i.e. what the Apostle Paul
-  speaks of) is based on, I think, (Romans 3:21,9:31,10:4-10), rather than what an antinomian / disobedient /
-  faithless person might think faith alone is.
+This "faith apart from works" is what so-called "justification by faith 'alone'" (i.e. what the Apostle Paul
+speaks of) is based on, I think, (Romans 3:21,9:31,10:4-10), rather than what an antinomian / disobedient /
+faithless person might think faith alone is.
 
-  Also, this "faith apart from works" is "obedient" to the gospel of the Lord Jesus Christ. It's obedient to God
-  (Acts 5:32), and abiding by the law of faith (John 14:15) by faith in Christ Jesus, and is obeying God's gospel
-  (Romans 10:14-21).
+Also, this "faith apart from works" is "obedient" to the gospel of the Lord Jesus Christ. It's obedient to God
+(Acts 5:32), and abiding by the law of faith (John 14:15) by faith in Christ Jesus, and is obeying God's gospel
+(Romans 10:14-21).
 
-  Without the love of God, the love for the truth, in them, a person can't have saving faith:
+If someone were to command another to "go to sleep" or to "rest", and they obeyed, then in obeying they have not
+"worked", yet they have still obeyed. So "working" and "obeying" are different words meaning different things and
+should not be confused:
 
-  #+BEGIN[QUOTE] John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not
-  mine but the Father's who sent me. (ESV)
+  John 9:4 - We must work the works of him who sent me while it is day; night is coming, when no one can work.
+  (ESV)
+
+Without the love of God, the love for the truth, in them, a person can't have saving faith:
+
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
 
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
@@ -1541,9 +1555,20 @@ Yet even resting in faith, God is working through them, because the person still
   is the work of God, that you believe (G4100 pisteuo) in him whom he has sent. (ESV)
 
 Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
-decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a
-person needs to have stopped working (i.e. resting, abstaining from working evil) at some point that God alone
-works (John 6:28-29) in them:
+decide, "I will not steal" is to decide to "not work lawlessness".
+
+Keeping a commandment to "not do" something (such as to "not steal") does not mean "working".
+
+And a cessation from working alongside the faith described in Romans 4:5 is necessary to receive the blessing of
+forgiveness for past sins (Romans 4:6-8).
+
+For a person to be justified by 'faith alone' as some people affirm (not of our own works)a person needs to have
+actually stopped working (i.e. resting, abstaining from working evil) at some point that God alone works (John
+6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in Jesus Christ.
+In other words, if somebody is saying to others "I'm justified by faith alone, not my own work, but Jesus' works
+only" while they are themselves actually "deeding" (rather than resting), or if they are still doing evil deeds
+(lying, stealing, lusting, etc.) , then that goes against Romans 4:5. A person has to have stopped working in
+actuality, while still holding faith, so doing so obediently, not resting, say, with a sin of omission:
 
   I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
   whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
@@ -6529,10 +6554,17 @@ means that there is an "alien" righteousness that a person can have by faith in 
 Christ. I think of it a bit like a "pointer" in computer programming. That faith is not a hatred of Jesus Christ,
 but is a love for Jesus Christ.
 
+  Galatians 2:16 - having known also that a man is not declared righteous by works of law, if not through the
+  faith of Jesus Christ, also we in Christ Jesus did believe, that we might be declared righteous by the faith of
+  Christ, and not by works of law, wherefore declared righteous by works of law shall be no flesh.' (YLT)
+
 We "pursue" Jesus:
 
   II Timothy 2:22 - So flee youthful passions and pursue righteousness, faith, love, and peace, along with those
   who call on the Lord from a pure heart. (ESV)
+
+  Galatians 2:17 - And if, seeking to be declared righteous in Christ, we ourselves also were found sinners, is
+  then Christ a ministrant of sin? let it not be! (YLT)
 
 Why does a person decide to keep Jesus' commandments? It should be out of a loving faith in God, loving
 righteousness, and the only way to actually keep His commandments commendably is for them to be done out of faith
@@ -81688,9 +81720,20 @@ Even for when we were with you this we were commanding you that if anyone not (G
 to work (G2038 ergazesthai) neither let him eat
 
 Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
-decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a
-person needs to have stopped working (i.e. resting, abstaining from working evil) at some point that God alone
-works (John 6:28-29) in them:
+decide, "I will not steal" is to decide to "not work lawlessness".
+
+Keeping a commandment to "not do" something (such as to "not steal") does not mean "working".
+
+And a cessation from working alongside the faith described in Romans 4:5 is necessary to receive the blessing of
+forgiveness for past sins (Romans 4:6-8).
+
+For a person to be justified by 'faith alone' as some people affirm (not of our own works)a person needs to have
+actually stopped working (i.e. resting, abstaining from working evil) at some point that God alone works (John
+6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in Jesus Christ.
+In other words, if somebody is saying to others "I'm justified by faith alone, not my own work, but Jesus' works
+only" while they are themselves actually "deeding" (rather than resting), or if they are still doing evil deeds
+(lying, stealing, lusting, etc.) , then that goes against Romans 4:5. A person has to have stopped working in
+actuality, while still holding faith, so doing so obediently, not resting, say, with a sin of omission:
 
   I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
   whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
@@ -82287,9 +82330,6 @@ To make things confusing, people often talk about how a person is justified by "
 Paul's writings. But Paul doesn't talk about faith alone (G3440 monon; only). Rather, Paul talks about faith
 "apart from" (G5565 chōris) works.
 
-For faith 'alone' to really be faith 'alone', it must be counted and considered distinctly from any corresponding
-"external actions".
-
 Faith "apart from" (G5565 chōris) works is what is in the heart counted distinctly from any corresponding works
 (for example, faith working through love producing good deeds while abiding in Jesus Christ), or faith "apart
 from" works would be while having "ceased" working (Romans 4:5, Romans 6:22-23; i.e. the free gift), and God still
@@ -82323,28 +82363,45 @@ His mercy, and we need forgiveness and atonement for the sin incurred due to our
 faith in Jesus Christ while resting/abstaining from working so as to not commit sin.
 
 Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
-decide, "I will not steal" is to decide to "not work lawlessness". For "faith 'alone'" to really be faith alone, a
-person needs to have stopped working (i.e. resting, abstaining from working evil) at some point that God alone
-works (John 6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in
-Jesus Christ:
+decide, "I will not steal" is to decide to "not work lawlessness".
+
+Keeping a commandment to "not do" something (such as to "not steal") does not mean "working".
+
+And a cessation from working alongside the faith described in Romans 4:5 is necessary to receive the blessing of
+forgiveness for past sins (Romans 4:6-8).
+
+For a person to be justified by 'faith alone' as some people affirm (not of our own works)a person needs to have
+actually stopped working (i.e. resting, abstaining from working evil) at some point that God alone works (John
+6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in Jesus Christ.
+In other words, if somebody is saying to others "I'm justified by faith alone, not my own work, but Jesus' works
+only" while they are themselves actually "deeding" (rather than resting), or if they are still doing evil deeds
+(lying, stealing, lusting, etc.) , then that goes against Romans 4:5. A person has to have stopped working in
+actuality, while still holding faith, so doing so obediently, not resting, say, with a sin of omission:
 
   I Peter 4:1-3 - Since therefore Christ suffered in the flesh, arm yourselves with the same way of thinking, for
   whoever has suffered in the flesh has ceased from sin, so as to live for the rest of the time in the flesh no
   longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles
   want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
 
-  This "faith apart from works" is what so-called "justification by faith 'alone'" (i.e. what the Apostle Paul
-  speaks of) is based on, I think, (Romans 3:21,9:31,10:4-10), rather than what an antinomian / disobedient /
-  faithless person might think faith alone is.
+This "faith apart from works" is what so-called "justification by faith 'alone'" (i.e. what the Apostle Paul
+speaks of) is based on, I think, (Romans 3:21,9:31,10:4-10), rather than what an antinomian / disobedient /
+faithless person might think faith alone is.
 
-  Also, this "faith apart from works" is "obedient" to the gospel of the Lord Jesus Christ. It's obedient to God
-  (Acts 5:32), and abiding by the law of faith (John 14:15) by faith in Christ Jesus, and is obeying God's gospel
-  (Romans 10:14-21).
+Also, this "faith apart from works" is "obedient" to the gospel of the Lord Jesus Christ. It's obedient to God
+(Acts 5:32), and abiding by the law of faith (John 14:15) by faith in Christ Jesus, and is obeying God's gospel
+(Romans 10:14-21).
 
-  Without the love of God, the love for the truth, in them, a person can't have saving faith:
+If someone were to command another to "go to sleep" or to "rest", and they obeyed, then in obeying they have not
+"worked", yet they have still obeyed. So "working" and "obeying" are different words meaning different things and
+should not be confused:
 
-  #+BEGIN[QUOTE] John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not
-  mine but the Father's who sent me. (ESV)
+  John 9:4 - We must work the works of him who sent me while it is day; night is coming, when no one can work.
+  (ESV)
+
+Without the love of God, the love for the truth, in them, a person can't have saving faith:
+
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
 
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
@@ -116270,6 +116327,13 @@ unthankfulness:
 
 There is only the one gospel message: the same gospel that Paul, Jesus, Peter and John preached.
 
+  Galatians 1:6-7 - I am astonished that you are so quickly deserting him who called you in the grace of Christ
+  and are turning to a different gospel— not that there is another one, but there are some who trouble you and
+  want to distort the gospel of Christ. (ESV)
+
+  Mark 1:14-15 - Now after John was arrested, Jesus came into Galilee, proclaiming the gospel of God, and saying,
+  The time is fulfilled, and the kingdom of God is at hand; repent and believe in the gospel. (ESV)
+
 Paul preached the same gospel as Jesus before His crucifixion, and the same gospel that Peter and John preached,
 but some people think Paul's gospel is different - but that is because they have been deceived by the two-gospel
 heresy:
@@ -143009,7 +143073,7 @@ Date: 2026-10-02 Fri 09:28
 
 Author: Shane Mulligan
 
-Created: 2026-10-02 Fri 10:59
+Created: 2026-10-02 Fri 12:35
 
 Validate
 
