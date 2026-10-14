@@ -532,7 +532,7 @@ Keeping a commandment to "not do" something (such as to "not steal") does not me
 And a cessation from working alongside the faith described in Romans 4:5 is necessary to receive the blessing of
 forgiveness for past sins (Romans 4:6-8).
 
-For a person to be justified by 'faith alone' as some people affirm (not of our own works)a person needs to have
+For a person to be justified by 'faith alone' as some people affirm (not of our own works) person needs to have
 actually stopped working (i.e. resting, abstaining from working evil) at some point that God alone works (John
 6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in Jesus Christ.
 In other words, if somebody is saying to others "I'm justified by faith alone, not my own work, but Jesus' works
@@ -658,6 +658,14 @@ good and innocent as to evil, to conquer:
   thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be
   overcome by evil, but overcome evil with good. (ESV)
 
+  II Peter 2:19-22 - They promise them freedom, but they themselves are slaves of corruption. For whatever
+  overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through
+  the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state
+  has become worse for them than the first. For it would have been better for them never to have known the way of
+  righteousness than after knowing it to turn back from the holy commandment delivered to them. What the true
+  proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns
+  to wallow in the mire. (ESV)
+
 By faith, in obedience to Jesus Christ we are to overcome evil with good loving as Father God loves:
 
   Hebrews 12:4-8 - In your struggle against sin you have not yet resisted to the point of shedding your blood. And
@@ -767,7 +775,9 @@ Am I allowed to marry a believing (holding faith in Jesus Christ) wife? Accordin
 think so (I Corinthians 9:5-9), but not whoever I want as a wife is a gift from God (I Corinthians 7:7) and they
 are given (Matthew 22:30). But even if I think that I am allowed to marry at all, that doesn't mean I would. I
 feel like my situation is very highly strung, so I wouldn't marry in my present state I think, and certainly not
-without reliable (I John 4:1-3) instruction (Matthew 1:20) from God:
+without reliable (I John 4:1-3) instruction (Matthew 1:20) from God. For it to be done in God's timing is
+important, I think, if it ever were to be. For something to be done in God's timing, I think it has to be done in
+faith and obedience:
 
   II Timothy 2:11-18 - The saying is trustworthy, for: If we have died with him, we will also live with him; if we
   endure, we will also reign with him; if we deny him, he also will deny us; if we are faithless, he remains
@@ -844,15 +854,16 @@ in the way God wants us to love. The love of God in a person is only partial if 
 have been loved by God in God having sent Jesus to die for them yet do not love their brother. The love of God is
 made complete in a person when they love others too the way God wants us to love others. That doesn't mean love
 everyone the same way, but it does mean loving people in the way God instructs without partiality. Getting cleaned
-up to love in a complete way is the process of sanctification. God gives us a new heart, a heart of flesh and then
-circumcises it to love Him with our whole heart, writing His laws on our hearts, so that we have good desires in
-our heart, love God with all our heart and live. God's work of sanctification in us happens as we have faith in
-Jesus and take every thought captive for obedience to Him. If a person has obedience in their heart then they
-willingly obey. So I make a distinction between obedience and works. The two are not the same. Desires for other
-things compete with a person's faith. So we are instructed very sound advice to persevere, to not agape love
-money, the world's possessions, etc. etc. etc. If a person [presently] rejects Jesus then they are presently
-condemned [and they need to repent]. Faith and obedience to Jesus are sanctifying (salvific) and both depend on
-having a love for the truth. Obeying sin and distrust for Jesus, etc. is destructive.
+up to love in a complete way is the process of sanctification, and of course that does involve abstaining from
+committing sin (Romans 13:8-10). God gives us a new heart, a heart of flesh and then circumcises it to love Him
+with our whole heart, writing His laws on our hearts, so that we have good desires in our heart, love God with all
+our heart and live. God's work of sanctification in us happens as we have faith in Jesus and take every thought
+captive for obedience to Him. If a person has obedience in their heart then they willingly obey. So I make a
+distinction between obedience and works. The two are not the same. Desires for other things compete with a
+person's faith. So we are instructed very sound advice to persevere, to not agape love money, the world's
+possessions, etc. etc. etc. If a person [presently] rejects Jesus then they are presently condemned [and they need
+to repent]. Faith and obedience to Jesus are sanctifying (salvific) and both depend on having a love for the
+truth. Obeying sin and distrust for Jesus, etc. is destructive.
 
   II Timothy 2:5 - An athlete is not crowned unless he competes according to the rules. (ESV)
 
@@ -977,6 +988,10 @@ self-commending, but commendation is dispensed by God as a Sovereign Person who 
   II Corinthians 10:18 - For it is not the one who commends himself who is approved, but the one whom the Lord
   commends. (ESV)
 
+  I Corinthians 4:3-4 - But to me it is a very small thing that I may be examined by you, or by any human court;
+  in fact, I do not even examine myself. For I am conscious of nothing against myself, yet I am not by this
+  acquitted; but the one who examines me is the Lord. (NASB)
+
 If it were not so, then one might go to the book of the law as some kind of checklist for commending oneself.
 There's nothing wrong with having confidence after having self-examined to see if one is sound in the faith, based
 on what the Bible says about having faith in Jesus. And there is nothing wrong with sharing with others the way
@@ -1045,6 +1060,10 @@ Christ, seeking to please Father God who sees everything:
 
   Jeremiah 23:24 - Can a man hide himself in secret places so that I cannot see him? declares the LORD. Do I not
   fill heaven and earth? declares the LORD. (ESV)
+
+  I Corinthians 4:3-4 - But to me it is a very small thing that I may be examined by you, or by any human court;
+  in fact, I do not even examine myself. For I am conscious of nothing against myself, yet I am not by this
+  acquitted; but the one who examines me is the Lord. (NASB)
 
   Luke 6:46-49 - Why do you call me Lord, Lord, and not do what I tell you? Everyone who comes to me and hears my
   words and does them, I will show you what he is like: he is like a man building a house, who dug deep and laid
@@ -1563,6 +1582,10 @@ Yet why would a person stop deeding if they had the faith to proceed?
   life or to destroy it? And after looking around at them all he said to him, Stretch out your hand. And he did
   so, and his hand was restored. (ESV)
 
+  I Corinthians 4:3-4 - But to me it is a very small thing that I may be examined by you, or by any human court;
+  in fact, I do not even examine myself. For I am conscious of nothing against myself, yet I am not by this
+  acquitted; but the one who examines me is the Lord. (NASB)
+
   Galatians 6:7-10 - Do not be deceived: God is not mocked, for whatever one sows, that will he also reap. For the
   one who sows to his own flesh will from the flesh reap corruption, but the one who sows to the Spirit will from
   the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
@@ -1585,7 +1608,7 @@ Keeping a commandment to "not do" something (such as to "not steal") does not me
 And a cessation from working alongside the faith described in Romans 4:5 is necessary to receive the blessing of
 forgiveness for past sins (Romans 4:6-8).
 
-For a person to be justified by 'faith alone' as some people affirm (not of our own works)a person needs to have
+For a person to be justified by 'faith alone' as some people affirm (not of our own works) person needs to have
 actually stopped working (i.e. resting, abstaining from working evil) at some point that God alone works (John
 6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in Jesus Christ.
 In other words, if somebody is saying to others "I'm justified by faith alone, not my own work, but Jesus' works
@@ -1654,6 +1677,30 @@ Whatever does not proceed from faith is sin which is lawlessness:
 
   Hebrews 11:6 - And without faith it is impossible to please him, for whoever would draw near to God must believe
   that he exists and that he rewards those who seek him. (ESV)
+
+Whether we are resting or working, we need to still go on abstaining from evil, getting sanctified:
+
+  I Corinthians 15:34 - Wake up from your drunken stupor, as is right, and do not go on sinning. For some have no
+  knowledge of God. I say this to your shame. (ESV)
+
+  I John 3:6 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known
+  him. (ESV)
+
+  II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
+  body and spirit, bringing holiness to completion in the fear of God. (ESV)
+
+  Hebrews 12:1-6 - Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside
+  every weight, and sin which clings so closely, and let us run with endurance the race that is set before us,
+  looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the
+  cross, despising the shame, and is seated at the right hand of the throne of God. Consider him who endured from
+  sinners such hostility against himself, so that you may not grow weary or fainthearted. In your struggle against
+  sin you have not yet resisted to the point of shedding your blood. And have you forgotten the exhortation that
+  addresses you as sons? My son, do not regard lightly the discipline of the Lord, nor be weary when reproved by
+  him. For the Lord disciplines the one he loves, and chastises every son whom he receives. (ESV)
+
+  I Thessalonians 5:22-24 - Abstain from every form of evil. Now may the God of peace himself sanctify you
+  completely, and may your whole spirit and soul and body be kept blameless at the coming of our Lord Jesus
+  Christ. He who calls you is faithful; he will surely do it. (ESV)
 
 Walking in the light involves loving the brothers:
 
@@ -1850,6 +1897,11 @@ It's possible to have sin/defilement while having faith:
   to do right, evil lies close at hand. For I delight in the law of God, in my inner being, but I see in my
   members another law waging war against the law of my mind and making me captive to the law of sin that dwells in
   my members. (ESV)
+
+  Psalms 112:1,6-8 - Praise ye Jah! O the happiness of one fearing Jehovah, In His commands he hath delighted
+  greatly. For–to the age he is not moved; For a memorial age-during is the righteous. Of an evil report he is not
+  afraid, Prepared is His heart, confident in Jehovah. Sustained is his heart–he feareth not, Till that he look on
+  his adversaries. (YLT)
 
 But it's not possible to simultaneously have faith while committing sin:
 
@@ -2241,8 +2293,18 @@ spirit practicing righteousness, rather than obeying sin:
 
 To be overcomers, we must overcome evil with good:
 
-  II Peter 2:19 - They promise them freedom, but they themselves are slaves of corruption. For whatever overcomes
-  a person, to that he is enslaved. (ESV)
+  Romans 12:19-21 - Beloved, never avenge yourselves, but leave it to the wrath of God, for it is written,
+  Vengeance is mine, I will repay, says the Lord. To the contrary, if your enemy is hungry, feed him; if he is
+  thirsty, give him something to drink; for by so doing you will heap burning coals on his head. Do not be
+  overcome by evil, but overcome evil with good. (ESV)
+
+  II Peter 2:19-22 - They promise them freedom, but they themselves are slaves of corruption. For whatever
+  overcomes a person, to that he is enslaved. For if, after they have escaped the defilements of the world through
+  the knowledge of our Lord and Savior Jesus Christ, they are again entangled in them and overcome, the last state
+  has become worse for them than the first. For it would have been better for them never to have known the way of
+  righteousness than after knowing it to turn back from the holy commandment delivered to them. What the true
+  proverb says has happened to them: The dog returns to its own vomit, and the sow, after washing herself, returns
+  to wallow in the mire. (ESV)
 
   Revelation of John 2:25-29 - Nevertheless what you have, hold fast until I come. He who overcomes, and he who
   keeps My deeds until the end, to him I will give authority over the nations; and he shall rule them with a rod
@@ -4052,6 +4114,10 @@ will from the heart.
   Jeremiah 44:10 - They have not humbled themselves even to this day, nor have they feared, nor walked in my law
   and my statutes that I set before you and before your fathers. (ESV)
 
+  I Corinthians 4:3-4 - But to me it is a very small thing that I may be examined by you, or by any human court;
+  in fact, I do not even examine myself. For I am conscious of nothing against myself, yet I am not by this
+  acquitted; but the one who examines me is the Lord. (NASB)
+
 I do thank God for His salvation which He is working in me as I trust and obey Jesus Christ and may God have mercy
 on me as I hold the faith endeavouring to please Him with the fear of God. And may God pull down every stronghold
 of demonic doctrine which has been neutering Jesus Christ's gospel saying such things as we are not saved by
@@ -4921,6 +4987,13 @@ At the end of sanctification, obeying the truth for a sincere love of our family
   the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
   not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
   household of faith. (ESV)
+
+  II Corinthians 5:6-11 - So we are always of good courage. We know that while we are at home in the body we are
+  away from the Lord, for we walk by faith, not by sight. Yes, we are of good courage, and we would rather be away
+  from the body and at home with the Lord. So whether we are at home or away, we make it our aim to please him.
+  For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he
+  has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But
+  what we are is known to God, and I hope it is known also to your conscience. (ESV)
 
 A Jew previously under Mosaic law who has faith in Jesus would be freed from the yoke of slavery by which they
 could only justified if they were able to carry out "the works of the law" that they were enslaved into doing, but
@@ -6636,6 +6709,39 @@ someone has faith in Jesus Christ and someone who abides in Jesus Christ's comma
 themselves and comparing themselves with others II Corinthians 10:11-12 but, rather, seeking to please God who
 sees the heart.
 
+The Christian's duty is in the fear of God to have faith in Him and love as commanded (which involves resisting
+sin):
+
+• Love as commanded
+• Resist committing sin
+
+  Ecclesiastes 12:13-14 - The end of the matter; all has been heard. Fear God and keep his commandments, for this
+  is the whole duty of man. For God will bring every deed into judgment, with every secret thing, whether good or
+  evil. (ESV)
+
+Doing our duty is Christians is of vital importance. And when I hear that word "duty", I think of grace, because
+God in His grace hasn't burdened us with more than we can handle.
+
+Getting cleaned up to agape love as commanded in a complete way is the process of sanctification, and of course
+that does involve abstaining from committing sin (Romans 13:8-10), even against our own bodies.
+
+  I Thessalonians 4:3-8 - For this is the will of God, your sanctification: that you abstain from sexual
+  immorality; that each one of you know how to control his own body in holiness and honor, not in the passion of
+  lust like the Gentiles who do not know God; that no one transgress and wrong his brother in this matter, because
+  the Lord is an avenger in all these things, as we told you beforehand and solemnly warned you. For God has not
+  called us for impurity, but in holiness. Therefore whoever disregards this, disregards not man but God, who
+  gives his Holy Spirit to you. (ESV)
+
+Ephesians 5:28 (Interlinear)
+
+So (G3779 houtōs) ought (G3784 opheilousin) also (G2532 kai)
+
+• (G3588 hoi)
+
+husbands (G435 andres) to love (G25 agapan) the (G3588 tas) of themselves (G1438 heautōn) wives (G1135 gynaikas)
+as (G5613 hōs) the (G3588 ta) of themselves (G1438 heautōn) bodies (G4983 sōmata) the [one] (G3588 ho) loving (G25
+agapōn) the (G3588 tēn) of himself (G1438 heautou) wife (G1135 gynaika) himself (G1438 heauton) loves (G25 agapa)
+
 We must make it our aim to please God without hypocrisy (Luke 12:1-9, II Timothy 2:5):
 
   Ecclesiastes 12:13-14 - The end of the matter; all has been heard. Fear God and keep his commandments, for this
@@ -7276,6 +7382,11 @@ will of God from the heart, (ESV)
 • Give thanks in all circumstances
 • I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ Jesus for
 you. (ESV)
+• Ephesians 5:17-21 - Therefore do not be foolish, but understand what the will of the Lord is. And do not
+get drunk with wine, for that is debauchery, but be filled with the Spirit, addressing one another in
+psalms and hymns and spiritual songs, singing and making melody to the Lord with all your heart, giving
+thanks always and for everything to God the Father in the name of our Lord Jesus Christ, submitting to
+one another out of reverence for Christ. (ESV)
 • Abstain from evil
 • I Thessalonians 4:3-8 - For this is the will of God, your sanctification: that you abstain from sexual
 immorality; that each one of you know how to control his own body in holiness and honor, not in the
@@ -8956,14 +9067,14 @@ inheritance in the kingdom of Christ and God (Galatians 5:18-25):
 
 (G728 earnest, pledge, a token of what is to come)
 
- | Original Word: ἀρραβών
+ | Original Word: \341\274\200\317\201\317\201\316\261\316\262\317\216\316\275
  | Part of Speech: Noun, Masculine
- | Transliteration: arrabón
+ | Transliteration: arrab\303\263n
  | Pronunciation: ar-hrab-OWN
  | Phonetic Spelling: (ar-hrab-ohn')
  | KJV: earnest
  | NASB: pledge, given as a pledge
- | Word Origin: [of Hebrew origin (H6162 (ערבוֹן - pledge))]
+ | Word Origin: [of Hebrew origin (H6162 (\327\242\326\262\327\250\326\270\327\221\357\255\213\327\237 - pledge))]
 
 The Gospel is able to build a person up to give them an inheritance among all those who are sanctified (as in,
 those who have been sanctified, who have been cleaned up that they no longer practice ungodliness, and love in the
@@ -9383,6 +9494,21 @@ utterly essential for entering the Kingdom of God:
 
   John 10:1 - Truly, truly, I say to you, he who does not enter the sheepfold by the door but climbs in by another
   way, that man is a thief and a robber. (ESV)
+
+This striving involves resisting evil, overcoming evil with good, while holding the faith:
+
+  Philippians 1:27-30 - Only let your manner of life be worthy of the gospel of Christ, so that whether I come and
+  see you or am absent, I may hear of you that you are standing firm in one spirit, with one mind striving side by
+  side (G4866 synathlountes; striving together) for the faith of the gospel, and not frightened in anything by
+  your opponents. This is a clear sign to them of their destruction, but of your salvation, and that from God. For
+  it has been granted to you that for the sake of Christ you should not only believe in him but also suffer for
+  his sake, engaged in the same conflict that you saw I had and now hear that I still have. (ESV)
+
+  II Timothy 1:6-9 - For this reason I remind you to fan into flame the gift of God, which is in you through the
+  laying on of my hands, for God gave us a spirit not of fear but of power and love and self-control. Therefore do
+  not be ashamed of the testimony about our Lord, nor of me his prisoner, but share in suffering for the gospel by
+  the power of God, who saved us and called us to a holy calling, not because of our works but because of his own
+  purpose and grace, which he gave us in Christ Jesus before the ages began, (ESV)
 
 Both being born again of the Spirit and also doing the will of God (our sanctification, to cease committing sin,
 remaining in Christ Jesus, abiding in His commandments) are needed in order to enter the Kingdom of God:
@@ -10946,6 +11072,13 @@ We should just do what the Lord Jesus Christ says and disregard the advice of th
   the Spirit reap eternal life. And let us not grow weary of doing good, for in due season we will reap, if we do
   not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
   household of faith. (ESV)
+
+  II Corinthians 5:6-11 - So we are always of good courage. We know that while we are at home in the body we are
+  away from the Lord, for we walk by faith, not by sight. Yes, we are of good courage, and we would rather be away
+  from the body and at home with the Lord. So whether we are at home or away, we make it our aim to please him.
+  For we must all appear before the judgment seat of Christ, so that each one may receive what is due for what he
+  has done in the body, whether good or evil. Therefore, knowing the fear of the Lord, we persuade others. But
+  what we are is known to God, and I hope it is known also to your conscience. (ESV)
 
 The person who does not "work" but "does" faith in Jesus, that person's faith is counted as righteousness:
 
@@ -15007,6 +15140,11 @@ and commandments:
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
 
+  Psalms 112:1,6-8 - Praise ye Jah! O the happiness of one fearing Jehovah, In His commands he hath delighted
+  greatly. For–to the age he is not moved; For a memorial age-during is the righteous. Of an evil report he is not
+  afraid, Prepared is His heart, confident in Jehovah. Sustained is his heart–he feareth not, Till that he look on
+  his adversaries. (YLT)
+
 Faith is a "way of life":
 
   Hebrews 13:7 - Remember your leaders, those who spoke to you the word of God. Consider the outcome of their way
@@ -17159,7 +17297,7 @@ strengthened by the law (I Corinthians 15:56) and the wages (due payment) for si
   believe this? She said to him, Yes, Lord; I believe that you are the Christ, the Son of God, who is coming into
   the world. (ESV)
 
-Without the law, sin lies dead (dormant, Romans 5:12-13, Romans 7:8). When a person's body is killed beacuse of
+Without the law, sin lies dead (dormant, Romans 5:12-13, Romans 7:8). When a person's body is killed because of
 their sin, they may receive a new spirit, that is the spirit of Christ, if they have faith in Jesus Christ (John
 11:25-27). A person who has been baptised into Christ's death must have had genuine faith in Christ, and thus
 genuine love for Christ as they received forgiveness for their sin. And so, with love in the heart, even love that
@@ -17176,7 +17314,7 @@ Christ's atoning work.
 
 Real law-abidingness accepts Jesus Christ and loves Him.
 
-We do not need to adhere to all of what is in the Book of the Law beacuse the Law is for the lawless and the
+We do not need to adhere to all of what is in the Book of the Law because the Law is for the lawless and the
 disobedient, and is not laid down for those who keep the requirement of the law, that is to love the way God has
 commanded us to love (loving our neighbour as ourself), which we are only able to do in reality (the way God wants
 us to truly love one another) if we abide in Jesus and have His Spirit in us.
@@ -17442,7 +17580,7 @@ youtube.com: Comment from @ QuestR - Tv {@ holynope }
 
 Somebody commented the verse 1 John 1:8:
 
- | “If we say that we have no sin, we deceive ourselves, and the truth is not in us.”
+ | \342\200\234If we say that we have no sin, we deceive ourselves, and the truth is not in us.\342\200\235
  | ([[https://www.biblegateway.com/passage/?search=1%20John%201%3A8&version=ESV][1 John 1:8]], KJV)
 
 I replied,
@@ -18569,6 +18707,11 @@ commandments), a person will receive persecution:
   II Timothy 3:12-13 - Indeed, all who desire to live a godly life in Christ Jesus will be persecuted, while evil
   people and impostors will go on from bad to worse, deceiving and being deceived. (ESV)
 
+Knowing God is more than about just knowing who He is:
+
+  Ezekiel 11:12 - and you shall know that I am the LORD. For you have not walked in my statutes, nor obeyed my
+  rules, but have acted according to the rules of the nations that are around you. (ESV)
+
 Knowing God involves loving the truth and loving the truth as God has commanded:
 
   John 15:21 - But all these things they will do to you on account of my name, because they do not know him who
@@ -18750,22 +18893,22 @@ semantically correct to say "Adam apart from (G5565 chōris) Eve", or "Eve apart
 Man and woman, husband and wife are a single unit called Adam:
 
  |      1254              3117           120     8034        853
- | s    hib·bā·rə·’ām.    bə·yō·wm       ’ā·ḏām, šə·mām      ’eṯ-
- | ס    הבראם׃            ביום           אדם     שמם         את־
+ | s    hib\302\267b\304\201\302\267r\311\231\302\267\342\200\231\304\201m.    b\311\231\302\267y\305\215\302\267wm       \342\200\231\304\201\302\267\341\270\217\304\201m, \305\241\311\231\302\267m\304\201m      \342\200\231e\341\271\257-
+ | \327\241    \327\224\326\264\327\221\326\270\326\274\326\275\327\250\326\260\327\220\326\270\326\275\327\235\327\203            \327\221\326\260\326\274\327\231\326\226\327\225\326\271\327\235           \327\220\326\270\327\223\326\270\326\224\327\235     \327\251\326\260\327\201\327\236\326\270\327\235\326\231         \327\220\326\266\327\252\326\276
  |  -   they were created in the day     man     them         -
- | Punc V‑Nifal‑Inf | 3mp Prep‑b | N‑msc N‑ms    N‑msc | 3mp DirObjM
+ | Punc V\342\200\221Nifal\342\200\221Inf | 3mp Prep\342\200\221b | N\342\200\221msc N\342\200\221ms    N\342\200\221msc | 3mp DirObjM
  |
  | 7121                            853           1288
- | way·yiq·rā                      ’ō·ṯām,       way·ḇā·reḵ
- | ויקרא                           אתם           ויברך
+ | way\302\267yiq\302\267r\304\201                      \342\200\231\305\215\302\267\341\271\257\304\201m,       way\302\267\341\270\207\304\201\302\267re\341\270\265
+ | \327\225\326\267\327\231\326\264\326\274\327\247\326\260\327\250\326\270\326\244\327\220                           \327\220\326\271\327\252\326\270\326\227\327\235           \327\225\326\267\327\231\326\260\327\221\326\270\326\243\327\250\326\266\327\232\326\260
  |  and called                      them          and He blessed
- |  Conj‑w | V‑Qal‑ConsecImperf‑3ms DirObjM | 3mp Conj‑w | V‑Piel‑ConsecImperf‑3ms
+ |  Conj\342\200\221w | V\342\200\221Qal\342\200\221ConsecImperf\342\200\2213ms DirObjM | 3mp Conj\342\200\221w | V\342\200\221Piel\342\200\221ConsecImperf\342\200\2213ms
  | 
  |  1254                 5347          2145
- |  bə·rā·’ām;           ū·nə·qê·ḇāh   zā·ḵār
- |  בראם                 ונקבה         זכר
+ |  b\311\231\302\267r\304\201\302\267\342\200\231\304\201m;           \305\253\302\267n\311\231\302\267q\303\252\302\267\341\270\207\304\201h   z\304\201\302\267\341\270\265\304\201r
+ |  \327\221\326\260\326\274\327\250\326\270\327\220\326\270\326\221\327\235                 \327\225\326\274\327\240\326\260\327\247\326\265\327\221\326\270\326\226\327\224         \327\226\326\270\327\233\326\270\326\245\327\250
  |  He created them      and female    male
- |  V‑Qal‑Perf‑3ms | 3mp Conj‑w | N‑fs N‑ms
+ |  V\342\200\221Qal\342\200\221Perf\342\200\2213ms | 3mp Conj\342\200\221w | N\342\200\221fs N\342\200\221ms
 
 It would also be semantically correct to say, "deeds (G2041 ergōn; works) apart from (G5565 chōris) faith". Deeds
 apart from faith would be the external actions.
@@ -20111,20 +20254,20 @@ By faith being called Abraham obeyed to go out into a place that he was going to
 went out not knowing where he is going
 
  | G4102    G2564        G11     G5219      G1831     G1519
- | Pistei   kaloumenos   Abraam  hypēkousen exelthein eis
- | Πίστει   καλούμενος , Ἀβραὰμ  ὑπήκουσεν  ἐξελθεῖν  εἰς
+ | Pistei   kaloumenos   Abraam  hyp\304\223kousen exelthein eis
+ | \316\240\316\257\317\203\317\204\316\265\316\271   \316\272\316\261\316\273\316\277\317\215\316\274\316\265\316\275\316\277\317\202 , \341\274\210\316\262\317\201\316\261\341\275\260\316\274  \341\275\221\317\200\316\256\316\272\316\277\317\205\317\203\316\265\316\275  \341\274\220\316\276\316\265\316\273\316\270\316\265\341\277\226\316\275  \316\265\341\274\260\317\202
  | By faith being called Abraham obeyed     to go out into
  | N-DFS    V-PPM/P-NMS  N-NMS   V-AIA-3S   V-ANA     Prep
  |
  | G5117   G3739      G3195        G2983      G1519 G2817
- | topon   hon        ēmellen      lambanein  eis   klēronomian
- | τόπον   ὃν         ἤμελλεν      λαμβάνειν  εἰς   κληρονομίαν ,
+ | topon   hon        \304\223mellen      lambanein  eis   kl\304\223ronomian
+ | \317\204\317\214\317\200\316\277\316\275   \341\275\203\316\275         \341\274\244\316\274\316\265\316\273\316\273\316\265\316\275      \316\273\316\261\316\274\316\262\316\254\316\275\316\265\316\271\316\275  \316\265\341\274\260\317\202   \316\272\316\273\316\267\317\201\316\277\316\275\316\277\316\274\316\257\316\261\316\275 ,
  |  a place that       he was going to receive for   an inheritance
  |  N-AMS   RelPro-AMS V-IIA-3S     V-PNA      Prep  N-AFS
  | 
  |  G2532 G1831     G3361 G1987       G4226 G2064
- |  kai   exēlthen  mē    epistamenos pou   erchetai
- |  καὶ   ἐξῆλθεν , μὴ    ἐπιστάμενος ποῦ   ἔρχεται .
+ |  kai   ex\304\223lthen  m\304\223    epistamenos pou   erchetai
+ |  \316\272\316\261\341\275\266   \341\274\220\316\276\341\277\206\316\273\316\270\316\265\316\275 , \316\274\341\275\264    \341\274\220\317\200\316\271\317\203\317\204\316\254\316\274\316\265\316\275\316\277\317\202 \317\200\316\277\341\277\246   \341\274\224\317\201\317\207\316\265\317\204\316\261\316\271 .
  |  and   went out  not   knowing     where he is going
  |  Conj  V-AIA-3S  Adv   V-PPM/P-NMS Adv   V-PIM/P-3S
 
@@ -21238,20 +21381,20 @@ Glory in [the] highest to God and on (G1909 epi; on) earth (G1093 gēs; earth) p
 pleasure, favor, desire, delight, with whom He is pleased)
 
  | G1391 G1722 G5310         G2316  G2532 G1909
- | Doxa  en    hypsistois    Theō   kai   epi
- | Δόξα  ἐν    ὑψίστοις      Θεῷ ,  καὶ   ἐπὶ
+ | Doxa  en    hypsistois    The\305\215   kai   epi
+ | \316\224\317\214\316\276\316\261  \341\274\220\316\275    \341\275\221\317\210\316\257\317\203\317\204\316\277\316\271\317\202      \316\230\316\265\341\277\267 ,  \316\272\316\261\341\275\266   \341\274\220\317\200\341\275\266
  | Glory in    [the] highest to God and   on
  | N-NFS Prep  Adj-DNP-S     N-DMS  Conj  Prep
  |
  | G1093 G1515  G1722 G444
- | gēs   eirēnē en    anthrōpois
- | γῆς   εἰρήνη ἐν    ἀνθρώποις
+ | g\304\223s   eir\304\223n\304\223 en    anthr\305\215pois
+ | \316\263\341\277\206\317\202   \316\265\341\274\260\317\201\316\256\316\275\316\267 \341\274\220\316\275    \341\274\200\316\275\316\270\317\201\317\216\317\200\316\277\316\271\317\202
  |  earth peace  among men
  |  N-GFS N-NFS  Prep  N-DMP
  | 
  |  G2107
  |  eudokias
- |  εὐδοκίας !
+ |  \316\265\341\275\220\316\264\316\277\316\272\316\257\316\261\317\202 !
  |  good desire
  |   / Goodwill / kind intention / pleasure / favor
  |   / desire / delight / with whom He is pleased
@@ -23283,16 +23426,16 @@ Psalms 115:11
 You who fear Yahweh trust in Yahweh their help and their shield He [is] (Interlinear)
 
  | 3373         3068        982          3068
- | yir·’ê       Yah·weh     biṭ·ḥū       Yah·weh;
- | יראי         ､ יהוה      בטחו         – ביהוה
+ | yir\302\267\342\200\231\303\252       Yah\302\267weh     bi\341\271\255\302\267\341\270\245\305\253       Yah\302\267weh;
+ | \327\231\327\250\327\220\327\231         \357\275\244 \327\231\327\224\327\225\327\224      \327\221\327\230\327\227\327\225         \342\200\223 \327\221\327\231\327\224\327\225\327\224
  | You who fear Yahweh      trust        in Yahweh
- | Adj‑mpc      N‑proper‑ms V‑Qal‑Imp‑mp Prep‑b | N‑proper‑ms
+ | Adj\342\200\221mpc      N\342\200\221proper\342\200\221ms V\342\200\221Qal\342\200\221Imp\342\200\221mp Prep\342\200\221b | N\342\200\221proper\342\200\221ms
  |
  | 5828        4043                 1931
- | ‘ez·rām     ū·mā·ḡin·nām         hū.
- | עזרם        ומגנם                . הוא׃
+ | \342\200\230ez\302\267r\304\201m     \305\253\302\267m\304\201\302\267\341\270\241in\302\267n\304\201m         h\305\253.
+ | \327\242\327\226\327\250\327\235        \327\225\327\236\327\222\327\240\327\235                . \327\224\327\225\327\220\327\203
  |  their help  and their shield     He [is]
- |  N‑msc | 3mp Conj‑w | N‑csc | 3mp Pro‑3ms
+ |  N\342\200\221msc | 3mp Conj\342\200\221w | N\342\200\221csc | 3mp Pro\342\200\2213ms
 
   Proverbs 14:26-27 - In the fear of the LORD one has strong confidence, and his children will have a refuge. The
   fear of the LORD is a fountain of life, that one may turn away from the snares of death. (ESV)
@@ -25488,19 +25631,19 @@ eimi I AM or I am He) you will die in the sins of you
 
  | 2036     3767      4771     3754     599           1722 3588
  | eipon    oun       hymin    hoti     apothaneisthe en   tais
- | εἶπον    οὖν       ὑμῖν     ὅτι      ἀποθανεῖσθε   ἐν   ταῖς
+ | \316\265\341\274\266\317\200\316\277\316\275    \316\277\341\275\226\316\275       \341\275\221\316\274\341\277\226\316\275     \341\275\205\317\204\316\271      \341\274\200\317\200\316\277\316\270\316\261\316\275\316\265\341\277\226\317\203\316\270\316\265   \341\274\220\316\275   \317\204\316\261\341\277\226\317\202
  | I said   therefore to you   that     you will die  in   the
  | V-AIA-1S Conj      PPro-D2P Conj     V-FIM-2P      Prep Art-DFP
  |
  | 266        4771     1437 1063 3361 4100        3754 1473     1510
- | hamartiais hymōn    ean  gar  mē   pisteusēte  hoti egō      eimi
- | ἁμαρτίαις  ὑμῶν  ;  ἐὰν  γὰρ  μὴ   πιστεύσητε  ὅτι  ἐγώ      εἰμι  ,
+ | hamartiais hym\305\215n    ean  gar  m\304\223   pisteus\304\223te  hoti eg\305\215      eimi
+ | \341\274\201\316\274\316\261\317\201\317\204\316\257\316\261\316\271\317\202  \341\275\221\316\274\341\277\266\316\275  ;  \341\274\220\341\275\260\316\275  \316\263\341\275\260\317\201  \316\274\341\275\264   \317\200\316\271\317\203\317\204\316\265\317\215\317\203\316\267\317\204\316\265  \341\275\205\317\204\316\271  \341\274\220\316\263\317\216      \316\265\341\274\260\316\274\316\271  ,
  |  sins       of you   if   for  not  you believe that I        am [He]
  |  N-DFP      PPro-G2P Conj Conj Adv  V-ASA-2P    Conj PPro-N1S V-PIA-1S
  | 
  |  599           1722 3588    266        4771
- |  apothaneisthe en   tais    hamartiais hymōn
- |  ἀποθανεῖσθε   ἐν   ταῖς    ἁμαρτίαις  ὑμῶν  .
+ |  apothaneisthe en   tais    hamartiais hym\305\215n
+ |  \341\274\200\317\200\316\277\316\270\316\261\316\275\316\265\341\277\226\317\203\316\270\316\265   \341\274\220\316\275   \317\204\316\261\341\277\226\317\202    \341\274\201\316\274\316\261\317\201\317\204\316\257\316\261\316\271\317\202  \341\275\221\316\274\341\277\266\316\275  .
  |  you will die  in   the     sins       of you
  |  V-FIM-2P      Prep Art-DFP N-DFP      PPro-G2P
 
@@ -25508,14 +25651,14 @@ biblehub.com 8-58.htm: John 8:58 Interlinear
 Said to them Jesus Truly truly I say to you before Abraham was I am (G1473 egō G1510 eimi I AM or I am He)
 
  | 2036     846       2424      281     281     3004     4771
- | Eipen    autois    Iēsous    Amēn    amēn    legō     hymin
- | Εἶπεν    αὐτοῖς    Ἰησοῦς  , Ἀμὴν  , ἀμὴν  , λέγω     ὑμῖν  ,
+ | Eipen    autois    I\304\223sous    Am\304\223n    am\304\223n    leg\305\215     hymin
+ | \316\225\341\274\266\317\200\316\265\316\275    \316\261\341\275\220\317\204\316\277\341\277\226\317\202    \341\274\270\316\267\317\203\316\277\341\277\246\317\202  , \341\274\210\316\274\341\275\264\316\275  , \341\274\200\316\274\341\275\264\316\275  , \316\273\316\255\316\263\317\211     \341\275\221\316\274\341\277\226\316\275  ,
  | Said     to them   Jesus     Truly   truly   I say    to you
  | V-AIA-3S PPro-DM3P N-NMS     Heb     Heb     V-PIA-1S PPro-D2P
  |
  | 4250   11      1096        1473     1510
- | prin   Abraam  genesthai   egō      eimi
- | πρὶν   Ἀβραὰμ  γενέσθαι  , ἐγὼ      εἰμί  .
+ | prin   Abraam  genesthai   eg\305\215      eimi
+ | \317\200\317\201\341\275\266\316\275   \341\274\210\316\262\317\201\316\261\341\275\260\316\274  \316\263\316\265\316\275\316\255\317\203\316\270\316\261\316\271  , \341\274\220\316\263\341\275\274      \316\265\341\274\260\316\274\316\257  .
  |  before Abraham was         I        am
  |  Adv    N-AMS   V-ANM       PPro-N1S V-PIA-1S
 
@@ -29328,16 +29471,16 @@ I believe that Paul says in Galatians 2:20 that the life he has now is from the 
 
 Galatians 2:20 (Interlinear):
 
- | Christ (G5547 Christō) I have been crucified with (G4957 synestaurōmai)
- | I live (G2198 zō) now (G1161 de) no longer (G3765 ouketi)
- | I (G1473 egō) lives (G2198 zē) however (G1161 de) in (G1722 en) me G1473 emoi Christ (G5547 Christos)
+ | Christ (G5547 Christ\305\215) I have been crucified with (G4957 synestaur\305\215mai)
+ | I live (G2198 z\305\215) now (G1161 de) no longer (G3765 ouketi)
+ | I (G1473 eg\305\215) lives (G2198 z\304\223) however (G1161 de) in (G1722 en) me G1473 emoi Christ (G5547 Christos)
  | that which (G3739 ho) then (G1161 de) now (G3568 nyn)
- |   I live (G2198 zō) in (G1722 en) [the] flesh (G4561 sarki)
- |    ^      through (G1722 en) faith (G4102 pistei) I live (G2198 zō)
+ |   I live (G2198 z\305\215) in (G1722 en) [the] flesh (G4561 sarki)
+ |    ^      through (G1722 en) faith (G4102 pistei) I live (G2198 z\305\215)
  |    \____________________   _________________________/
  |                         \ /
- |       that (G3588 tē) from the (G3588 tou) Son (G5207 Huiou) - (G3588 tou) of God (G2316 Theou)
- |  the [One] (G3588 tou) having loved (G25 agapēsantos) me (G1473 me)
+ |       that (G3588 t\304\223) from the (G3588 tou) Son (G5207 Huiou) - (G3588 tou) of God (G2316 Theou)
+ |  the [One] (G3588 tou) having loved (G25 agap\304\223santos) me (G1473 me)
  |  and (G2532 kai) having given up (G3860 paradontos) Himself (G1438 heauton)
  |  for (G5228 hyper) me (G1473 emou)
 
@@ -31754,6 +31897,10 @@ that means walking by faith involves endeavouring to maintain a good conscience 
 
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
+
+  I Corinthians 4:3-4 - But to me it is a very small thing that I may be examined by you, or by any human court;
+  in fact, I do not even examine myself. For I am conscious of nothing against myself, yet I am not by this
+  acquitted; but the one who examines me is the Lord. (NASB)
 
 We must "walk in the light" (love in the truth, love in the light, love in actuality, from the heart). We can't
 love in truth while denying Christ, for example (John 3:14-19, I John 4:1-3). And we can't love in the truth while
@@ -34906,18 +35053,18 @@ demonic lie, can you spot it? It's in the first line of the reflection. The lie 
  |
  | Reflection on Today's Verse
  |
- | Grace has no prerequisites. It doesn’t wait for perfection—it meets us in our brokenness and calls us righteous through Christ’s sacrifice. When we stop trying to earn
- | God’s love and begin resting in it, we find freedom from striving.
+ | Grace has no prerequisites. It doesn\342\200\231t wait for perfection\342\200\224it meets us in our brokenness and calls us righteous through Christ\342\200\231s sacrifice. When we stop trying to earn
+ | God\342\200\231s love and begin resting in it, we find freedom from striving.
  |
- | The cross is not a ladder we climb; it’s the bridge already built. Today, let grace quiet your inner critic and remind you that you are fully accepted, fully forgiven, and
- |  fully loved—just as you are.
+ | The cross is not a ladder we climb; it\342\200\231s the bridge already built. Today, let grace quiet your inner critic and remind you that you are fully accepted, fully forgiven, and
+ |  fully loved\342\200\224just as you are.
  | 
  |  Personal Prayer
  | 
  |  Heavenly Father, thank You for the gift of grace that I could never earn. Help me to rest in the redemption found in Christ Jesus and to live each day with gratitude
  |  instead of guilt.
  | 
- |  Teach me to extend the same grace to others that You’ve so freely given to me. May my heart reflect Your mercy, and my life point others to Your redeeming love. In Jesus’
+ |  Teach me to extend the same grace to others that You\342\200\231ve so freely given to me. May my heart reflect Your mercy, and my life point others to Your redeeming love. In Jesus\342\200\231
  |  name, Amen.
 
 But if we have faith in the blood of Jesus, in the fear of God seeking mercy, then we may find grace:
@@ -36650,6 +36797,36 @@ may have my disagreements.
 I think it's correct that the meaning of the Scripture is the Truth and I think that's really good way to read the
 Scripture, to seek it's meaning, because the meanings of the words are very important.
 
+It makes sense to me that what matters when it comes to believing the truth is whether or not a person is
+understanding correctly God's word in their heart, and being taught also comes though experience. Faith is not
+merely a memorisation exercise with no observable effect. God's name which Jesus manifested is not merely about
+phonemes. And if a person thinks a word means something that it doesn't mean, well God sees the heart:
+
+  Proverbs 23:7 - For as he thinketh in his heart, so is he: Eat and drink, saith he to thee; but his heart is not
+  with thee. (KJV)
+
+  Acts 2:6-11 - And at this sound the multitude came together, and they were bewildered, because each one was
+  hearing them speak in his own language. And they were amazed and astonished, saying, Are not all these who are
+  speaking Galileans? And how is it that we hear, each of us in his own native language? Parthians and Medes and
+  Elamites and residents of Mesopotamia, Judea and Cappadocia, Pontus and Asia, Phrygia and Pamphylia, Egypt and
+  the parts of Libya belonging to Cyrene, and visitors from Rome, both Jews and proselytes, Cretans and
+  Arabians—we hear them telling in our own tongues the mighty works of God. (ESV)
+
+  John 17:6 - I have manifested your name to the people whom you gave me out of the world. Yours they were, and
+  you gave them to me, and they have kept your word. (ESV)
+
+  John 17:8 - For I have given them the words that you gave me, and they have received them and have come to know
+  in truth that I came from you; and they have believed that you sent me. (ESV)
+
+  Matthew 17:14-20 - And when they came to the crowd, a man came up to him and, kneeling before him, said, Lord,
+  have mercy on my son, for he is an epileptic and he suffers terribly. For often he falls into the fire, and
+  often into the water. And I brought him to your disciples, and they could not heal him. And Jesus answered, O
+  faithless and twisted generation, how long am I to be with you? How long am I to bear with you? Bring him here
+  to me. And Jesus rebuked him, and the demon came out of him, and the boy was healed instantly. Then the
+  disciples came to Jesus privately and said, Why could we not cast it out? He said to them, Because of your
+  little faith. For truly, I say to you, if you have faith like a grain of mustard seed, you will say to this
+  mountain, Move from here to there, and it will move, and nothing will be impossible for you. (ESV)
+
 I try to not lean on my own understanding but trust in God and endeavour to obey/be obedient to Him:
 
   Proverbs 3:5-8 - Trust in the LORD with all your heart, and do not lean on your own understanding. In all your
@@ -37276,13 +37453,13 @@ by, under, beneath, through
 
  | 3756 1510     5259  3551
  | ouk  esmen    hypo  nomon
- | οὐκ  ἐσμὲν    ὑπὸ   νόμον ,
+ | \316\277\341\275\220\316\272  \341\274\220\317\203\316\274\341\275\262\316\275    \341\275\221\317\200\341\275\270   \316\275\317\214\316\274\316\277\316\275 ,
  | not  we are   under law
  | Adv  V-PIA-1P Prep  N-AMS
  |
  | 235  5259  5485
  | alla hypo  charin
- | ἀλλὰ ὑπὸ   χάριν ?
+ | \341\274\200\316\273\316\273\341\275\260 \341\275\221\317\200\341\275\270   \317\207\316\254\317\201\316\271\316\275 ?
  |  but  under grace
  |  Conj Prep  N-AFS
 
@@ -39949,10 +40126,10 @@ same way that Christ loved us:
 
   Philippians 1:27-30 - Only let your manner of life be worthy of the gospel of Christ, so that whether I come and
   see you or am absent, I may hear of you that you are standing firm in one spirit, with one mind striving side by
-  side for the faith of the gospel, and not frightened in anything by your opponents. This is a clear sign to them
-  of their destruction, but of your salvation, and that from God. For it has been granted to you that for the sake
-  of Christ you should not only believe in him but also suffer for his sake, engaged in the same conflict that you
-  saw I had and now hear that I still have. (ESV)
+  side (G4866 synathlountes; striving together) for the faith of the gospel, and not frightened in anything by
+  your opponents. This is a clear sign to them of their destruction, but of your salvation, and that from God. For
+  it has been granted to you that for the sake of Christ you should not only believe in him but also suffer for
+  his sake, engaged in the same conflict that you saw I had and now hear that I still have. (ESV)
 
 This endeavour to love one-another (in truth and in deed) does result in suffering, but also inheritance:
 
@@ -41308,7 +41485,7 @@ about? For what main purpose did God make you? Not the many reasons we could lis
 
  | I. They who are effectually called and regenerated, having a new heart and a new
  | spirit created in them, are further sanctified, really and personally, through the
- | virtue of Christ’s death and resurrection, by his Word and Spirit dwelling in
+ | virtue of Christ\342\200\231s death and resurrection, by his Word and Spirit dwelling in
  | them; the dominion of the whole body of sin is destroyed, and the several lusts
  | thereof are more and more weakened and mortified, and they more and more quickened
  | and strengthened, in all saving graces, to the practice of true holiness, without
@@ -41511,7 +41688,7 @@ Jesus will serve His servants who are awake:
  | 
  |  4 Rom. 5:6, 8:7
  |  5 Eph. 2:1,5
- |  6 Titus 3:3–5; John 6:44
+ |  6 Titus 3:3\342\200\2235; John 6:44
 
 I don't entirely agree with this paragraph saying all ability of will is lost (I could be wrong). Rather, I think
 that without God's help in sending us Jesus to make atonement for sin, even if we willed to do things which are
@@ -41689,11 +41866,11 @@ treasure, our Pearl of Great Price:
   Colossians 3:5 - Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil
   desire, and covetousness, which is idolatry. (ESV)
 
- | Lord’s Day 44
+ | Lord\342\200\231s Day 44
  | Q&A 113
  | Q. What is the aim of the tenth commandment?
  | A. That not even the slightest desire or thought
- |    contrary to any one of God’s commandments
+ |    contrary to any one of God\342\200\231s commandments
  |    should ever arise in our hearts.
  |
  |    Rather, with all our hearts
@@ -42241,32 +42418,32 @@ instructing us that having denied - ungodliness and - worldly passions discreetl
 should live in the present age
 
  | 2014         1063 3588    5485   3588    2316
- | Epephanē     gar  hē      charis tou     Theou
- | Ἐπεφάνη      γὰρ  ἡ       χάρις  τοῦ     Θεοῦ  ,
+ | Epephan\304\223     gar  h\304\223      charis tou     Theou
+ | \341\274\230\317\200\316\265\317\206\316\254\316\275\316\267      \316\263\341\275\260\317\201  \341\274\241       \317\207\316\254\317\201\316\271\317\202  \317\204\316\277\341\277\246     \316\230\316\265\316\277\341\277\246  ,
  | Has appeared for  the     grace   -      of God
  | V-AIP-3S     Conj Art-NFS N-NFS  Art-GMS N-GMS
  |
  | 4992               3956    444
- | sōtērios           pasin   anthrōpois
- | σωτήριος           πᾶσιν   ἀνθρώποις  ,
+ | s\305\215t\304\223rios           pasin   anthr\305\215pois
+ | \317\203\317\211\317\204\316\256\317\201\316\271\316\277\317\202           \317\200\341\276\266\317\203\316\271\316\275   \341\274\200\316\275\316\270\317\201\317\216\317\200\316\277\316\271\317\202  ,
  |  bringing salvation to all  men
  |  Adj-NFS            Adj-DMP N-DMP
 
  | 3811        1473     2443   720           3588    763         2532 3588
- | paideuousa  hēmas    hina   arnēsamenoi   tēn     asebeian    kai  tas
- | παιδεύουσα  ἡμᾶς     ἵνα  , ἀρνησάμενοι   τὴν     ἀσέβειαν    καὶ  τὰς
+ | paideuousa  h\304\223mas    hina   arn\304\223samenoi   t\304\223n     asebeian    kai  tas
+ | \317\200\316\261\316\271\316\264\316\265\317\215\316\277\317\205\317\203\316\261  \341\274\241\316\274\341\276\266\317\202     \341\274\265\316\275\316\261  , \341\274\200\317\201\316\275\316\267\317\203\316\254\316\274\316\265\316\275\316\277\316\271   \317\204\341\275\264\316\275     \341\274\200\317\203\316\255\316\262\316\265\316\271\316\261\316\275    \316\272\316\261\341\275\266  \317\204\341\275\260\317\202
  | instructing us       that   having denied  -      ungodliness and   -
  | V-PPA-NFS   PPro-A1P Conj   V-APM-NMP     Art-AFS N-AFS       Conj Art-AFP
  |
  | 2886     1939         4996       2532 1346        2532 2153
- | kosmikas epithymias   sōphronōs  kai  dikaiōs     kai  eusebōs
- | κοσμικὰς ἐπιθυμίας  , σωφρόνως   καὶ  δικαίως     καὶ  εὐσεβῶς
+ | kosmikas epithymias   s\305\215phron\305\215s  kai  dikai\305\215s     kai  euseb\305\215s
+ | \316\272\316\277\317\203\316\274\316\271\316\272\341\275\260\317\202 \341\274\220\317\200\316\271\316\270\317\205\316\274\316\257\316\261\317\202  , \317\203\317\211\317\206\317\201\317\214\316\275\317\211\317\202   \316\272\316\261\341\275\266  \316\264\316\271\316\272\316\261\316\257\317\211\317\202     \316\272\316\261\341\275\266  \316\265\341\275\220\317\203\316\265\316\262\341\277\266\317\202
  |  worldly  passions     discreetly and  righteously and  piously
  |  Adj-AFP  N-AFP        Adv        Conj Adv         Conj Adv
  | 
  |  2198           1722 3588    3568    165
- |  zēsōmen        en   tō      nyn     aiōni
- |  ζήσωμεν        ἐν   τῷ      νῦν     αἰῶνι  ,
+ |  z\304\223s\305\215men        en   t\305\215      nyn     ai\305\215ni
+ |  \316\266\316\256\317\203\317\211\316\274\316\265\316\275        \341\274\220\316\275   \317\204\341\277\267      \316\275\341\277\246\316\275     \316\261\341\274\260\341\277\266\316\275\316\271  ,
  |  we should live in   the     present age
  |  V-ASA-1P       Prep Art-DMS Adv     N-DMS
 
@@ -42393,20 +42570,20 @@ We need a trusting, obedient heart. It's not just about obeying one point of bel
 heart which believes Jesus, trusts Jesus, obeys Jesus, and accepting Him and His words.
 
  | 3588      4100      1519 3588    5207  2192     2222  166
- | ho        pisteuōn  eis  ton     Huion echei    zōēn  aiōnion
- | ὁ         πιστεύων  εἰς  τὸν     Υἱὸν  ἔχει     ζωὴν  αἰώνιον  ;
+ | ho        pisteu\305\215n  eis  ton     Huion echei    z\305\215\304\223n  ai\305\215nion
+ | \341\275\201         \317\200\316\271\317\203\317\204\316\265\317\215\317\211\316\275  \316\265\341\274\260\317\202  \317\204\341\275\270\316\275     \316\245\341\274\261\341\275\270\316\275  \341\274\224\317\207\316\265\316\271     \316\266\317\211\341\275\264\316\275  \316\261\341\274\260\317\216\316\275\316\271\316\277\316\275  ;
  | The [one] believing in   the     Son   has      life  eternal
  | Art-NMS   V-PPA-NMS Prep Art-AMS N-AMS V-PIA-3S N-AFS Adj-AFS
  |
  | 3588      1161     544         3588     5207   3756 3708
- | ho        de       apeithōn    tō       Huiō   ouk  opsetai
- | ὁ         δὲ       ἀπειθῶν     τῷ       Υἱῷ  , οὐκ  ὄψεται
+ | ho        de       apeith\305\215n    t\305\215       Hui\305\215   ouk  opsetai
+ | \341\275\201         \316\264\341\275\262       \341\274\200\317\200\316\265\316\271\316\270\341\277\266\316\275     \317\204\341\277\267       \316\245\341\274\261\341\277\267  , \316\277\341\275\220\316\272  \341\275\204\317\210\316\265\317\204\316\261\316\271
  |  the [one] however  not obeying the      Son    not  will see
  |  Art-NMS   Conj     V-PPA-NMS   Art-DMS  N-DMS  Adv  V-FIM-3S
  | 
  |  2222    235  3588    3709  3588    2316   3306     1909 846
- |  zōēn    all’ hē      orgē  tou     Theou  menei    ep’  auton
- |  ζωήν  , ἀλλ’ ἡ       ὀργὴ  τοῦ     Θεοῦ   μένει    ἐπ’  αὐτόν  .
+ |  z\305\215\304\223n    all\342\200\231 h\304\223      org\304\223  tou     Theou  menei    ep\342\200\231  auton
+ |  \316\266\317\211\316\256\316\275  , \341\274\200\316\273\316\273\342\200\231 \341\274\241       \341\275\200\317\201\316\263\341\275\264  \317\204\316\277\341\277\246     \316\230\316\265\316\277\341\277\246   \316\274\316\255\316\275\316\265\316\271    \341\274\220\317\200\342\200\231  \316\261\341\275\220\317\204\317\214\316\275  .
  |  life    but  the     wrath  -      of God abides   on   him
  |  N-AFS   Conj Art-NFS N-NFS Art-GMS N-GMS  V-PIA-3S Prep PPro-AM3S
 
@@ -42884,38 +43061,38 @@ Our obedience is in the heart. We want to obey because we love Jesus (we will to
   You go, and do likewise. (ESV)
 
  | 2036     25             2962       3588     2316
- | eipen    Agapēseis      Kyrion     ton      Theon
- | εἶπεν  , Ἀγαπήσεις      Κύριον     τὸν      Θεόν
+ | eipen    Agap\304\223seis      Kyrion     ton      Theon
+ | \316\265\341\274\266\317\200\316\265\316\275  , \341\274\210\316\263\316\261\317\200\316\256\317\203\316\265\316\271\317\202      \316\232\317\215\317\201\316\271\316\277\316\275     \317\204\341\275\270\316\275      \316\230\316\265\317\214\316\275
  | he said  You shall love [the] Lord the      God
  | V-AIA-3S V-FIA-2S       N-AMS      Art-AMS  N-AMS
  |         +-------+
  | 4771    |1537   | 3650     3588     2588     4771
- | sou     |ex  <--+ holēs    tēs      kardias  sou
- | σου     |ἐξ     | ὅλης     τῆς      καρδίας  σου  ,
+ | sou     |ex  <--+ hol\304\223s    t\304\223s      kardias  sou
+ | \317\203\316\277\317\205     |\341\274\220\316\276     | \341\275\205\316\273\316\267\317\202     \317\204\341\277\206\317\202      \316\272\316\261\317\201\316\264\316\257\316\261\317\202  \317\203\316\277\317\205  ,
  |  of you  |with   | all      the      heart    of you
  |  PPro-G2S|Prep   | Adj-GFS  Art-GFS  N-GFS    PPro-G2S
  |          +-------+
  |  2532    |1722   | 3650     3588     5590     4771
- |  kai     |en     | holē     tē       psychē   sou
- |  καὶ     |ἐν     | ὅλῃ      τῇ       ψυχῇ     σου  ,
+ |  kai     |en     | hol\304\223     t\304\223       psych\304\223   sou
+ |  \316\272\316\261\341\275\266     |\341\274\220\316\275     | \341\275\205\316\273\341\277\203      \317\204\341\277\207       \317\210\317\205\317\207\341\277\207     \317\203\316\277\317\205  ,
  |  and     |with   | all      the      soul     of you
  |  Conj    |Prep   | Adj-DFS  Art-DFS  N-DFS    PPro-G2S
  |          |       |
  |  2532    |1722   | 3650     3588     2479     4771
- |  kai     |en     | holē     tē       ischui   sou
- |  καὶ     |ἐν     | ὅλῃ      τῇ       ἰσχύϊ    σου  ,
+ |  kai     |en     | hol\304\223     t\304\223       ischui   sou
+ |  \316\272\316\261\341\275\266     |\341\274\220\316\275     | \341\275\205\316\273\341\277\203      \317\204\341\277\207       \341\274\260\317\203\317\207\317\215\317\212    \317\203\316\277\317\205  ,
  |  and     |with   | all      the      strength of you
  |  Conj    |Prep   | Adj-DFS  Art-DFS  N-DFS    PPro-G2S
  |          |       |
  |  2532    |1722   | 3650     3588     1271     4771
- |  kai     |en     | holē     tē       dianoia  sou
- |  καὶ     |ἐν     | ὅλῃ      τῇ       διανοίᾳ  σου
+ |  kai     |en     | hol\304\223     t\304\223       dianoia  sou
+ |  \316\272\316\261\341\275\266     |\341\274\220\316\275     | \341\275\205\316\273\341\277\203      \317\204\341\277\207       \316\264\316\271\316\261\316\275\316\277\316\257\341\276\263  \317\203\316\277\317\205
  |  and     |with   | all      the      mind     of you
  |  Conj    |Prep   | Adj-DFS  Art-DFS  N-DFS    PPro-G2S
  |          |       |
  |  2532    |3588   | 4139     4771     5613     4572
- |  kai     |Ton    | plēsion  sou      hōs      seauton
- |  καὶ     |Τὸν    | πλησίον  σου      ὡς       σεαυτόν  .
+ |  kai     |Ton    | pl\304\223sion  sou      h\305\215s      seauton
+ |  \316\272\316\261\341\275\266     |\316\244\341\275\270\316\275    | \317\200\316\273\316\267\317\203\316\257\316\277\316\275  \317\203\316\277\317\205      \341\275\241\317\202       \317\203\316\265\316\261\317\205\317\204\317\214\316\275  .
  |  and     |The    | neighbor of you   as       yourself
  |  Conj    |Art-AMS| Adv      PPro-G2S Adv      PPro-AM2S
  |          +-------+
@@ -43319,18 +43496,18 @@ I believe that Paul says in Galatians 2:20 that the life he has now is from the 
 
 Galatians 2:20 (Interlinear):
 
- | Christ (G5547 Christō) I have been crucified with (G4957 synestaurōmai)
- | I live (G2198 zō) now (G1161 de) no longer (G3765 ouketi)
- | I (G1473 egō) lives (G2198 zē) however (G1161 de) in (G1722 en) me G1473 emoi Christ (G5547 Christos)
+ | Christ (G5547 Christ\305\215) I have been crucified with (G4957 synestaur\305\215mai)
+ | I live (G2198 z\305\215) now (G1161 de) no longer (G3765 ouketi)
+ | I (G1473 eg\305\215) lives (G2198 z\304\223) however (G1161 de) in (G1722 en) me G1473 emoi Christ (G5547 Christos)
  |     that which (G3739 ho) then (G1161 de) now (G3568 nyn)
- | I live (G2198 zō)
+ | I live (G2198 z\305\215)
  |  ^  in (G1722 en)
  |  |  [the] flesh (G4561 sarki)
- |  |      through (G1722 en) faith (G4102 pistei) I live (G2198 zō)
+ |  |      through (G1722 en) faith (G4102 pistei) I live (G2198 z\305\215)
  |  \____________________   _________________________/
  |                        \ /
- |      that (G3588 tē) from the (G3588 tou) Son (G5207 Huiou) - (G3588 tou) of God (G2316 Theou)
- |  the [One] (G3588 tou) having loved (G25 agapēsantos) me (G1473 me)
+ |      that (G3588 t\304\223) from the (G3588 tou) Son (G5207 Huiou) - (G3588 tou) of God (G2316 Theou)
+ |  the [One] (G3588 tou) having loved (G25 agap\304\223santos) me (G1473 me)
  |  and (G2532 kai) having given up (G3860 paradontos) Himself (G1438 heauton)
  |  for (G5228 hyper) me (G1473 emou)
 
@@ -44673,10 +44850,10 @@ to tolerate the evil of Islam, and even affirm it in part. That's just my impres
 here:
 
  | Welcomed by the Rector of the Mosque, Mohamed Mamoun al Qasim who offered
- | words of fraternity, the Pope said “I thank you for these reflections and for
+ | words of fraternity, the Pope said \342\200\234I thank you for these reflections and for
  | these important words during this visit, from a place that represents the space
  | that belongs to God, a divine and sacred space, where many people come to pray
- | and to seek the presence of the Most High in their lives.”
+ | and to seek the presence of the Most High in their lives.\342\200\235
 
 Islam teaches lies, and the Pope should be rebuking those who contradict the truth and exercising Biblical
 separation:
@@ -44902,11 +45079,11 @@ And our trusting love is not merely obedient by affectionate:
   John 16:27 - for the Father himself loves you, because you have loved (5368. phileó) me and have believed (4100.
   pisteuó) that I came from God. (ESV)
 
- | Cognate: 25 agapáō – properly, to prefer, to love; for the believer, preferring to "live through Christ" (1 Jn 4:9,10), i.e. embracing God's will (choosing His choices) and obeying them through His power. 25 (agapáō) preeminently refers to what God prefers as He "is love" (1 Jn 4:8,16). See 26 (agapē).
+ | Cognate: 25 agap\303\241\305\215 \342\200\223 properly, to prefer, to love; for the believer, preferring to "live through Christ" (1 Jn 4:9,10), i.e. embracing God's will (choosing His choices) and obeying them through His power. 25 (agap\303\241\305\215) preeminently refers to what God prefers as He "is love" (1 Jn 4:8,16). See 26 (agap\304\223).
  |
- | With the believer, 25 /agapáō ("to love") means actively doing what the Lord prefers, with Him (by His power and direction). True 25 /agapáō ("loving") is always defined by God – a "discriminating affection which involves choice and selection" (WS, 477). 1 Jn 4:8,16,17 for example convey how loving ("preferring," 25 /agapáō) is Christ living His life through the believer.
+ | With the believer, 25 /agap\303\241\305\215 ("to love") means actively doing what the Lord prefers, with Him (by His power and direction). True 25 /agap\303\241\305\215 ("loving") is always defined by God \342\200\223 a "discriminating affection which involves choice and selection" (WS, 477). 1 Jn 4:8,16,17 for example convey how loving ("preferring," 25 /agap\303\241\305\215) is Christ living His life through the believer.
 
- | 5368 philéō (from 5384 /phílos, "affectionate friendship") – properly, to show warm affection in intimate friendship, characterized by tender, heartfelt consideration and kinship.
+ | 5368 phil\303\251\305\215 (from 5384 /ph\303\255los, "affectionate friendship") \342\200\223 properly, to show warm affection in intimate friendship, characterized by tender, heartfelt consideration and kinship.
 
 Steve Apirana - Born Again - YouTube
 
@@ -45169,26 +45346,26 @@ Whoever is believing the words of God which Jesus has spoken has eternal life:
   Me he has life eternal and into judgment not comes but has passed out of - death into - life (Interlinear)
 
  | 281     281   3004     4771     3754 3588      3588    3056
- | Amēn    amēn  legō     hymin    hoti ho        ton     logon
- | Ἀμὴν  , ἀμὴν  λέγω     ὑμῖν     ὅτι  ὁ         τὸν     λόγον
+ | Am\304\223n    am\304\223n  leg\305\215     hymin    hoti ho        ton     logon
+ | \341\274\210\316\274\341\275\264\316\275  , \341\274\200\316\274\341\275\264\316\275  \316\273\316\255\316\263\317\211     \341\275\221\316\274\341\277\226\316\275     \341\275\205\317\204\316\271  \341\275\201         \317\204\341\275\270\316\275     \316\273\317\214\316\263\316\277\316\275
  | Truly   truly I say    to you   that the [one] the     word
  | Heb     Heb   V-PIA-1S PPro-D2P Conj Art-NMS   Art-AMS N-AMS
  |
  | 1473     191       2532 4100      3588      3992        1473 [e]
- | mou      akouōn    kai  pisteuōn  tō        pempsanti   me
- | μου      ἀκούων  , καὶ  πιστεύων  τῷ        πέμψαντί    με  ,
+ | mou      akou\305\215n    kai  pisteu\305\215n  t\305\215        pempsanti   me
+ | \316\274\316\277\317\205      \341\274\200\316\272\316\277\317\215\317\211\316\275  , \316\272\316\261\341\275\266  \317\200\316\271\317\203\317\204\316\265\317\215\317\211\316\275  \317\204\341\277\267        \317\200\316\255\316\274\317\210\316\261\316\275\317\204\316\257    \316\274\316\265  ,
  |  of Me    hearing   and  believing the [One] having sent Me
  |  PPro-G1S V-PPA-NMS Conj V-PPA-NMS Art-DMS   V-APA-DMS   PPro-A1S
  | 
  |  2192     2222  166     2532 1519 2920     3756 2064       235
- |  echei    zōēn  aiōnion kai  eis  krisin   ouk  erchetai   alla
- |  ἔχει     ζωὴν  αἰώνιον καὶ  εἰς  κρίσιν   οὐκ  ἔρχεται  , ἀλλὰ
+ |  echei    z\305\215\304\223n  ai\305\215nion kai  eis  krisin   ouk  erchetai   alla
+ |  \341\274\224\317\207\316\265\316\271     \316\266\317\211\341\275\264\316\275  \316\261\341\274\260\317\216\316\275\316\271\316\277\316\275 \316\272\316\261\341\275\266  \316\265\341\274\260\317\202  \316\272\317\201\316\257\317\203\316\271\316\275   \316\277\341\275\220\316\272  \341\274\224\317\201\317\207\316\265\317\204\316\261\316\271  , \341\274\200\316\273\316\273\341\275\260
  |  he has   life  eternal and  into judgment not  comes      but
  |  V-PIA-3S N-AFS Adj-AFS Conj Prep N-AFS    Adv  V-PIM/P-3S Conj
  | 
  |  3327        1537   3588    2288     1519 3588    2222
- |  metabebēken ek     tou     thanatou eis  tēn     zōēn
- |  μεταβέβηκεν ἐκ     τοῦ     θανάτου  εἰς  τὴν     ζωήν  .
+ |  metabeb\304\223ken ek     tou     thanatou eis  t\304\223n     z\305\215\304\223n
+ |  \316\274\316\265\317\204\316\261\316\262\316\255\316\262\316\267\316\272\316\265\316\275 \341\274\220\316\272     \317\204\316\277\341\277\246     \316\270\316\261\316\275\316\254\317\204\316\277\317\205  \316\265\341\274\260\317\202  \317\204\341\275\264\316\275     \316\266\317\211\316\256\316\275  .
  |  has passed  out of  -      death    into  -      life
  |  V-RIA-3S    Prep   Art-GMS N-GMS    Prep Art-AFS N-AFS
 
@@ -45598,14 +45775,14 @@ So I was born-again of the Spirit on 1 Nisan, which commemorates the death of Ab
 receded from the earth:
 
  | 1 Nisan The day the floodwaters receded from the earth, after the dove was sent out by Noah and returned with an olive branch, according to Genesis 8:10-13
- | 1 Nisan (c. 1638 BCE) – Death of Abraham according to the Talmud[2]
- | 1 Nisan (c. 1533 BCE) – Death of Isaac according to the Talmud[2]
- | 1 Nisan (c. 1506 BCE) – Death of Jacob according to the Talmud[2]
- | 1 Nisan (c. 1455 BCE) – Tabernacle (Mishkan) inaugurated on the second year "Exodus 40".
+ | 1 Nisan (c. 1638 BCE) \342\200\223 Death of Abraham according to the Talmud[2]
+ | 1 Nisan (c. 1533 BCE) \342\200\223 Death of Isaac according to the Talmud[2]
+ | 1 Nisan (c. 1506 BCE) \342\200\223 Death of Jacob according to the Talmud[2]
+ | 1 Nisan (c. 1455 BCE) \342\200\223 Tabernacle (Mishkan) inaugurated on the second year "Exodus 40".
  | 1 Nisan (c. 1455 BCE) death of Nadab and Abihu[3]
- | 1 Nisan (c. 3761 BCE) – Creation of the Universe according to Joshua ben Hananiah's opinion in the Talmud, tractate Rosh Hashanah 10b–11a).
- | 1 Nisan (1772) – Birth of Rabbi Nachman of Breslov[citation needed]
- | 1 Nisan (1892) – Death of Rabbi Elimelech Szapira of Grodzhisk
+ | 1 Nisan (c. 3761 BCE) \342\200\223 Creation of the Universe according to Joshua ben Hananiah's opinion in the Talmud, tractate Rosh Hashanah 10b\342\200\22311a).
+ | 1 Nisan (1772) \342\200\223 Birth of Rabbi Nachman of Breslov[citation needed]
+ | 1 Nisan (1892) \342\200\223 Death of Rabbi Elimelech Szapira of Grodzhisk
 
 Interestingly, I just found out that 2 April is also the anniversary of the day Pope John Paul II passed away:
 https://en.wikipedia.org/wiki/Death_and_funeral_of_Pope_John_Paul_II
@@ -46543,14 +46720,14 @@ new spirit and then I had to become obedient to the standard of teaching which I
 II Corinthians 5:17 (Interlinear)
 
  | 5620      1487 5100     1722    5547      2537          2937 [e]  3588
- | hōste     ei   tis      en      Christō   kainē         ktisis    ta
- | ὥστε      εἴ   τις      ἐν      Χριστῷ  , καινὴ         κτίσις  . τὰ
- | Therefore if   anyone   [is] in Christ    [he is] a new creation  [[https://www.blueletterbible.org/lexicon/g2537/kjv/tr/0-1/][(G2537 kainē; new)]] [[https://www.blueletterbible.org/lexicon/g2937/kjv/tr/0-1/][(G2937 ktisis; creation)]]  The
+ | h\305\215ste     ei   tis      en      Christ\305\215   kain\304\223         ktisis    ta
+ | \341\275\245\317\203\317\204\316\265      \316\265\341\274\264   \317\204\316\271\317\202      \341\274\220\316\275      \316\247\317\201\316\271\317\203\317\204\341\277\267  , \316\272\316\261\316\271\316\275\341\275\264         \316\272\317\204\316\257\317\203\316\271\317\202  . \317\204\341\275\260
+ | Therefore if   anyone   [is] in Christ    [he is] a new creation  [[https://www.blueletterbible.org/lexicon/g2537/kjv/tr/0-1/][(G2537 kain\304\223; new)]] [[https://www.blueletterbible.org/lexicon/g2937/kjv/tr/0-1/][(G2937 ktisis; creation)]]  The
  | Conj      Conj IPro-NMS Prep    N-DMS     Adj-NFS       N-NFS     Art-NNP
  |
  | 744        3928             2400     1096 [e]            2537
- | archaia    parēlthen        idou     gegonen             kaina
- | ἀρχαῖα     παρῆλθεν  ;      ἰδοὺ  ,  γέγονεν             καινά  .
+ | archaia    par\304\223lthen        idou     gegonen             kaina
+ | \341\274\200\317\201\317\207\316\261\341\277\226\316\261     \317\200\316\261\317\201\341\277\206\316\273\316\270\316\265\316\275  ;      \341\274\260\316\264\316\277\341\275\272  ,  \316\263\316\255\316\263\316\277\316\275\316\265\316\275             \316\272\316\261\316\271\316\275\316\254  .
  |  old things have passed away behold   has come into being [the] new
  |  Adj-NNP    V-AIA-3S         V-AMA-2S V-RIA-3S            Adj-NNP
 
@@ -46558,14 +46735,14 @@ II Corinthians 5:17 (Interlinear)
   kainē; new) (G2937 ktisis; creation). (ESV)
 
  | 3777    1063 4061         5100     1510     3777 203
- | oute    gar  peritomē     ti       estin    oute akrobystia
- | οὔτε    γὰρ  περιτομή     τί       ἐστιν  , οὔτε ἀκροβυστία  ;
+ | oute    gar  peritom\304\223     ti       estin    oute akrobystia
+ | \316\277\341\275\224\317\204\316\265    \316\263\341\275\260\317\201  \317\200\316\265\317\201\316\271\317\204\316\277\316\274\316\256     \317\204\316\257       \341\274\220\317\203\317\204\316\271\316\275  , \316\277\341\275\224\317\204\316\265 \341\274\200\316\272\317\201\316\277\316\262\317\205\317\203\317\204\316\257\316\261  ;
  | Neither for  circumcision anything is       nor  uncircumcision
  | Conj    Conj N-NFS        IPro-NNS V-PIA-3S Conj N-NFS
  |
  | 235     2537    2937
- | alla    kainē   ktisis
- | ἀλλὰ    καινὴ   κτίσις  .
+ | alla    kain\304\223   ktisis
+ | \341\274\200\316\273\316\273\341\275\260    \316\272\316\261\316\271\316\275\341\275\264   \316\272\317\204\316\257\317\203\316\271\317\202  .
  |  instead a new   creation
  |  Conj    Adj-NFS N-NFS
 
@@ -47098,10 +47275,14 @@ God is still working, His grace extending through faithful obedience to Jesus, J
 
 I affirm that the only way is through Jesus. But I don't believe in subtracting Jesus' teachings or His ongoing
 work from Jesus when we talk about Him or refer to having faith in Him. Nevertheless, without the work of Christ
-in His passion, death and resurrection, there'd be no reconciliation to Father God. Nevertheless, I think Stan has
-valid concerns here but just want to make out that this is not a call to disobedience to Jesus, but we are saved
-by grace through faith and become obedient to Christ. We want relationship with God through Jesus Christ, through
-faith in Him and in His Word, in obedience to Christ and His teachings.
+in His passion, death and resurrection, there'd be no reconciliation to Father God.
+
+  Ecclesiastes 3:14 - I perceived that whatever God does endures forever; nothing can be added to it, nor anything
+  taken from it. God has done it, so that people fear before him. (ESV)
+
+Nevertheless, I think Stan has valid concerns here but just want to make out that this is not a call to
+disobedience to Jesus, but we are saved by grace through faith and become obedient to Christ. We want relationship
+with God through Jesus Christ, through faith in Him and in His Word, in obedience to Christ and His teachings.
 
 youtube.com: The world REALLY NEEDS JESUS!!! — NOT religion!!! {@HanginOutWithStan}
 
@@ -48487,32 +48668,32 @@ I think this verse could likely mean that the person who is born of God has the 
 be doing the will of God, just as Christ is without sin:
 
  | 3956    3588    1080             1537 3588
- | Pas     ho      gegennēmenos     ek   tou
- | Πᾶς     ὁ       γεγεννημένος     ἐκ   τοῦ
+ | Pas     ho      gegenn\304\223menos     ek   tou
+ | \316\240\341\276\266\317\202     \341\275\201       \316\263\316\265\316\263\316\265\316\275\316\275\316\267\316\274\316\255\316\275\316\277\317\202     \341\274\220\316\272   \317\204\316\277\341\277\246
  | Anyone   -      having been born of    -
  | Adj-NMS Art-NMS V-RPM/P-NMS      Prep Art-GMS
  |
  | 2316    266       3756 4160      3754    4690
  | Theou   hamartian ou   poiei     hoti    sperma
- | Θεοῦ  , ἁμαρτίαν  οὐ   ποιεῖ  ,  ὅτι     σπέρμα
+ | \316\230\316\265\316\277\341\277\246  , \341\274\201\316\274\316\261\317\201\317\204\316\257\316\261\316\275  \316\277\341\275\220   \317\200\316\277\316\271\316\265\341\277\226  ,  \341\275\205\317\204\316\271     \317\203\317\200\316\255\317\201\316\274\316\261
  |  God     sin       not  practices because seed
  |  N-GMS   N-AFS     Adv  V-PIA-3S  Conj    N-NNS
  | 
  |  846       1722 846       3306     2532 3756
- |  autou     en   autō      menei    kai  ou
- |  αὐτοῦ     ἐν   αὐτῷ      μένει  , καὶ  οὐ
+ |  autou     en   aut\305\215      menei    kai  ou
+ |  \316\261\341\275\220\317\204\316\277\341\277\246     \341\274\220\316\275   \316\261\341\275\220\317\204\341\277\267      \316\274\316\255\316\275\316\265\316\271  , \316\272\316\261\341\275\266  \316\277\341\275\220
  |  of Him    in   him       abides   and  not
  |  PPro-GM3S Prep PPro-DM3S V-PIA-3S Conj Adv
  | 
  |  1410       264                 3754
  |  dynatai    hamartanein         hoti
- |  δύναται    ἁμαρτάνειν  ,       ὅτι
+ |  \316\264\317\215\316\275\316\261\317\204\316\261\316\271    \341\274\201\316\274\316\261\317\201\317\204\316\254\316\275\316\265\316\271\316\275  ,       \341\275\205\317\204\316\271
  |  he is able to continue sinning because
  |  V-PIM/P-3S V-PNA               Conj
  | 
  |  1537 3588    2316  1080
- |  ek   tou     Theou gegennētai
- |  ἐκ   τοῦ     Θεοῦ  γεγέννηται  .
+ |  ek   tou     Theou gegenn\304\223tai
+ |  \341\274\220\316\272   \317\204\316\277\341\277\246     \316\230\316\265\316\277\341\277\246  \316\263\316\265\316\263\316\255\316\275\316\275\316\267\317\204\316\261\316\271  .
  |  of   mfs -   God   he has been born
  |  Prep Art-GMS N-GMS V-RIM/P-3S
 
@@ -48927,8 +49108,8 @@ We serve God by serving Christ:
 3.4.4. Forgiveness through love, through obedience to Jesus
 
  | Clement of Rome (Latin: Clemens Romanus;
- | Ancient Greek: Κλήμης Ῥώμης, romanized: Klēmēs
- | Rōmēs; died c. 100 AD), also known as Pope
+ | Ancient Greek: \316\232\316\273\316\256\316\274\316\267\317\202 \341\277\254\317\216\316\274\316\267\317\202, romanized: Kl\304\223m\304\223s
+ | R\305\215m\304\223s; died c. 100 AD), also known as Pope
  | Clement I, was the Bishop of Rome in the late
  | first century AD.
  |
@@ -49397,12 +49578,12 @@ it's also scriptural.
 
 The Hebrew has two words for 'helper'. The word which the greek in John 14 refers to I believe is the Saviour one:
 
- | מושיע
+ | \327\236\327\225\326\271\327\251\327\201\326\264\327\231\327\242\326\267
  | savior, deliverer, helper, saviour
 
 But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant!:
 
- | עוזר
+ | \327\242\327\225\326\271\327\226\326\265\327\250
  | assistant, aide, helper, second
 
   Genesis 2:18 - Then the Lord (H3068 Yhovah) God (H430 'elohiym) said (H559 'amar), “It is not good (H2896 towb)
@@ -52512,26 +52693,26 @@ other translations, although I think we have to be careful.
       forbearance - of God (Interlinear)
 
  | 3739       4388         3588    2316  2435           1223    3588    4102
- | hon        proetheto    ho      Theos hilastērion    dia     tēs     pisteōs
- | ὃν         προέθετο     ὁ       Θεὸς  ἱλαστήριον  ,  διὰ     [τῆς]   πίστεως
+ | hon        proetheto    ho      Theos hilast\304\223rion    dia     t\304\223s     piste\305\215s
+ | \341\275\203\316\275         \317\200\317\201\316\277\316\255\316\270\316\265\317\204\316\277     \341\275\201       \316\230\316\265\341\275\270\317\202  \341\274\261\316\273\316\261\317\203\317\204\316\256\317\201\316\271\316\277\316\275  ,  \316\264\316\271\341\275\260     [\317\204\341\277\206\317\202]   \317\200\316\257\317\203\317\204\316\265\317\211\317\202
  | whom       set forth as  -      God   a propitiation through  -      faith
  | RelPro-AMS V-AIM-3S     Art-NMS N-NMS N-ANS          Prep    Art-GFS N-GFS
  |
  | 1722 3588    846       129       1519 1732            3588    1343
- | en   tō      autou     haimati   eis  endeixin        tēs     dikaiosynēs
- | ἐν   τῷ      αὐτοῦ     αἵματι  , εἰς  ἔνδειξιν        τῆς     δικαιοσύνης
+ | en   t\305\215      autou     haimati   eis  endeixin        t\304\223s     dikaiosyn\304\223s
+ | \341\274\220\316\275   \317\204\341\277\267      \316\261\341\275\220\317\204\316\277\341\277\246     \316\261\341\274\265\316\274\316\261\317\204\316\271  , \316\265\341\274\260\317\202  \341\274\224\316\275\316\264\316\265\316\271\316\276\316\271\316\275        \317\204\341\277\206\317\202     \316\264\316\271\316\272\316\261\316\271\316\277\317\203\317\215\316\275\316\267\317\202
  |  in    -      His       blood     for  a showing forth of the  righteousness
  |  Prep Art-DNS PPro-GM3S N-DNS     Prep N-AFS           Art-GFS N-GFS
  | 
  |  846       1223       3588    3929        3588    4266
- |  autou     dia        tēn     paresin     tōn     progegonotōn
- |  αὐτοῦ  ,  διὰ        τὴν     πάρεσιν     τῶν     προγεγονότων
+ |  autou     dia        t\304\223n     paresin     t\305\215n     progegonot\305\215n
+ |  \316\261\341\275\220\317\204\316\277\341\277\246  ,  \316\264\316\271\341\275\260        \317\204\341\275\264\316\275     \317\200\316\254\317\201\316\265\317\203\316\271\316\275     \317\204\341\277\266\316\275     \317\200\317\201\316\277\316\263\316\265\316\263\316\277\316\275\317\214\317\204\317\211\316\275
  |  of Him    because of the     forbearance of the  having taken place beforehand
  |  PPro-GM3S Prep       Art-AFS N-AFS       Art-GNP V-RPA-GNP
  | 
  |  265             1722 3588    463         3588    2316
- |  hamartēmatōn    en   tē      anochē      tou     Theou
- |  ἁμαρτημάτων   — ἐν   τῇ      ἀνοχῇ       τοῦ     Θεοῦ  ;
+ |  hamart\304\223mat\305\215n    en   t\304\223      anoch\304\223      tou     Theou
+ |  \341\274\201\316\274\316\261\317\201\317\204\316\267\316\274\316\254\317\204\317\211\316\275   \342\200\224 \341\274\220\316\275   \317\204\341\277\207      \341\274\200\316\275\316\277\317\207\341\277\207       \317\204\316\277\341\277\246     \316\230\316\265\316\277\341\277\246  ;
  |  sins            in   the     forbearance  -      of God
  |  N-GNP           Prep Art-DFS N-DFS       Art-GMS N-GMS
 
@@ -52706,20 +52887,20 @@ Obey the Truth means obey Jesus:
   man will live by them (Interlinear)
 
  | 3475   1063 1125     3754 3588     1343          3588      1537
- | Mōusēs gar  graphei  hoti tēn      dikaiosynēn   tēn       ek
- | Μωϋσῆς γὰρ  γράφει   ὅτι  τὴν      δικαιοσύνην   τὴν       ἐκ
+ | M\305\215us\304\223s gar  graphei  hoti t\304\223n      dikaiosyn\304\223n   t\304\223n       ek
+ | \316\234\317\211\317\213\317\203\341\277\206\317\202 \316\263\341\275\260\317\201  \316\263\317\201\316\254\317\206\316\265\316\271   \341\275\205\317\204\316\271  \317\204\341\275\264\316\275      \316\264\316\271\316\272\316\261\316\271\316\277\317\203\317\215\316\275\316\267\316\275   \317\204\341\275\264\316\275       \341\274\220\316\272
  | Moses  for  writes    -   [of] the righteousness that [is] of
  | N-NMS  Conj V-PIA-3S Conj Art-AFS  N-AFS         Art-AFS   Prep
  |
  | 3588    3551    3754  3588    4160        846          444
- | tou     nomou   hoti  Ho      poiēsas     auta         anthrōpos
- | ‹τοῦ›   νόμου , [ὅτι] Ὁ       ποιήσας     [αὐτὰ]       ἄνθρωπος  ,
+ | tou     nomou   hoti  Ho      poi\304\223sas     auta         anthr\305\215pos
+ | \342\200\271\317\204\316\277\341\277\246\342\200\272   \316\275\317\214\316\274\316\277\317\205 , [\341\275\205\317\204\316\271] \341\275\211       \317\200\316\277\316\271\316\256\317\203\316\261\317\202     [\316\261\341\275\220\317\204\341\275\260]       \341\274\204\316\275\316\270\317\201\317\211\317\200\316\277\317\202  ,
  |  the     law     that  The     having done these things man
  |  Art-GMS N-GMS   Conj  Art-NMS V-APA-NMS   PPro-AN3P    N-NMS
  | 
  |  2198      1722 846
- |  zēsetai   en   autē
- |  ζήσεται   ἐν   αὐτῇ  .
+ |  z\304\223setai   en   aut\304\223
+ |  \316\266\316\256\317\203\316\265\317\204\316\261\316\271   \341\274\220\316\275   \316\261\341\275\220\317\204\341\277\207  .
  |  will live by   them
  |  V-FIM-3S  Prep PPro-DF3S
 
@@ -52766,32 +52947,32 @@ resurrection):
   patience, tolerance) - of God (Interlinear)
 
  | 3739       4388         3588    2316  2435           1223
- | hon        proetheto    ho      Theos hilastērion    dia
- | ὃν         προέθετο     ὁ       Θεὸς  ἱλαστήριον  ,  διὰ
+ | hon        proetheto    ho      Theos hilast\304\223rion    dia
+ | \341\275\203\316\275         \317\200\317\201\316\277\316\255\316\270\316\265\317\204\316\277     \341\275\201       \316\230\316\265\341\275\270\317\202  \341\274\261\316\273\316\261\317\203\317\204\316\256\317\201\316\271\316\277\316\275  ,  \316\264\316\271\341\275\260
  | whom       set forth as  -      God   a propitiation through
  | RelPro-AMS V-AIM-3S     Art-NMS N-NMS N-ANS          Prep
  |
  | 3588    4102    1722 3588    846       129       1519
- | tēs     pisteōs en   tō      autou     haimati   eis
- | [τῆς]   πίστεως ἐν   τῷ      αὐτοῦ     αἵματι  , εἰς
+ | t\304\223s     piste\305\215s en   t\305\215      autou     haimati   eis
+ | [\317\204\341\277\206\317\202]   \317\200\316\257\317\203\317\204\316\265\317\211\317\202 \341\274\220\316\275   \317\204\341\277\267      \316\261\341\275\220\317\204\316\277\341\277\246     \316\261\341\274\265\316\274\316\261\317\204\316\271  , \316\265\341\274\260\317\202
  |   -      faith   in    -      His       blood     for
  |  Art-GFS N-GFS   Prep Art-DNS PPro-GM3S N-DNS     Prep
  | 
  |  1732            3588    1343          846       1223
- |  endeixin        tēs     dikaiosynēs   autou     dia
- |  ἔνδειξιν        τῆς     δικαιοσύνης   αὐτοῦ  ,  διὰ
+ |  endeixin        t\304\223s     dikaiosyn\304\223s   autou     dia
+ |  \341\274\224\316\275\316\264\316\265\316\271\316\276\316\271\316\275        \317\204\341\277\206\317\202     \316\264\316\271\316\272\316\261\316\271\316\277\317\203\317\215\316\275\316\267\317\202   \316\261\341\275\220\317\204\316\277\341\277\246  ,  \316\264\316\271\341\275\260
  |  a showing forth of the  righteousness of Him    because of
  |  N-AFS           Art-GFS N-GFS         PPro-GM3S Prep
  | 
  |  3588    3929        3588    4266
- |  tēn     paresin     tōn     progegonotōn
- |  τὴν     πάρεσιν     τῶν     προγεγονότων
+ |  t\304\223n     paresin     t\305\215n     progegonot\305\215n
+ |  \317\204\341\275\264\316\275     \317\200\316\254\317\201\316\265\317\203\316\271\316\275     \317\204\341\277\266\316\275     \317\200\317\201\316\277\316\263\316\265\316\263\316\277\316\275\317\214\317\204\317\211\316\275
  |  the     forbearance of the  having taken place beforehand
  |  Art-AFS N-AFS       Art-GNP V-RPA-GNP
  | 
  |  265            1722 3588    463         3588    2316
- |  hamartēmatōn   en   tē      anochē      tou     Theou
- |  ἁμαρτημάτων  — ἐν   τῇ      ἀνοχῇ       τοῦ     Θεοῦ  ;
+ |  hamart\304\223mat\305\215n   en   t\304\223      anoch\304\223      tou     Theou
+ |  \341\274\201\316\274\316\261\317\201\317\204\316\267\316\274\316\254\317\204\317\211\316\275  \342\200\224 \341\274\220\316\275   \317\204\341\277\207      \341\274\200\316\275\316\277\317\207\341\277\207       \317\204\316\277\341\277\246     \316\230\316\265\316\277\341\277\246  ;
  |  sins           in   the     forbearance  -      of God
  |  N-GNP          Prep Art-DFS N-DFS       Art-GMS N-GMS
 
@@ -53507,20 +53688,20 @@ from sin" then they are not speaking the same gospel, they're not speaking the s
 Apostles.
 
  | 235  2532 1437 1473     2228 32       1537   3772
- | Alla kai  ean  hēmeis   ē    angelos  ex     ouranou
- | Ἀλλὰ καὶ  ἐὰν  ἡμεῖς    ἢ    ἄγγελος  ἐξ     οὐρανοῦ
+ | Alla kai  ean  h\304\223meis   \304\223    angelos  ex     ouranou
+ | \341\274\210\316\273\316\273\341\275\260 \316\272\316\261\341\275\266  \341\274\220\341\275\260\316\275  \341\274\241\316\274\316\265\341\277\226\317\202    \341\274\242    \341\274\204\316\263\316\263\316\265\316\273\316\277\317\202  \341\274\220\316\276     \316\277\341\275\220\317\201\316\261\316\275\316\277\341\277\246
  | But  even if   we       or   an angel out of heaven
  | Conj Conj Conj PPro-N1P Conj N-NMS    Prep   N-GMS
  |
  | 2097                   4771     3844        3739
- | euangelizētai          hymin    par’        ho
- | εὐαγγελίζηται*         ὑμῖν     παρ’        ὃ
+ | euangeliz\304\223tai          hymin    par\342\200\231        ho
+ | \316\265\341\275\220\316\261\316\263\316\263\316\265\316\273\316\257\316\266\316\267\317\204\316\261\316\271*         \341\275\221\316\274\341\277\226\316\275     \317\200\316\261\317\201\342\200\231        \341\275\203
  |  should preach a gospel to you   contrary to what
  |  V-PSM-3S               PPro-D2P Prep        RelPro-ANS
  | 
  |  2097            4771     331      1510
- |  euēngelisametha hymin    anathema estō
- |  εὐηγγελισάμεθα  ὑμῖν  ,  ἀνάθεμα  ἔστω  !
+ |  eu\304\223ngelisametha hymin    anathema est\305\215
+ |  \316\265\341\275\220\316\267\316\263\316\263\316\265\316\273\316\271\317\203\316\254\316\274\316\265\316\270\316\261  \341\275\221\316\274\341\277\226\316\275  ,  \341\274\200\316\275\316\254\316\270\316\265\316\274\316\261  \341\274\224\317\203\317\204\317\211  !
  |  we proclaimed   to you   accursed let him be
  |  V-AIM-1P        PPro-D2P N-NNS    V-PMA-3S
 
@@ -53989,32 +54170,32 @@ to take place in quickness (G5034 quickness) And He signified [it] having sent t
 servant of Him John (Interlinear)
 
  | 602              2424     5547       3739       1325     846
- | Apokalypsis      Iēsou    Christou   hēn        edōken   autō
- | Ἀποκάλυψις       Ἰησοῦ    Χριστοῦ  , ἣν         ἔδωκεν   αὐτῷ
+ | Apokalypsis      I\304\223sou    Christou   h\304\223n        ed\305\215ken   aut\305\215
+ | \341\274\210\317\200\316\277\316\272\316\254\316\273\317\205\317\210\316\271\317\202       \341\274\270\316\267\317\203\316\277\341\277\246    \316\247\317\201\316\271\317\203\317\204\316\277\341\277\246  , \341\274\243\316\275         \341\274\224\316\264\317\211\316\272\316\265\316\275   \316\261\341\275\220\317\204\341\277\267
  | [The] revelation of Jesus Christ     which      gave     Him
  | N-NFS            N-GMS    N-GMS      RelPro-AFS V-AIA-3S PPro-DM3S
  |
  | 3588    2316    1166    3588    1401          846       3739
  | ho      Theos   deixai  tois    doulois       autou     ha
- | ὁ       Θεός  , δεῖξαι  τοῖς    δούλοις       αὐτοῦ     ἃ
+ | \341\275\201       \316\230\316\265\317\214\317\202  , \316\264\316\265\341\277\226\316\276\316\261\316\271  \317\204\316\277\341\277\226\317\202    \316\264\316\277\317\215\316\273\316\277\316\271\317\202       \316\261\341\275\220\317\204\316\277\341\277\246     \341\274\203
  |   -      God     to show to the  bond-servants of Him    what things
  |  Art-NMS N-NMS   V-ANA   Art-DMP N-DMP         PPro-GM3S RelPro-ANP
  | 
  |  1163        1096          1722 5034      2532 4591
- |  dei         genesthai     en   tachei    kai  esēmanen
- |  δεῖ         γενέσθαι      ἐν   τάχει  .  καὶ  ἐσήμανεν  ,
+ |  dei         genesthai     en   tachei    kai  es\304\223manen
+ |  \316\264\316\265\341\277\226         \316\263\316\265\316\275\316\255\317\203\316\270\316\261\316\271      \341\274\220\316\275   \317\204\316\254\317\207\316\265\316\271  .  \316\272\316\261\341\275\266  \341\274\220\317\203\316\256\316\274\316\261\316\275\316\265\316\275  ,
  |  it behooves to take place in   quickness And  He signified [it]
  |  V-PIA-3S    V-ANM         Prep N-DNS     Conj V-AIA-3S
  | 
  |  649         1223    3588    32      846       3588     1401
- |  aposteilas  dia     tou     angelou autou     tō       doulō
- |  ἀποστείλας  διὰ     τοῦ     ἀγγέλου αὐτοῦ  ,  τῷ       δούλῳ
+ |  aposteilas  dia     tou     angelou autou     t\305\215       doul\305\215
+ |  \341\274\200\317\200\316\277\317\203\317\204\316\265\316\257\316\273\316\261\317\202  \316\264\316\271\341\275\260     \317\204\316\277\341\277\246     \341\274\200\316\263\316\263\316\255\316\273\316\277\317\205 \316\261\341\275\220\317\204\316\277\341\277\246  ,  \317\204\341\277\267       \316\264\316\277\317\215\316\273\341\277\263
  |  having sent through the     angel   of Him    to the   servant
  |  V-APA-NMS   Prep    Art-GMS N-GMS   PPro-GM3S Art-DMS  N-DMS
  | 
  |  846       2491
- |  autou     Iōannē
- |  αὐτοῦ  ,  Ἰωάννῃ  ,
+ |  autou     I\305\215ann\304\223
+ |  \316\261\341\275\220\317\204\316\277\341\277\246  ,  \341\274\270\317\211\316\254\316\275\316\275\341\277\203  ,
  |  of Him    John
  |  PPro-GM3S N-DMS
 
@@ -54201,20 +54382,20 @@ knowledge of His name (onoma):
   in the name of Him (Interlinear)
 
  | 3745       1161     2983     846       1325     846
- | hosoi      de       elabon   auton     edōken   autois
- | ὅσοι       δὲ       ἔλαβον   αὐτόν  ,  ἔδωκεν   αὐτοῖς
+ | hosoi      de       elabon   auton     ed\305\215ken   autois
+ | \341\275\205\317\203\316\277\316\271       \316\264\341\275\262       \341\274\224\316\273\316\261\316\262\316\277\316\275   \316\261\341\275\220\317\204\317\214\316\275  ,  \341\274\224\316\264\317\211\316\272\316\265\316\275   \316\261\341\275\220\317\204\316\277\341\277\226\317\202
  | As many as however  received Him       He gave  to them
  | RelPro-NMP Conj     V-AIA-3P PPro-AM3S V-AIA-3S PPro-DM3P
  |
  | 1849      5043     2316   1096        3588     4100
  | exousian  tekna    Theou  genesthai   tois     pisteuousin
- | ἐξουσίαν  τέκνα    Θεοῦ   γενέσθαι  , τοῖς     πιστεύουσιν
+ | \341\274\220\316\276\316\277\317\205\317\203\316\257\316\261\316\275  \317\204\316\255\316\272\316\275\316\261    \316\230\316\265\316\277\341\277\246   \316\263\316\265\316\275\316\255\317\203\316\270\316\261\316\271  , \317\204\316\277\341\277\226\317\202     \317\200\316\271\317\203\317\204\316\265\317\215\316\277\317\205\317\203\316\271\316\275
  |  authority children of God to be       to those believing
  |  N-AFS     N-ANP    N-GMS  V-ANM       Art-DMP  V-PPA-DMP
  | 
  |  1519 3588    3686  846
  |  eis  to      onoma autou
- |  εἰς  τὸ      ὄνομα αὐτοῦ  ,
+ |  \316\265\341\274\260\317\202  \317\204\341\275\270      \341\275\204\316\275\316\277\316\274\316\261 \316\261\341\275\220\317\204\316\277\341\277\246  ,
  |  in   the     name  of Him
  |  Prep Art-ANS N-ANS PPro-GM3S
 
@@ -55299,14 +55480,14 @@ Let's see what the word katergazomai (the word for 'work out') means:
 • Philippians 2:12 (Interlinear)
 
  | 5620      27       1473     2531     3842     5219            3361     5613     1722     3588     3952     1473
- | Hōste     agapētoi mou      kathōs   pantote  hypēkousate     mē       hōs      en       tē       parousia mou
- | Ὥστε  ,   ἀγαπητοί μου  ,   καθὼς    πάντοτε  ὑπηκούσατε  ,   μὴ       ὡς       ἐν       τῇ       παρουσίᾳ μου
+ | H\305\215ste     agap\304\223toi mou      kath\305\215s   pantote  hyp\304\223kousate     m\304\223       h\305\215s      en       t\304\223       parousia mou
+ | \341\275\255\317\203\317\204\316\265  ,   \341\274\200\316\263\316\261\317\200\316\267\317\204\316\277\316\257 \316\274\316\277\317\205  ,   \316\272\316\261\316\270\341\275\274\317\202    \317\200\316\254\316\275\317\204\316\277\317\204\316\265  \341\275\221\317\200\316\267\316\272\316\277\317\215\317\203\316\261\317\204\316\265  ,   \316\274\341\275\264       \341\275\241\317\202       \341\274\220\316\275       \317\204\341\277\207       \317\200\316\261\317\201\316\277\317\205\317\203\316\257\341\276\263 \316\274\316\277\317\205
  | Therefore beloved  of me    just as  always   you have obeyed not      as       in       the      presence of me
  | Conj      Adj-VMP  PPro-G1S Adv      Adv      V-AIA-2P        Adv      Adv      Prep     Art-DFS  N-DFS    PPro-G1S
 
  | 3440     235     3568     4183     3123     1722     3588     666     1473     3326     5401     2532
- | monon    alla    nyn      pollō    mallon   en       tē       apousia mou      meta     phobou   kai
- | μόνον  , ἀλλὰ    νῦν      πολλῷ    μᾶλλον   ἐν       τῇ       ἀπουσίᾳ μου  ,   μετὰ     φόβου    καὶ
+ | monon    alla    nyn      poll\305\215    mallon   en       t\304\223       apousia mou      meta     phobou   kai
+ | \316\274\317\214\316\275\316\277\316\275  , \341\274\200\316\273\316\273\341\275\260    \316\275\341\277\246\316\275      \317\200\316\277\316\273\316\273\341\277\267    \316\274\341\276\266\316\273\316\273\316\277\316\275   \341\274\220\316\275       \317\204\341\277\207       \341\274\200\317\200\316\277\317\205\317\203\316\257\341\276\263 \316\274\316\277\317\205  ,   \316\274\316\265\317\204\341\275\260     \317\206\317\214\316\262\316\277\317\205    \316\272\316\261\341\275\266
  | only     but     now      much     more     in       the      absence of me    with     fear     and
  | Adv      Conj    Adv      Adj-DNS  Adv      Prep     Art-DFS  N-DFS   PPro-G1S Prep     N-GMS    Conj
 
@@ -55316,8 +55497,8 @@ us, and the salvation which we are performing is not the result of works) - so I
 rather than 'work' in any way that is not in obedience to the gospel:
 
  | 5156      3588     1438        4991      2716
- | tromou    tēn      heautōn     sōtērian  katergazesthe
- | τρόμου    τὴν      ἑαυτῶν      σωτηρίαν  κατεργάζεσθε  .
+ | tromou    t\304\223n      heaut\305\215n     s\305\215t\304\223rian  katergazesthe
+ | \317\204\317\201\317\214\316\274\316\277\317\205    \317\204\341\275\264\316\275      \341\274\221\316\261\317\205\317\204\341\277\266\316\275      \317\203\317\211\317\204\316\267\317\201\316\257\316\261\316\275  \316\272\316\261\317\204\316\265\317\201\316\263\316\254\316\266\316\265\317\203\316\270\316\265  .
  | trembling  -       your own    salvation work out
  | N-GMS     Art-AFS  RefPro-GM3P N-AFS     V-PMM/P-2P
 
@@ -56741,6 +56922,11 @@ will of God from the heart, (ESV)
 • Give thanks in all circumstances
 • I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ Jesus for
 you. (ESV)
+• Ephesians 5:17-21 - Therefore do not be foolish, but understand what the will of the Lord is. And do not
+get drunk with wine, for that is debauchery, but be filled with the Spirit, addressing one another in
+psalms and hymns and spiritual songs, singing and making melody to the Lord with all your heart, giving
+thanks always and for everything to God the Father in the name of our Lord Jesus Christ, submitting to
+one another out of reverence for Christ. (ESV)
 • Abstain from evil
 • I Thessalonians 4:3-8 - For this is the will of God, your sanctification: that you abstain from sexual
 immorality; that each one of you know how to control his own body in holiness and honor, not in the
@@ -58661,7 +58847,7 @@ A translation which contains the Divine Name: https://www.njvbible.com/
   in all the earth. (ESV)
 
  | Yhvh: the proper name of the God of Israel
- | Original Word: יהוה
+ | Original Word: \327\231\326\260\327\224\327\225\326\270\326\271\327\224
  | Part of Speech: Proper Name
  | Transliteration: Yhvh
  | Phonetic Spelling: (yeh-ho-vaw')
@@ -60145,13 +60331,13 @@ by, under, beneath, through
 
  | 3756 1510     5259  3551
  | ouk  esmen    hypo  nomon
- | οὐκ  ἐσμὲν    ὑπὸ   νόμον ,
+ | \316\277\341\275\220\316\272  \341\274\220\317\203\316\274\341\275\262\316\275    \341\275\221\317\200\341\275\270   \316\275\317\214\316\274\316\277\316\275 ,
  | not  we are   under law
  | Adv  V-PIA-1P Prep  N-AMS
  |
  | 235  5259  5485
  | alla hypo  charin
- | ἀλλὰ ὑπὸ   χάριν ?
+ | \341\274\200\316\273\316\273\341\275\260 \341\275\221\317\200\341\275\270   \317\207\316\254\317\201\316\271\316\275 ?
  |  but  under grace
  |  Conj Prep  N-AFS
 
@@ -60643,7 +60829,7 @@ Last month the Vatican put out another article:
 
 vatican.va en.html: Antiqua et nova. Note AI and Our Relationship with God
 
- | 104. Technology offers remarkable tools to oversee and develop the world’s
+ | 104. Technology offers remarkable tools to oversee and develop the world\342\200\231s
  | resources. However, in some cases, humanity is increasingly ceding control of
  | these resources to machines. Within some circles of scientists and futurists,
  | there is optimism about the potential of artificial general intelligence
@@ -60651,23 +60837,23 @@ vatican.va en.html: Antiqua et nova. Note AI and Our Relationship with God
  | intelligence and bring about unimaginable advancements. Some even speculate
  | that AGI could achieve superhuman capabilities. At the same time, as society
  | drifts away from a connection with the transcendent, some are tempted to turn
- | to AI in search of meaning or fulfillment—longings that can only be truly
+ | to AI in search of meaning or fulfillment\342\200\224longings that can only be truly
  |  satisfied in communion with God.[194]
  | 
  |  105. However, the presumption of substituting God for an artifact of human
  |  making is idolatry, a practice Scripture explicitly warns against (e.g., Ex.
  |  20:4; Ex. 32:1-5; Ex. 34:17). Moreover, AI may prove even more seductive than
- |  traditional idols for, unlike idols that “have mouths but do not speak; eyes,
- |  but do not see; ears, but do not hear” (Ps. 115:5-6), AI can “speak,” or at
+ |  traditional idols for, unlike idols that \342\200\234have mouths but do not speak; eyes,
+ |  but do not see; ears, but do not hear\342\200\235 (Ps. 115:5-6), AI can \342\200\234speak,\342\200\235 or at
  |  least gives the illusion of doing so (cf. Rev. 13:15). Yet, it is vital to
- |  remember that AI is but a pale reflection of humanity—it is crafted by human
+ |  remember that AI is but a pale reflection of humanity\342\200\224it is crafted by human
  |  minds, trained on human-generated material, responsive to human input, and
  |  sustained through human labor. AI cannot possess many of the capabilities
  |  specific to human life, and it is also fallible. By turning to AI as a
- |  perceived “Other” greater than itself, with which to share existence and
+ |  perceived \342\200\234Other\342\200\235 greater than itself, with which to share existence and
  |  responsibilities, humanity risks creating a substitute for God. However, it
  |  is not AI that is ultimately deified and worshipped, but humanity
- |  itself—which, in this way, becomes enslaved to its own work.[195]
+ |  itself\342\200\224which, in this way, becomes enslaved to its own work.[195]
 
 An excerpt from John Piper on his take:
 
@@ -64234,16 +64420,16 @@ Hearkening, listening and obeying seems to be what we're called to do:
 Interlinear of the initial part of Deuteronomy 28:1:
 
  | 1961                        518
- | wə·hā·yāh,                  ’im-
- | והיה                        אם־
+ | w\311\231\302\267h\304\201\302\267y\304\201h,                  \342\200\231im-
+ | \327\225\326\260\327\224\326\270\327\231\326\270\326\227\327\224                        \327\220\326\264\327\235\326\276
  | Now it shall come to pass   if
- | Conj‑w | V‑Qal‑ConjPerf‑3ms Conj
+ | Conj\342\200\221w | V\342\200\221Qal\342\200\221ConjPerf\342\200\2213ms Conj
  |
  | 8085         8085             6963           3068
- | šā·mō·w·a‘   tiš·ma‘          bə·qō·wl       Yah·weh
- | שמוע         תשמע             בקול           יהוה
+ | \305\241\304\201\302\267m\305\215\302\267w\302\267a\342\200\230   ti\305\241\302\267ma\342\200\230          b\311\231\302\267q\305\215\302\267wl       Yah\302\267weh
+ | \327\251\326\270\327\201\327\236\326\244\327\225\326\271\327\242\326\267         \327\252\326\264\326\274\327\251\326\260\327\201\327\236\326\267\327\242\326\231             \327\221\326\260\326\274\327\247\327\225\326\271\327\234\326\231           \327\231\326\260\327\224\327\225\326\270\326\243\327\224
  |  diligently   you obey         the voice      of Yahweh
- |  V‑Qal‑InfAbs V‑Qal‑Imperf‑2ms Prep‑b | N‑msc N‑proper‑ms
+ |  V\342\200\221Qal\342\200\221InfAbs V\342\200\221Qal\342\200\221Imperf\342\200\2212ms Prep\342\200\221b | N\342\200\221msc N\342\200\221proper\342\200\221ms
 
 6963. qol
 sound, voice
@@ -64833,14 +65019,14 @@ trusting in God and you'll never be thirsty again.
   will flow of water living (Interlinear)
 
  | 3588      4100      1519 1473     2531   2036     3588    1124      4215
- | ho        pisteuōn  eis  eme      kathōs eipen    hē      graphē    Potamoi
- | ὁ         πιστεύων  εἰς  ἐμέ  ,   καθὼς  εἶπεν    ἡ       γραφή  :  Ποταμοὶ
+ | ho        pisteu\305\215n  eis  eme      kath\305\215s eipen    h\304\223      graph\304\223    Potamoi
+ | \341\275\201         \317\200\316\271\317\203\317\204\316\265\317\215\317\211\316\275  \316\265\341\274\260\317\202  \341\274\220\316\274\316\255  ,   \316\272\316\261\316\270\341\275\274\317\202  \316\265\341\274\266\317\200\316\265\316\275    \341\274\241       \316\263\317\201\316\261\317\206\316\256  :  \316\240\316\277\317\204\316\261\316\274\316\277\341\275\266
  | The [one] believing in   Me       as     has said the     Scripture Rivers
  | Art-NMS   V-PPA-NMS Prep PPro-A1S Adv    V-AIA-3S Art-NFS N-NFS     N-NMP
  |
  | 1537   3588    2836    846       4482       5204     2198
- | ek     tēs     koilias autou     rheusousin hydatos  zōntos
- | ἐκ     τῆς     κοιλίας αὐτοῦ     ῥεύσουσιν  ὕδατος   ζῶντος  .
+ | ek     t\304\223s     koilias autou     rheusousin hydatos  z\305\215ntos
+ | \341\274\220\316\272     \317\204\341\277\206\317\202     \316\272\316\277\316\271\316\273\316\257\316\261\317\202 \316\261\341\275\220\317\204\316\277\341\277\246     \341\277\245\316\265\317\215\317\203\316\277\317\205\317\203\316\271\316\275  \341\275\225\316\264\316\261\317\204\316\277\317\202   \316\266\341\277\266\316\275\317\204\316\277\317\202  .
  |  out of the     belly   of him    will flow  of water living
  |  Prep   Art-GFS N-GFS   PPro-GM3S V-FIA-3P   N-GNS    V-PPA-GNS
 
@@ -65505,7 +65691,7 @@ biblehub.com 4-20.htm: Romans 4:20 Interlinear: and at the promise of God did no
 strengthened in faith, having given glory to God,
 
  | apistia: unbelief
- | Original Word: ἀπιστία, ας, ἡ
+ | Original Word: \341\274\200\317\200\316\271\317\203\317\204\316\257\316\261, \316\261\317\202, \341\274\241
  | Part of Speech: Noun, Feminine
  | Transliteration: apistia
  | Phonetic Spelling: (ap-is-tee'-ah)
@@ -65691,8 +65877,8 @@ biblehub.com 10-9.htm: Romans 10:9 Interlinear: that if thou mayest confess
 heart that God did raise him out of the dead, thou shalt be saved,]]
 
  | 4982 [e]
- | sōthēsē
- | σωθήσῃ  .
+ | s\305\215th\304\223s\304\223
+ | \317\203\317\211\316\270\316\256\317\203\341\277\203  .
  | you will be saved
  | V-FIP-2S
 
@@ -67242,6 +67428,11 @@ will of God from the heart, (ESV)
 • Give thanks in all circumstances
 • I Thessalonians 5:18 - give thanks in all circumstances; for this is the will of God in Christ Jesus for
 you. (ESV)
+• Ephesians 5:17-21 - Therefore do not be foolish, but understand what the will of the Lord is. And do not
+get drunk with wine, for that is debauchery, but be filled with the Spirit, addressing one another in
+psalms and hymns and spiritual songs, singing and making melody to the Lord with all your heart, giving
+thanks always and for everything to God the Father in the name of our Lord Jesus Christ, submitting to
+one another out of reverence for Christ. (ESV)
 • Abstain from evil
 • I Thessalonians 4:3-8 - For this is the will of God, your sanctification: that you abstain from sexual
 immorality; that each one of you know how to control his own body in holiness and honor, not in the
@@ -68083,26 +68274,26 @@ biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, tha
 gave, that every one who is believing in him may not perish, but may have life age-during.
 
  | 3778   1063 25       3588    2316  3588    2889      5620
- | Houtōs gar  ēgapēsen ho      Theos ton     kosmon    hōste
- | Οὕτως  γὰρ  ἠγάπησεν ὁ       Θεὸς  τὸν     κόσμον  , ὥστε
+ | Hout\305\215s gar  \304\223gap\304\223sen ho      Theos ton     kosmon    h\305\215ste
+ | \316\237\341\275\225\317\204\317\211\317\202  \316\263\341\275\260\317\201  \341\274\240\316\263\316\254\317\200\316\267\317\203\316\265\316\275 \341\275\201       \316\230\316\265\341\275\270\317\202  \317\204\341\275\270\316\275     \316\272\317\214\317\203\316\274\316\277\316\275  , \341\275\245\317\203\317\204\316\265
  | Thus   for  loved     -      God   the     world     that
  | Adv    Conj V-AIA-3S Art-NMS N-NMS Art-AMS N-AMS     Conj
  |
  | 3588    5207    3588    3439          1325
- | ton     Huion   ton     monogenē      edōken
- | τὸν     Υἱὸν  , τὸν     μονογενῆ  ,   ἔδωκεν  ,
+ | ton     Huion   ton     monogen\304\223      ed\305\215ken
+ | \317\204\341\275\270\316\275     \316\245\341\274\261\341\275\270\316\275  , \317\204\341\275\270\316\275     \316\274\316\277\316\275\316\277\316\263\316\265\316\275\341\277\206  ,   \341\274\224\316\264\317\211\316\272\316\265\316\275  ,
  |  the     Son     the     only begotten He gave
  |  Art-AMS N-AMS   Art-AMS Adj-AMS       V-AIA-3S
  | 
  |  2443    3956     3588    4100      1519 846
- |  hina    pas      ho      pisteuōn  eis  auton
- |  ἵνα     πᾶς      ὁ       πιστεύων  εἰς  αὐτὸν
+ |  hina    pas      ho      pisteu\305\215n  eis  auton
+ |  \341\274\265\316\275\316\261     \317\200\341\276\266\317\202      \341\275\201       \317\200\316\271\317\203\317\204\316\265\317\215\317\211\316\275  \316\265\341\274\260\317\202  \316\261\341\275\220\317\204\341\275\270\316\275
  |  so that everyone  -      believing in   Him
  |  Conj    Adj-NMS  Art-NMS V-PPA-NMS Prep PPro-AM3S
  | 
  |  3361 622           235  2192        2222  166
- |  mē   apolētai      all’ echē        zōēn  aiōnion
- |  μὴ   ἀπόληται  ,   ἀλλ’ ἔχῃ         ζωὴν  αἰώνιον  .
+ |  m\304\223   apol\304\223tai      all\342\200\231 ech\304\223        z\305\215\304\223n  ai\305\215nion
+ |  \316\274\341\275\264   \341\274\200\317\200\317\214\316\273\316\267\317\204\316\261\316\271  ,   \341\274\200\316\273\316\273\342\200\231 \341\274\224\317\207\341\277\203         \316\266\317\211\341\275\264\316\275  \316\261\341\274\260\317\216\316\275\316\271\316\277\316\275  .
  |  not  should perish but  should have life  eternal
  |  Adv  V-ASM-3S      Conj V-PSA-3S    N-AFS Adj-AFS
 
@@ -69382,10 +69573,10 @@ youtube.com: Strive to Enter or Believe to Enter??
 Apparently the author of Hebrews believes that making every effort to labor to get into God's rest and believing
 in order to get into God's rest are not incompatible partners.
 
- | agónizomai: to contend for a prize, struggle
- | Original Word: ἀγωνίζομαι
+ | ag\303\263nizomai: to contend for a prize, struggle
+ | Original Word: \341\274\200\316\263\317\211\316\275\316\257\316\266\316\277\316\274\316\261\316\271
  | Part of Speech: Verb
- | Transliteration: agónizomai
+ | Transliteration: ag\303\263nizomai
  | Phonetic Spelling: (ag-o-nid'-zom-ahee)
  | Definition: to contend for a prize, struggle
  | Usage: I am struggling, striving (as in an athletic contest or warfare); I contend, as with an adversary.
@@ -69406,7 +69597,7 @@ in order to get into God's rest are not incompatible partners.
   and some are first who will be last. (ESV)
 
  | adikia: injustice, unrighteousness
- | Original Word: ἀδικία, ας, ἡ
+ | Original Word: \341\274\200\316\264\316\271\316\272\316\257\316\261, \316\261\317\202, \341\274\241
  | Part of Speech: Noun, Feminine
  | Transliteration: adikia
  | Phonetic Spelling: (ad-ee-kee'-ah)
@@ -71927,7 +72118,7 @@ We must not be workers of lawlessness, but our belief should produce more obedie
   Matthew 6:10 - Your kingdom come, your will be done, on earth as it is in heaven. (ESV)
 
  | anomia: lawlessness
- | Original Word: ἀνομία, ας, ἡ
+ | Original Word: \341\274\200\316\275\316\277\316\274\316\257\316\261, \316\261\317\202, \341\274\241
  | Part of Speech: Noun, Feminine
  | Transliteration: anomia
  | Phonetic Spelling: (an-om-ee'-ah)
@@ -71935,20 +72126,20 @@ We must not be workers of lawlessness, but our belief should produce more obedie
  | Usage: lawlessness, iniquity, disobedience, sin.
 
  | 2532 5119 3670           846       3754   3763      1097
- | kai  tote homologēsō     autois    hoti   Oudepote  egnōn
- | καὶ  τότε ὁμολογήσω      αὐτοῖς    ὅτι  , Οὐδέποτε  ἔγνων
+ | kai  tote homolog\304\223s\305\215     autois    hoti   Oudepote  egn\305\215n
+ | \316\272\316\261\341\275\266  \317\204\317\214\317\204\316\265 \341\275\201\316\274\316\277\316\273\316\277\316\263\316\256\317\203\317\211      \316\261\341\275\220\317\204\316\277\341\277\226\317\202    \341\275\205\317\204\316\271  , \316\237\341\275\220\316\264\316\255\317\200\316\277\317\204\316\265  \341\274\224\316\263\316\275\317\211\316\275
  | And  then I will declare to them    -     Never     knew I
  | Conj Adv  V-FIA-1S       PPro-DM3P Conj   Adv       V-AIA-1S
  |
  | 4771     672         575  1473     3588    2038 [e]
- | hymas    apochōreite ap’  emou     hoi     ergazomenoi
- | ὑμᾶς  ;  ἀποχωρεῖτε  ἀπ’  ἐμοῦ  ,  οἱ      ἐργαζόμενοι
+ | hymas    apoch\305\215reite ap\342\200\231  emou     hoi     ergazomenoi
+ | \341\275\221\316\274\341\276\266\317\202  ;  \341\274\200\317\200\316\277\317\207\317\211\317\201\316\265\341\277\226\317\204\316\265  \341\274\200\317\200\342\200\231  \341\274\220\316\274\316\277\341\277\246  ,  \316\277\341\274\261      \341\274\220\317\201\316\263\316\261\316\266\317\214\316\274\316\265\316\275\316\277\316\271
  |  you      depart you  from Me       those   working
  |  PPro-A2P V-PMA-2P    Prep PPro-G1S Art-VMP V-PPM/P-VMP
  | 
  |  3588    458
- |  tēn     anomian
- |  τὴν     ἀνομίαν  .
+ |  t\304\223n     anomian
+ |  \317\204\341\275\264\316\275     \341\274\200\316\275\316\277\316\274\316\257\316\261\316\275  .
  |   -      lawlessness
  |  Art-AFS N-AFS
 
@@ -72667,28 +72858,28 @@ study on ages and generations.
 John 11:25:
 
  | 2036     846       3588    2424     1473     1510     3588    386
- | Eipen    autē      ho      Iēsous   Egō      eimi     hē      anastasis
- | Εἶπεν    αὐτῇ      ὁ       Ἰησοῦς , Ἐγώ      εἰμι     ἡ       ἀνάστασις
+ | Eipen    aut\304\223      ho      I\304\223sous   Eg\305\215      eimi     h\304\223      anastasis
+ | \316\225\341\274\266\317\200\316\265\316\275    \316\261\341\275\220\317\204\341\277\207      \341\275\201       \341\274\270\316\267\317\203\316\277\341\277\246\317\202 , \341\274\230\316\263\317\216      \316\265\341\274\260\316\274\316\271     \341\274\241       \341\274\200\316\275\316\254\317\203\317\204\316\261\317\203\316\271\317\202
  | Said     to her     -      Jesus    I        am       the     resurrection
  | V-AIA-3S PPro-DF3S Art-NMS N-NMS    PPro-N1S V-PIA-1S Art-NFS N-NFS
  |
  | 2532 3588    2222   3588      4100      1519 1473     2579    599           2198
- | kai  hē      zōē    ho        pisteuōn  eis  eme      kan     apothanē      zēsetai
- | καὶ  ἡ       ζωή  ; ὁ         πιστεύων  εἰς  ἐμὲ  ,   κἂν     ἀποθάνῃ  ,    ζήσεται  ;
+ | kai  h\304\223      z\305\215\304\223    ho        pisteu\305\215n  eis  eme      kan     apothan\304\223      z\304\223setai
+ | \316\272\316\261\341\275\266  \341\274\241       \316\266\317\211\316\256  ; \341\275\201         \317\200\316\271\317\203\317\204\316\265\317\215\317\211\316\275  \316\265\341\274\260\317\202  \341\274\220\316\274\341\275\262  ,   \316\272\341\274\202\316\275     \341\274\200\317\200\316\277\316\270\316\254\316\275\341\277\203  ,    \316\266\316\256\317\203\316\265\317\204\316\261\316\271  ;
  |  and  the     life   the [one] believing in   Me       even if he should die he will live
  |  Conj Art-NFS N-NFS  Art-NMS   V-PPA-NMS Prep PPro-A1S Adv     V-ASA-3S      V-FIM-3S
 
 John 11:26:
 
  | 2532 3956     3588    2198      2532 4100      1519 1473     3756  3361
- | kai  pas      ho      zōn       kai  pisteuōn  eis  eme      ou    mē
- | καὶ  πᾶς      ὁ       ζῶν       καὶ  πιστεύων  εἰς  ἐμὲ  ,   οὐ    μὴ
+ | kai  pas      ho      z\305\215n       kai  pisteu\305\215n  eis  eme      ou    m\304\223
+ | \316\272\316\261\341\275\266  \317\200\341\276\266\317\202      \341\275\201       \316\266\341\277\266\316\275       \316\272\316\261\341\275\266  \317\200\316\271\317\203\317\204\316\265\317\215\317\211\316\275  \316\265\341\274\260\317\202  \341\274\220\316\274\341\275\262  ,   \316\277\341\275\220    \316\274\341\275\264
  | and  everyone  -      living    and  believing in   Me       never not
  | Conj Adj-NMS  Art-NMS V-PPA-NMS Conj V-PPA-NMS Prep PPro-A1S Adv   Adv
  |
  | 599        1519 3588    165     4100 [e]    3778 [e]
- | apothanē   eis  ton     aiōna   pisteueis   touto
- | ἀποθάνῃ  , εἰς  τὸν     αἰῶνα . πιστεύεις   τοῦτο  ?
+ | apothan\304\223   eis  ton     ai\305\215na   pisteueis   touto
+ | \341\274\200\317\200\316\277\316\270\316\254\316\275\341\277\203  , \316\265\341\274\260\317\202  \317\204\341\275\270\316\275     \316\261\341\274\260\341\277\266\316\275\316\261 . \317\200\316\271\317\203\317\204\316\265\317\215\316\265\316\271\317\202   \317\204\316\277\341\277\246\317\204\316\277  ?
  |  shall die  to   the     age     Believe you this
  |  V-ASA-3S   Prep Art-AMS N-AMS   V-PIA-2S    DPro-ANS
 
@@ -74696,20 +74887,20 @@ transitioning into the new. That might take some shaking off of old things, and 
 obedience to the Truth. But those who are in Christ are a brand new creation, born-again:
 
  | 5620 [e]  1487 [e] 5100 [e] 1722 [e] 5547 [e]  2537 [e]
- | hōste     ei       tis      en       Christō   kainē
- | ὥστε      εἴ       τις      ἐν       Χριστῷ  , καινὴ
+ | h\305\215ste     ei       tis      en       Christ\305\215   kain\304\223
+ | \341\275\245\317\203\317\204\316\265      \316\265\341\274\264       \317\204\316\271\317\202      \341\274\220\316\275       \316\247\317\201\316\271\317\203\317\204\341\277\267  , \316\272\316\261\316\271\316\275\341\275\264
  | Therefore if       anyone   [is] in  Christ    [he is] a new
  | Conj      Conj     IPro-NMS Prep     N-DMS     Adj-NFS
  |
  | 2937 [e]  3588 [e] 744 [e]    3928 [e]         2400 [e]
- | ktisis    ta       archaia    parēlthen        idou
- | κτίσις  . τὰ       ἀρχαῖα     παρῆλθεν  ;      ἰδοὺ  ,
+ | ktisis    ta       archaia    par\304\223lthen        idou
+ | \316\272\317\204\316\257\317\203\316\271\317\202  . \317\204\341\275\260       \341\274\200\317\201\317\207\316\261\341\277\226\316\261     \317\200\316\261\317\201\341\277\206\316\273\316\270\316\265\316\275  ;      \341\274\260\316\264\316\277\341\275\272  ,
  |  creation  The      old things have passed away behold
  |  N-NFS     Art-NNP  Adj-NNP    V-AIA-3S         V-AMA-2S
  | 
  |  1096 [e]            2537 [e]
  |  gegonen             kaina
- |  γέγονεν             καινά  .
+ |  \316\263\316\255\316\263\316\277\316\275\316\265\316\275             \316\272\316\261\316\271\316\275\316\254  .
  |  has come into being [the] new
  |  V-RIA-3S            Adj-NNP
 
@@ -75102,7 +75293,7 @@ prophets up to John…". It's clear that the Law isn't voided because of what Je
  | law (G3551)        | Just a way of specifying the law up to this time,
  | and (G2532)        | not saying the law is only up to this time.
  | the (G3588)        |
- | prophētai (G4396)  |
+ | proph\304\223tai (G4396)  |
  | until (G3360)      |
  | John (G2491)     --+
  |
@@ -78864,20 +79055,20 @@ was a matter of whether they would obey God. But the food itself doesn't do any 
   all the food (Interlinear)
 
  | 3754    3756 1531         846       1519 3588    2588       235  1519 3588
- | hoti    ouk  eisporeuetai autou     eis  tēn     kardian    all’ eis  tēn
- | ὅτι     οὐκ  εἰσπορεύεται αὐτοῦ     εἰς  τὴν     καρδίαν  , ἀλλ’ εἰς  τὴν
+ | hoti    ouk  eisporeuetai autou     eis  t\304\223n     kardian    all\342\200\231 eis  t\304\223n
+ | \341\275\205\317\204\316\271     \316\277\341\275\220\316\272  \316\265\341\274\260\317\203\317\200\316\277\317\201\316\265\317\215\316\265\317\204\316\261\316\271 \316\261\341\275\220\317\204\316\277\341\277\246     \316\265\341\274\260\317\202  \317\204\341\275\264\316\275     \316\272\316\261\317\201\316\264\316\257\316\261\316\275  , \341\274\200\316\273\316\273\342\200\231 \316\265\341\274\260\317\202  \317\204\341\275\264\316\275
  | because not  it enters    of him    into the     heart      but  into the
  | Conj    Adv  V-PIM/P-3S   PPro-GM3S Prep Art-AFS N-AFS      Conj Prep Art-AFS
  |
  | 2836      2532 1519 3588    856       1607           2511       3956    3588
- | koilian   kai  eis  ton     aphedrōna ekporeuetai    katharizōn panta   ta
- | κοιλίαν , καὶ  εἰς  τὸν     ἀφεδρῶνα  ἐκπορεύεται  ? καθαρίζων  πάντα   τὰ
+ | koilian   kai  eis  ton     aphedr\305\215na ekporeuetai    kathariz\305\215n panta   ta
+ | \316\272\316\277\316\271\316\273\316\257\316\261\316\275 , \316\272\316\261\341\275\266  \316\265\341\274\260\317\202  \317\204\341\275\270\316\275     \341\274\200\317\206\316\265\316\264\317\201\341\277\266\316\275\316\261  \341\274\220\316\272\317\200\316\277\317\201\316\265\317\215\316\265\317\204\316\261\316\271  ? \316\272\316\261\316\270\316\261\317\201\316\257\316\266\317\211\316\275  \317\200\316\254\316\275\317\204\316\261   \317\204\341\275\260
  |  belly     and  into the     sewer     goes out       purifying  all     the
  |  N-AFS     Conj Prep Art-AMS N-AMS     V-PIM/P-3S     V-PPA-NMS  Adj-ANP Art-ANP
  | 
  |  1033 [e]
- |  brōmata
- |  βρώματα  .
+ |  br\305\215mata
+ |  \316\262\317\201\317\216\316\274\316\261\317\204\316\261  .
  |  food
  |  N-ANP
 
@@ -81354,10 +81545,10 @@ Faith in the truth - pistis is a strong faith word!
   1 Thessalonians 4:3 - For this is the will of God, your sanctification: that you abstain (568. apechó) from
   sexual immorality; (ESV)
 
- | apechó: to hold back, keep off, to be away, be distant
- | Original Word: ἀπέχω
+ | apech\303\263: to hold back, keep off, to be away, be distant
+ | Original Word: \341\274\200\317\200\316\255\317\207\317\211
  | Part of Speech: Verb
- | Transliteration: apechó
+ | Transliteration: apech\303\263
  | Phonetic Spelling: (ap-ekh'-o)
  | Definition: to hold back, keep off, to be away, be distant
  | Usage: I have in full, am far, it is enough.
@@ -81643,7 +81834,7 @@ The 1689 Baptist confession affirms that the problem of corruption remains after
  | motions thereof, are truly and properly sin.14
  |
  | 13 Rom. 7:18,23; Eccles. 7:20; 1 John 1:8
- |  14 Rom. 7:23–25; Gal. 5:17
+ |  14 Rom. 7:23\342\200\22325; Gal. 5:17
 
   Romans 7:23-25 - but I see in my members another law waging war against the law of my mind and making me captive
   to the law of sin that dwells in my members. Wretched man that I am! Who will deliver me from this body of
@@ -81873,7 +82064,7 @@ Keeping a commandment to "not do" something (such as to "not steal") does not me
 And a cessation from working alongside the faith described in Romans 4:5 is necessary to receive the blessing of
 forgiveness for past sins (Romans 4:6-8).
 
-For a person to be justified by 'faith alone' as some people affirm (not of our own works)a person needs to have
+For a person to be justified by 'faith alone' as some people affirm (not of our own works) person needs to have
 actually stopped working (i.e. resting, abstaining from working evil) at some point that God alone works (John
 6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in Jesus Christ.
 In other words, if somebody is saying to others "I'm justified by faith alone, not my own work, but Jesus' works
@@ -82517,7 +82708,7 @@ Keeping a commandment to "not do" something (such as to "not steal") does not me
 And a cessation from working alongside the faith described in Romans 4:5 is necessary to receive the blessing of
 forgiveness for past sins (Romans 4:6-8).
 
-For a person to be justified by 'faith alone' as some people affirm (not of our own works)a person needs to have
+For a person to be justified by 'faith alone' as some people affirm (not of our own works) person needs to have
 actually stopped working (i.e. resting, abstaining from working evil) at some point that God alone works (John
 6:28-29) in them, while they are acknowledging that they have been ungodly, yet still have faith in Jesus Christ.
 In other words, if somebody is saying to others "I'm justified by faith alone, not my own work, but Jesus' works
@@ -84136,13 +84327,13 @@ Romans 3:28
 
  | 3049 [e]    1063 [e]  1344 [e]        4102 [e]
  | logizometha gar       dikaiousthai    pistei
- | λογιζόμεθα  γὰρ       δικαιοῦσθαι     πίστει
+ | \316\273\316\277\316\263\316\271\316\266\317\214\316\274\316\265\316\270\316\261  \316\263\341\275\260\317\201       \316\264\316\271\316\272\316\261\316\271\316\277\341\277\246\317\203\316\270\316\261\316\271     \317\200\316\257\317\203\317\204\316\265\316\271
  | We reckon   therefore to be justified by faith
  | V-PIM/P-1P  Conj      V-PNM/P         N-DFS
  |
  | 444 [e]     5565 [e]   2041 [e] 3551 [e]
- | anthrōpon   chōris     ergōn    nomou
- | ἄνθρωπον  , χωρὶς      ἔργων    νόμου  .
+ | anthr\305\215pon   ch\305\215ris     erg\305\215n    nomou
+ | \341\274\204\316\275\316\270\317\201\317\211\317\200\316\277\316\275  , \317\207\317\211\317\201\341\275\266\317\202      \341\274\224\317\201\316\263\317\211\316\275    \316\275\317\214\316\274\316\277\317\205  .
  |  a man       apart from works    of the Law
  |  N-AMS       Prep       N-GNP    N-GMS
 
@@ -84312,8 +84503,8 @@ true knowledge about God:
   Hebrews 5:8 - though being a Son He learned from the things He suffered - obedience (Interlinear)
 
  | 2539   1510      5207    3129       575  3739       3958        3588     5218
- | kaiper ōn        Huios   emathen    aph’ hōn        epathen     tēn      hypakoēn
- | καίπερ ὢν        Υἱός  , ἔμαθεν     ἀφ’  ὧν         ἔπαθεν  ,   τὴν      ὑπακοήν  ,
+ | kaiper \305\215n        Huios   emathen    aph\342\200\231 h\305\215n        epathen     t\304\223n      hypako\304\223n
+ | \316\272\316\261\316\257\317\200\316\265\317\201 \341\275\242\316\275        \316\245\341\274\261\317\214\317\202  , \341\274\224\316\274\316\261\316\270\316\265\316\275     \341\274\200\317\206\342\200\231  \341\275\247\316\275         \341\274\224\317\200\316\261\316\270\316\265\316\275  ,   \317\204\341\275\264\316\275      \341\275\221\317\200\316\261\316\272\316\277\316\256\316\275  ,
  | though being     a Son   He learned from the things He suffered  -       obedience
  | Conj   V-PPA-NMS N-NMS   V-AIA-3S   Prep RelPro-GNP V-AIA-3S    Art-AFS  N-AFS
 
@@ -84593,7 +84784,7 @@ Awesome:
   in the Lord your labor is not in vain. (ESV)
 
  | No labor in vain in the Lord.
- | 10:00 PM · Apr 27, 2024
+ | 10:00 PM \302\267 Apr 27, 2024
 
 AMEN!!
 
@@ -85377,10 +85568,10 @@ you; also important is confessing Jesus Christ before others):
   ways, according to the fruit of his deeds. (ESV)
 
  | 3068 [e]
- | Yah·weh
- | יהוה
+ | Yah\302\267weh
+ | \327\231\326\260\327\224\327\225\326\270\326\233\327\224
  | Yahweh
- | N‑proper‑ms
+ | N\342\200\221proper\342\200\221ms
 
   John 8:42 - Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I
   came not of my own accord, but he sent me.
@@ -85614,19 +85805,19 @@ people to not at all mean "fully hearken to / become obedient to the command":
 
 Hupakouó really means to be fully compliant to:
 
- | 5219 /hypakoúō ("obey") is acting under the authority of the one speaking, i.e. really listening to the one giving the charge (order). 5219 /hypakoúō ("to hearken, obey") suggests attentively listening, i.e. fully compliant (responsive).
+ | 5219 /hypako\303\272\305\215 ("obey") is acting under the authority of the one speaking, i.e. really listening to the one giving the charge (order). 5219 /hypako\303\272\305\215 ("to hearken, obey") suggests attentively listening, i.e. fully compliant (responsive).
  |
- | [5219 (hypakoúō) is an "intensification" of the simple verb "to listen" (191 /akoúō, "hear").]
+ | [5219 (hypako\303\272\305\215) is an "intensification" of the simple verb "to listen" (191 /ako\303\272\305\215, "hear").]
 
  | 235  3756 3956    5219       3588    2098         2268   1063 3004
- | All’ ou   pantes  hypēkousan tō      euangeliō    Ēsaias gar  legei
- | Ἀλλ’ οὐ   πάντες  ὑπήκουσαν  τῷ      εὐαγγελίῳ  . Ἠσαΐας γὰρ  λέγει  ,
+ | All\342\200\231 ou   pantes  hyp\304\223kousan t\305\215      euangeli\305\215    \304\222saias gar  legei
+ | \341\274\210\316\273\316\273\342\200\231 \316\277\341\275\220   \317\200\316\254\316\275\317\204\316\265\317\202  \341\275\221\317\200\316\256\316\272\316\277\317\205\317\203\316\261\316\275  \317\204\341\277\267      \316\265\341\275\220\316\261\316\263\316\263\316\265\316\273\316\257\341\277\263  . \341\274\250\317\203\316\261\316\220\316\261\317\202 \316\263\341\275\260\317\201  \316\273\316\255\316\263\316\265\316\271  ,
  | But  not  all     heeded     the     good news    Isaiah for  says
  | Conj Adv  Adj-NMP V-AIA-3P   Art-DNS N-DNS        N-NMS  Conj V-PIA-3S
  |
  | 2962     5101     4100         3588    189    1473
- | Kyrie    tis      episteusen   tē      akoē   hēmōn
- | Κύριε  , τίς      ἐπίστευσεν   τῇ      ἀκοῇ   ἡμῶν  ?
+ | Kyrie    tis      episteusen   t\304\223      ako\304\223   h\304\223m\305\215n
+ | \316\232\317\215\317\201\316\271\316\265  , \317\204\316\257\317\202      \341\274\220\317\200\316\257\317\203\317\204\316\265\317\205\317\203\316\265\316\275   \317\204\341\277\207      \341\274\200\316\272\316\277\341\277\207   \341\274\241\316\274\341\277\266\316\275  ?
  |  Lord     who      has believed the     report of us
  |  N-VMS    IPro-NMS V-AIA-3S     Art-DFS N-DFS  PPro-G1P
 
@@ -86052,20 +86243,20 @@ his life to Him in advance of witnessing His crucifixion:
 biblehub.com 27-3.htm: Matthew 27:3 Interlinear:
 
  | 5119 3708        2455     3588      3860                846       3754
- | Tote idōn        Ioudas   ho        paradidous          auton     hoti
- | Τότε ἰδὼν        Ἰούδας , ὁ         παραδιδοὺς*         αὐτὸν  ,  ὅτι
+ | Tote id\305\215n        Ioudas   ho        paradidous          auton     hoti
+ | \316\244\317\214\317\204\316\265 \341\274\260\316\264\341\275\274\316\275        \341\274\270\316\277\317\215\316\264\316\261\317\202 , \341\275\201         \317\200\316\261\317\201\316\261\316\264\316\271\316\264\316\277\341\275\272\317\202*         \316\261\341\275\220\317\204\341\275\270\316\275  ,  \341\275\205\317\204\316\271
  | Then having seen Judas    the [one] having delivered up Him       that
  | Adv  V-APA-NMS   N-NMS    Art-NMS   V-PPA-NMS           PPro-AM3S Conj
  |
  | 2632             3338                  4762        3588    5144
- | katekrithē       metamelētheis         estrepsen   ta      triakonta
- | κατεκρίθη  ,     μεταμεληθεὶς  ,       ἔστρεψεν    τὰ      τριάκοντα
+ | katekrith\304\223       metamel\304\223theis         estrepsen   ta      triakonta
+ | \316\272\316\261\317\204\316\265\316\272\317\201\316\257\316\270\316\267  ,     \316\274\316\265\317\204\316\261\316\274\316\265\316\273\316\267\316\270\316\265\341\275\266\317\202  ,       \341\274\224\317\203\317\204\317\201\316\265\317\210\316\265\316\275    \317\204\341\275\260      \317\204\317\201\316\271\316\254\316\272\316\277\316\275\317\204\316\261
  |  He was condemned having regretted [it] he returned the     thirty
  |  V-AIP-3S         V-APP-NMS             V-AIA-3S    Art-ANP Adj-ANP
  | 
  |  694              3588    749           2532 4245
  |  argyria          tois    archiereusin  kai  presbyterois
- |  ἀργύρια          τοῖς    ἀρχιερεῦσιν   καὶ  πρεσβυτέροις ,
+ |  \341\274\200\317\201\316\263\317\215\317\201\316\271\316\261          \317\204\316\277\341\277\226\317\202    \341\274\200\317\201\317\207\316\271\316\265\317\201\316\265\341\277\246\317\203\316\271\316\275   \316\272\316\261\341\275\266  \317\200\317\201\316\265\317\203\316\262\317\205\317\204\316\255\317\201\316\277\316\271\317\202 ,
  |  pieces of silver to the  chief priests and  elders
  |  N-ANP            Art-DMP N-DMP         Conj Adj-DMP
 
@@ -88596,7 +88787,7 @@ encouraged. I think we bear His reproach in order to be sanctified and then call
  | 
  |  Now we come to confessing sin.
  | 
- |  "I confess [[https://biblehub.com/greek/3670.htm][(G3670 homologeó)]] all my sins before You, and hold
+ |  "I confess [[https://biblehub.com/greek/3670.htm][(G3670 homologe\303\263)]] all my sins before You, and hold
  |  nothing back. Especially I confess: ..."
  | 
  |  And now name any particular sins that which
@@ -88734,11 +88925,11 @@ and God's plan:
  | 
  |  Response-of-love-to-Jesus = e.g. praise, thankfulness, obeying His commandments
  | 
- |  L ∝ f
+ |  L \342\210\235 f
  |  Love is proportional-to the baggage which has been forgiven
- |  Love ∝ forgiven-baggage
+ |  Love \342\210\235 forgiven-baggage
  | 
- |  Obedience ∝ Love
+ |  Obedience \342\210\235 Love
  | 
  |  F = H * L
  |  Faith = Hope * Love
@@ -88987,9 +89178,9 @@ Belief and action are like a vector.
  |        Serving God plane            /|
  |                                    /                       From past
  |                                   /                          baggage          o     _
- | An obedient    __     agapé    __/       agapé             persecuting       /       /|
+ | An obedient    __     agap\303\251    __/       agap\303\251             persecuting       /       /|
  | and believing   /| 1x Love      /|    2x Love               Jesus           /       /
- | heart          /               /                           to receiving    /   →   /
+ | heart          /               /                           to receiving    /   \342\206\222   /
  |   _           /               /                             forgiveness   /       /
  |    /|         /               /                             and loving   |/_      /
  |   o          o               o                                Jesus              o
@@ -88997,14 +89188,14 @@ Belief and action are like a vector.
  |  --------------------------------------------+-------------+----------------------------
  |                                              |  Dead faith |    Impossible to be
  |        Faithless plane                       |             |     simultaneously
- |        Serving yourself plane                |      o      |   agapé-ing,
+ |        Serving yourself plane                |      o      |   agap\303\251-ing,
  |        Justifying yourself plane             |             |   yoked to God  _
  |             __                               | disobedient |  (led by)       /|
  |              /| Dead works                   +-------------+                /
  |             /                                              |    while      o
  |            /                                               |              /
  |           /            These are entirely worthless        |            |/_
- |          x                                                 |  (led by) agapé-ing,
+ |          x                                                 |  (led by) agap\303\251-ing,
  |                                                            |   yoked to money
 
 Faith has 'magnitude' and may be described as a vector:
@@ -89165,21 +89356,21 @@ belief in the truth:
 
  | 1519 [e] 3739 [e]   2532 [e] 2564 [e]  4771 [e]
  | eis      ho         kai      ekalesen  hymas
- | εἰς      ὃ          καὶ      ἐκάλεσεν  ὑμᾶς  ,
+ | \316\265\341\274\260\317\202      \341\275\203          \316\272\316\261\341\275\266      \341\274\220\316\272\316\254\316\273\316\265\317\203\316\265\316\275  \341\275\221\316\274\341\276\266\317\202  ,
  | to       this       also     He called you
  | Prep     RelPro-ANS Conj     V-AIA-3S  PPro-A2P
 
  | 1223 [e] 3588 [e] 2098 [e]   1473 [e] 1519 [e] 4047 [e]
- | dia      tou      euangeliou hēmōn    eis      peripoiēsin
- | διὰ      τοῦ      εὐαγγελίου ἡμῶν  ,  εἰς      περιποίησιν
+ | dia      tou      euangeliou h\304\223m\305\215n    eis      peripoi\304\223sin
+ | \316\264\316\271\341\275\260      \317\204\316\277\341\277\246      \316\265\341\275\220\316\261\316\263\316\263\316\265\316\273\316\257\316\277\317\205 \341\274\241\316\274\341\277\266\316\275  ,  \316\265\341\274\260\317\202      \317\200\316\265\317\201\316\271\317\200\316\277\316\257\316\267\317\203\316\271\316\275
  | through  the      gospel     of us    to       [the] obtaining
  | Prep     Art-GNS  N-GNS      PPro-G1P Prep     N-AFS
 
 of [the] glory of the Lord of us Jesus Christ:
 
  | 1391 [e]       3588 [e] 2962 [e] 1473 [e] 2424 [e] 5547 [e]
- | doxēs          tou      Kyriou   hēmōn    Iēsou    Christou
- | δόξης          τοῦ      Κυρίου   ἡμῶν     Ἰησοῦ    Χριστοῦ  .
+ | dox\304\223s          tou      Kyriou   h\304\223m\305\215n    I\304\223sou    Christou
+ | \316\264\317\214\316\276\316\267\317\202          \317\204\316\277\341\277\246      \316\232\317\205\317\201\316\257\316\277\317\205   \341\274\241\316\274\341\277\266\316\275     \341\274\270\316\267\317\203\316\277\341\277\246    \316\247\317\201\316\271\317\203\317\204\316\277\341\277\246  .
  | of [the] glory of the   Lord     of us    Jesus    Christ
  | N-GFS          Art-GMS  N-GMS    PPro-G1P N-GMS    N-GMS
 
@@ -91084,74 +91275,74 @@ called to love their fellow countryman. A born-again Christian is in the world b
 
 Lyrics with English poetic (not exactly literal) translation by Rakiraki:
 
- | Poi E                                 ·    O Poi
- | -----                                 ·    -----
- |                                       ·
- | Te poi!                               ·    Poi up!
- | Patua taku poi!                       ·    Beat together, my poi!
- | Patua, kia rite!                      ·    Beat together, be ready!
- | Tāpara patua taku poi e!              ·    Beat together in double time, O my poi!
- |                                       ·     
- | E rere rā e                           ·    Fly forth
- |  Taku poi, porotiti, tītahataha rā     ·    My poi, twirling, swaying side-to-side
- |  Whakararuraru e, porotakataka rā      ·    Going round and round in dazzling circles
- |  Porohurihuri mai                      ·    Turning over and over
- |  Rite tonu ki te tīwaiwaka e           ·    Just like a little fantail
- |                                        ·     
- |  Ka parepare rā, pīoioi rā             ·    Going off to the side, swaying and waving
- |  Whakahekeheke e, kia korikori e       ·    Dropping down low, ever moving
- |  Piki whakarunga rā, māminga mai rā    ·    Climbing high up, ever beguiling
- |  Taku poi, porotiti                    ·    My poi, twirling
- |  Taku poi e!                           ·    O my poi!
- |                                        ·     
- |  Poi e -- whakatata mai                ·    O poi -- come near to me
- |  Poi e -- kaua hei rerekē              ·    O poi -- don't ever change
- |  Poi e -- kia piri mai ki au           ·    O poi -- stick close to me
- |  Poi e -- awhi mai rā                  ·    O poi -- take care of me
- |  Poi e -- tāpekatia mai                ·    O poi -- entwine around me
- |  Poi e -- ō tāua aroha                 ·    O poi -- our love
- |  Poi e -- paiheretia rā                ·    O poi -- it binds us
- |  Poi -- taku poi e!                    ·    Poi -- O my poi!
- |                                        ·     
- |  Rere atu taku poi, tītahataha rā      ·    Fly forth, my poi, sway side-to-side
- |  Whakarunga, whakararo                 ·    Upward and downward
- |  Taku poi e!                           ·    O my poi!
- |                                        ·     
- |  E rere rā e                           ·    Fly forth
- |  Taku poi, porotiti, tītahataha rā     ·    My poi, twirling, swaying side-to-side
- |  Whakararuraru e, porotakataka rā      ·    Going round and round in dazzling circles
- |  Porohurihuri mai                      ·    Turning over and over
- |  Rite tonu ki te tīwaiwaka e           ·    Just like a little fantail
- |                                        ·     
- |  Ka parepare rā, pīoioi rā             ·    Going off to the side, swaying and waving
- |  Whakahekeheke e, kia korikori e       ·    Dropping down low, ever moving
- |  Piki whakarunga rā, māminga mai rā    ·    Climbing high up, ever beguiling
- |  Taku poi, porotiti                    ·    My poi, twirling
- |  Taku poi e!                           ·    O my poi!
- |                                        ·     
- |  Poi e -- whakatata mai                ·    O poi -- come near to me
- |  Poi e -- kaua hei rerekē              ·    O poi -- don't ever change for me
- |  Poi e -- kia piri mai ki au           ·    O poi -- stick close to me
- |  Poi e -- awhi mai rā                  ·    O poi -- take care of me
- |  Poi e -- tāpekatia mai                ·    O poi -- entwine around me
- |  Poi e -- ō tāua aroha                 ·    O poi -- our love
- |  Poi e -- paiheretia rā                ·    O poi -- it binds us together
- |  Poi -- taku poi e!                    ·    Poi -- O my poi!
- |                                        ·     
- |  Poi e -- whakatata mai                ·    O poi -- come near to me
- |  Poi e -- kaua hei rerekē              ·    O poi -- don't ever change for me
- |  Poi e -- kia piri mai ki au           ·    O poi -- stick close to me
- |  Poi e -- awhi mai rā                  ·    O poi -- take care of me
- |  Poi e -- tāpekatia mai                ·    O poi -- entwine around me
- |  Poi e -- ō tāua aroha                 ·    O poi -- our love
- |  Poi e -- paiheretia rā                ·    O poi -- it binds us together
- |  Poi -- taku poi e!                    ·    Poi -- O my poi!
- |  Poi -- taku poi e!                    ·    Poi -- O my poi!
- |  Poi -- taku poi e!                    ·    Poi -- O my poi!
- |                                        ·     
- |  Rere atu taku poi, tītahataha rā      ·    Fly forth, my poi, sway side-to-side
- |  Whakarunga, whakararo                 ·    Upward and downward
- |  Taku poi e!                           ·    O my poi!
+ | Poi E                                 \302\267    O Poi
+ | -----                                 \302\267    -----
+ |                                       \302\267
+ | Te poi!                               \302\267    Poi up!
+ | Patua taku poi!                       \302\267    Beat together, my poi!
+ | Patua, kia rite!                      \302\267    Beat together, be ready!
+ | T\304\201para patua taku poi e!              \302\267    Beat together in double time, O my poi!
+ | \302\240                                     \302\267    \302\240
+ | E rere r\304\201 e                           \302\267    Fly forth
+ |  Taku poi, porotiti, t\304\253tahataha r\304\201     \302\267    My poi, twirling, swaying side-to-side
+ |  Whakararuraru e, porotakataka r\304\201      \302\267    Going round and round in dazzling circles
+ |  Porohurihuri mai                      \302\267    Turning over and over
+ |  Rite tonu ki te t\304\253waiwaka e           \302\267    Just like a little fantail
+ |  \302\240                                     \302\267    \302\240
+ |  Ka parepare r\304\201, p\304\253oioi r\304\201             \302\267    Going off to the side, swaying and waving
+ |  Whakahekeheke e, kia korikori e       \302\267    Dropping down low, ever moving
+ |  Piki whakarunga r\304\201, m\304\201minga mai r\304\201    \302\267    Climbing high up, ever beguiling
+ |  Taku poi, porotiti                    \302\267    My poi, twirling
+ |  Taku poi e!                           \302\267    O my poi!
+ |  \302\240                                     \302\267    \302\240
+ |  Poi e -- whakatata mai                \302\267    O poi -- come near to me
+ |  Poi e -- kaua hei rerek\304\223              \302\267    O poi -- don't ever change
+ |  Poi e -- kia piri mai ki au           \302\267    O poi -- stick close to me
+ |  Poi e -- awhi mai r\304\201                  \302\267    O poi -- take care of me
+ |  Poi e -- t\304\201pekatia mai                \302\267    O poi -- entwine around me
+ |  Poi e -- \305\215 t\304\201ua aroha                 \302\267    O poi -- our love
+ |  Poi e -- paiheretia r\304\201                \302\267    O poi -- it binds us
+ |  Poi -- taku poi e!                    \302\267    Poi -- O my poi!
+ |  \302\240                                     \302\267    \302\240
+ |  Rere atu taku poi, t\304\253tahataha r\304\201      \302\267    Fly forth, my poi, sway side-to-side
+ |  Whakarunga, whakararo                 \302\267    Upward and downward
+ |  Taku poi e!                           \302\267    O my poi!
+ |  \302\240                                     \302\267    \302\240
+ |  E rere r\304\201 e                           \302\267    Fly forth
+ |  Taku poi, porotiti, t\304\253tahataha r\304\201     \302\267    My poi, twirling, swaying side-to-side
+ |  Whakararuraru e, porotakataka r\304\201      \302\267    Going round and round in dazzling circles
+ |  Porohurihuri mai                      \302\267    Turning over and over
+ |  Rite tonu ki te t\304\253waiwaka e           \302\267    Just like a little fantail
+ |  \302\240                                     \302\267    \302\240
+ |  Ka parepare r\304\201, p\304\253oioi r\304\201             \302\267    Going off to the side, swaying and waving
+ |  Whakahekeheke e, kia korikori e       \302\267    Dropping down low, ever moving
+ |  Piki whakarunga r\304\201, m\304\201minga mai r\304\201    \302\267    Climbing high up, ever beguiling
+ |  Taku poi, porotiti                    \302\267    My poi, twirling
+ |  Taku poi e!                           \302\267    O my poi!
+ |  \302\240                                     \302\267    \302\240
+ |  Poi e -- whakatata mai                \302\267    O poi -- come near to me
+ |  Poi e -- kaua hei rerek\304\223              \302\267    O poi -- don't ever change for me
+ |  Poi e -- kia piri mai ki au           \302\267    O poi -- stick close to me
+ |  Poi e -- awhi mai r\304\201                  \302\267    O poi -- take care of me
+ |  Poi e -- t\304\201pekatia mai                \302\267    O poi -- entwine around me
+ |  Poi e -- \305\215 t\304\201ua aroha                 \302\267    O poi -- our love
+ |  Poi e -- paiheretia r\304\201                \302\267    O poi -- it binds us together
+ |  Poi -- taku poi e!                    \302\267    Poi -- O my poi!
+ |  \302\240                                     \302\267    \302\240
+ |  Poi e -- whakatata mai                \302\267    O poi -- come near to me
+ |  Poi e -- kaua hei rerek\304\223              \302\267    O poi -- don't ever change for me
+ |  Poi e -- kia piri mai ki au           \302\267    O poi -- stick close to me
+ |  Poi e -- awhi mai r\304\201                  \302\267    O poi -- take care of me
+ |  Poi e -- t\304\201pekatia mai                \302\267    O poi -- entwine around me
+ |  Poi e -- \305\215 t\304\201ua aroha                 \302\267    O poi -- our love
+ |  Poi e -- paiheretia r\304\201                \302\267    O poi -- it binds us together
+ |  Poi -- taku poi e!                    \302\267    Poi -- O my poi!
+ |  Poi -- taku poi e!                    \302\267    Poi -- O my poi!
+ |  Poi -- taku poi e!                    \302\267    Poi -- O my poi!
+ |  \302\240                                     \302\267    \302\240
+ |  Rere atu taku poi, t\304\253tahataha r\304\201      \302\267    Fly forth, my poi, sway side-to-side
+ |  Whakarunga, whakararo                 \302\267    Upward and downward
+ |  Taku poi e!                           \302\267    O my poi!
 
 20.3.7. The criminal conviction has made it more difficult to support myself and other people in need
 
@@ -92448,6 +92639,38 @@ Greet those who love us in the faith:
     • I John 5:20 - And we know that the Son of God has come and has given us understanding, so that we may know
       him who is true; and we are in him who is true, in his Son Jesus Christ. He is the true God and eternal
       life. (ESV)
+
+As far as marrying someone goes, it should be to someone who is being sanctified and not with an unbeliever. I
+think it's wrong for a born-again Christian to yoke themselves with someone who is unrepentant from sin:
+
+  I Corinthians 9:5-9 - Do we not have the right to take along a believing wife, as do the other apostles and the
+  brothers of the Lord and Cephas? Or is it only Barnabas and I who have no right to refrain from working for a
+  living? Who serves as a soldier at his own expense? Who plants a vineyard without eating any of its fruit? Or
+  who tends a flock without getting some of the milk? Do I say these things on human authority? Does not the Law
+  say the same? For it is written in the Law of Moses, You shall not muzzle an ox when it treads out the grain. Is
+  it for oxen that God is concerned?
+
+  Leviticus 21:10-15 - The priest who is chief among his brothers, on whose head the anointing oil is poured and
+  who has been consecrated to wear the garments, shall not let the hair of his head hang loose nor tear his
+  clothes. He shall not go in to any dead bodies nor make himself unclean, even for his father or for his mother.
+  He shall not go out of the sanctuary, lest he profane the sanctuary of his God, for the consecration of the
+  anointing oil of his God is on him: I am the LORD. And he shall take a wife in her virginity. A widow, or a
+  divorced woman, or a woman who has been defiled, or a prostitute, these he shall not marry. But he shall take as
+  his wife a virgin of his own people, that he may not profane his offspring among his people, for I am the LORD
+  who sanctifies him. (ESV)
+
+  I Corinthians 6:16-20 - Or do you not know that he who is joined to a prostitute becomes one body with her? For,
+  as it is written, The two will become one flesh. But he who is joined to the Lord becomes one spirit with him.
+  Flee from sexual immorality. Every other sin a person commits is outside the body, but the sexually immoral
+  person sins against his own body. Or do you not know that your body is a temple of the Holy Spirit within you,
+  whom you have from God? You are not your own, for you were bought with a price. So glorify God in your body.
+  (ESV)
+
+  I Peter 2:9 - But you are a chosen race, a royal priesthood, a holy nation, a people for his own possession,
+  that you may proclaim the excellencies of him who called you out of darkness into his marvelous light. (ESV)
+
+  II Corinthians 6:14 - Do not be unequally yoked with unbelievers. For what partnership has righteousness with
+  lawlessness? Or what fellowship has light with darkness? (ESV)
 
 20.3.8. False adversaries and the real adversary
 
@@ -94924,34 +95147,34 @@ Then spoke those who feared Yahweh one to another and listened Yahweh and heard 
 remembrance before Him for those who fear Yahweh and who meditate on His name
 
  | 227  1696             3372             3068        376  854
- | ’āz  niḏ·bə·rū        yir·’ê           Yah·weh     ’îš  ’eṯ-
- | אז   נדברו            יראי             יהוה        איש  את־
+ | \342\200\231\304\201z  ni\341\270\217\302\267b\311\231\302\267r\305\253        yir\302\267\342\200\231\303\252           Yah\302\267weh     \342\200\231\303\256\305\241  \342\200\231e\341\271\257-
+ | \327\220\326\270\326\247\327\226   \327\240\326\264\327\223\326\260\327\221\326\260\326\274\327\250\326\233\327\225\326\274            \327\231\326\264\327\250\326\260\327\220\326\265\326\245\327\231             \327\231\326\260\327\224\327\225\326\270\326\226\327\224        \327\220\326\264\326\243\327\231\327\251\327\201  \327\220\326\266\327\252\326\276
  | Then spoke            those who feared Yahweh      one  to
- | Adv  V‑Nifal‑Perf‑3cp Adj‑mpc          N‑proper‑ms N‑ms Prep
+ | Adv  V\342\200\221Nifal\342\200\221Perf\342\200\2213cp Adj\342\200\221mpc          N\342\200\221proper\342\200\221ms N\342\200\221ms Prep
  |
  |   7453          7181                              3068
- |   rê·‘ê·hū;     way·yaq·šêḇ                       Yah·weh
- | ､ רעהו        ､ ויקשב                             יהוה
+ |   r\303\252\302\267\342\200\230\303\252\302\267h\305\253;     way\302\267yaq\302\267\305\241\303\252\341\270\207                       Yah\302\267weh
+ | \357\275\244 \327\250\326\265\327\242\326\265\326\221\327\224\327\225\326\274        \357\275\244 \327\225\326\267\327\231\326\267\326\274\327\247\326\260\327\251\326\265\327\201\326\244\327\221                             \327\231\326\260\327\224\327\225\326\270\327\224\326\231
  |    another       and listened                      Yahweh
- |    N‑msc | 3ms   Conj‑w | V‑Hifil‑ConsecImperf‑3ms N‑proper‑ms
+ |    N\342\200\221msc | 3ms   Conj\342\200\221w | V\342\200\221Hifil\342\200\221ConsecImperf\342\200\2213ms N\342\200\221proper\342\200\221ms
  | 
  |  8085                            3789
- |  way·yiš·mā‘,                    way·yik·kā·ṯêḇ
- |  וישמע                           ויכתב
+ |  way\302\267yi\305\241\302\267m\304\201\342\200\230,                    way\302\267yik\302\267k\304\201\302\267\341\271\257\303\252\341\270\207
+ |  \327\225\326\267\327\231\326\264\326\274\327\251\326\260\327\201\327\236\326\270\326\224\327\242                           \327\225\326\267\326\240\327\231\326\264\326\274\327\233\326\270\326\274\327\252\326\265\327\221
  |  and heard [them]                so was written
- |  Conj‑w | V‑Qal‑ConsecImperf‑3ms Conj‑w | V‑Nifal‑ConsecImperf‑3ms
+ |  Conj\342\200\221w | V\342\200\221Qal\342\200\221ConsecImperf\342\200\2213ms Conj\342\200\221w | V\342\200\221Nifal\342\200\221ConsecImperf\342\200\2213ms
  | 
  |  5612   2146           6440                 3372
- |  sê·per zik·kā·rō·wn   lə·pā·nāw            lə·yir·’ê
- |  ספר    זכרון          לפניו                ליראי
+ |  s\303\252\302\267p\314\204er zik\302\267k\304\201\302\267r\305\215\302\267wn   l\311\231\302\267p\314\204\304\201\302\267n\304\201w            l\311\231\302\267yir\302\267\342\200\231\303\252
+ |  \327\241\326\265\326\243\327\244\326\266\327\250    \327\226\326\264\327\233\326\270\326\274\327\250\326\244\327\225\326\271\327\237          \327\234\326\260\327\244\326\270\327\240\326\270\327\231\327\225\326\231                \327\234\326\260\327\231\326\264\327\250\326\260\327\220\326\265\326\243\327\231
  |  a book of remembrance before Him           for those who fear
- |  N‑msc  N‑ms           Prep‑l | N‑cpc | 3ms Prep‑l | Adj‑mpc
+ |  N\342\200\221msc  N\342\200\221ms           Prep\342\200\221l | N\342\200\221cpc | 3ms Prep\342\200\221l | Adj\342\200\221mpc
  | 
  |    3068        2803                                8034
- |    Yah·weh,    ū·lə·ḥō·šə·ḇê                       šə·mōw.
- |  ､ יהוה        ולחשבי                            . שמו׃
+ |    Yah\302\267weh,    \305\253\302\267l\311\231\302\267\341\270\245\305\215\302\267\305\241\311\231\302\267\341\270\207\303\252                       \305\241\311\231\302\267m\305\215w.
+ |  \357\275\244 \327\231\326\260\327\224\327\225\326\270\326\224\327\224        \327\225\326\274\327\234\326\260\327\227\326\271\327\251\326\260\327\201\327\221\326\265\326\226\327\231                            . \327\251\326\260\327\201\327\236\326\275\327\225\326\271\327\203
  |    Yahweh      and who meditate                    on His name
- |    N‑proper‑ms Conj‑w, Prep‑l | V‑Qal‑Prtcpl‑mpc   N‑msc | 3ms
+ |    N\342\200\221proper\342\200\221ms Conj\342\200\221w, Prep\342\200\221l | V\342\200\221Qal\342\200\221Prtcpl\342\200\221mpc   N\342\200\221msc | 3ms
 
 ὄνομα ónoma, on'-om-ah
 from a presumed derivative of the base of G1097 (compare G3685); a "name" (literally or figuratively) (authority,
@@ -95639,7 +95862,7 @@ trusting of God, and trust naturally elicits both belief and obedience:
   faith was counted to him as righteousness. (ESV)
 
  | apistia: unbelief
- | Original Word: ἀπιστία, ας, ἡ
+ | Original Word: \341\274\200\317\200\316\271\317\203\317\204\316\257\316\261, \316\261\317\202, \341\274\241
  | Part of Speech: Noun, Feminine
  | Transliteration: apistia
  | Phonetic Spelling: (ap-is-tee'-ah)
@@ -95956,9 +96179,9 @@ lusts:
  |  Response-of-love-to-Jesus = e.g. praise, thankfulness, obeying His commandments
  | 
  |  Love is proportional-to the baggage which has been forgiven
- |  Love ∝ forgiven-baggage
+ |  Love \342\210\235 forgiven-baggage
  | 
- |  Obedience ∝ Love
+ |  Obedience \342\210\235 Love
  | 
  |  F = H * L
  |  Faith = Hope * Love
@@ -98763,10 +98986,10 @@ The ones under the law who also walk in the footsteps of the faith that Abraham 
 come under the umbrella of the faith of Abraham, which the Gentiles who also share the faith of Abraham are
 included within.
 
- |            ‖
+ |            \342\200\226
  |          =====
- |            ‖
- |            ‖
+ |            \342\200\226
+ |            \342\200\226
  |
  |          Faith (Galatians 3:6-9)
  |        /       \
@@ -100069,26 +100292,26 @@ convicts unbelievers.
   the spirits of prophets are subject to prophets. (ESV)
 
  | 5620    3588    1100    1519 4592    1510     3756 3588
- | Hōste   hai     glōssai eis  sēmeion eisin    ou   tois
- | Ὥστε    αἱ      γλῶσσαι εἰς  σημεῖόν εἰσιν  , οὐ   τοῖς
+ | H\305\215ste   hai     gl\305\215ssai eis  s\304\223meion eisin    ou   tois
+ | \341\275\255\317\203\317\204\316\265    \316\261\341\274\261      \316\263\316\273\341\277\266\317\203\317\203\316\261\316\271 \316\265\341\274\260\317\202  \317\203\316\267\316\274\316\265\341\277\226\317\214\316\275 \316\265\341\274\260\317\203\316\271\316\275  , \316\277\341\275\220   \317\204\316\277\341\277\226\317\202
  | So then  -      tongues for  a sign  are      not  to those
  | Conj    Art-NFP N-NFP   Prep N-ANS   V-PIA-3P Adv  Art-DMP
  |
  | 4100           235  3588    571         3588    1161
- | pisteuousin    alla tois    apistois    hē      de
- | πιστεύουσιν  , ἀλλὰ τοῖς    ἀπίστοις  ; ἡ       δὲ
+ | pisteuousin    alla tois    apistois    h\304\223      de
+ | \317\200\316\271\317\203\317\204\316\265\317\215\316\277\317\205\317\203\316\271\316\275  , \341\274\200\316\273\316\273\341\275\260 \317\204\316\277\341\277\226\317\202    \341\274\200\317\200\316\257\317\203\317\204\316\277\316\271\317\202  ; \341\274\241       \316\264\341\275\262
  |  believing      but  to the  unbelieving  -      but
  |  V-PPA-DMP      Conj Art-DMP Adj-DMP     Art-NFS Conj
  | 
  |  4394       3756     3588    571         235
- |  prophēteia ou       tois    apistois    alla
- |  προφητεία  οὐ       τοῖς    ἀπίστοις  , ἀλλὰ
+ |  proph\304\223teia ou       tois    apistois    alla
+ |  \317\200\317\201\316\277\317\206\316\267\317\204\316\265\316\257\316\261  \316\277\341\275\220       \317\204\316\277\341\277\226\317\202    \341\274\200\317\200\316\257\317\203\317\204\316\277\316\271\317\202  , \341\274\200\316\273\316\273\341\275\260
  |  prophecy   [is] not to the  unbelieving but
  |  N-NFS      Adv      Art-DMP Adj-DMP     Conj
  | 
  |  3588    4100
  |  tois    pisteuousin
- |  τοῖς    πιστεύουσιν  .
+ |  \317\204\316\277\341\277\226\317\202    \317\200\316\271\317\203\317\204\316\265\317\215\316\277\317\205\317\203\316\271\316\275  .
  |  to the  believing
  |  Art-DMP V-PPA-DMP
 
@@ -102277,32 +102500,32 @@ We must be actively keeping Jesus as our Pearl of Great Price:
   and heirs of the kingdom, which he has promised to those who love (25. agapōsin / agape loving) him? (ESV)
 
  | 191        80       1473     27         3756 3588
- | Akousate   adelphoi mou      agapētoi   ouch ho
- | Ἀκούσατε , ἀδελφοί  μου      ἀγαπητοί . οὐχ  ὁ
+ | Akousate   adelphoi mou      agap\304\223toi   ouch ho
+ | \341\274\210\316\272\316\277\317\215\317\203\316\261\317\204\316\265 , \341\274\200\316\264\316\265\316\273\317\206\316\277\316\257  \316\274\316\277\317\205      \341\274\200\316\263\316\261\317\200\316\267\317\204\316\277\316\257 . \316\277\341\275\220\317\207  \341\275\201
  | Listen     brothers my       beloved    Not   -
  | V-AMA-2P   N-VMP    PPro-G1S Adj-VMP    Adv  Art-NMS
  |
  | 2316  1586       3588 [e 4434     3588 [e 2889
- | Theos exelexato  tous    ptōchous tō      kosmō
- | Θεὸς  ἐξελέξατο  τοὺς    πτωχοὺς  τῷ      κόσμῳ
+ | Theos exelexato  tous    pt\305\215chous t\305\215      kosm\305\215
+ | \316\230\316\265\341\275\270\317\202  \341\274\220\316\276\316\265\316\273\316\255\316\276\316\261\317\204\316\277  \317\204\316\277\341\275\272\317\202    \317\200\317\204\317\211\317\207\316\277\341\275\272\317\202  \317\204\341\277\267      \316\272\317\214\317\203\316\274\341\277\263
  |  God   has chosen the     poor      -      in this world
  |  N-NMS V-AIM-3S   Art-AMP Adj-AMP  Art-DMS N-DMS
  | 
  |  4145         1722 4102   2532 2818        3588
- |  plousious    en   pistei kai  klēronomous tēs
- |  πλουσίους    ἐν   πίστει καὶ  κληρονόμους τῆς
+ |  plousious    en   pistei kai  kl\304\223ronomous t\304\223s
+ |  \317\200\316\273\316\277\317\205\317\203\316\257\316\277\317\205\317\202    \341\274\220\316\275   \317\200\316\257\317\203\317\204\316\265\316\271 \316\272\316\261\341\275\266  \316\272\316\273\316\267\317\201\316\277\316\275\317\214\316\274\316\277\317\205\317\202 \317\204\341\277\206\317\202
  |  [to be] rich in   faith  and  heirs       of the
  |  Adj-AMP      Prep N-DFS  Conj N-AMP       Art-GFS
  | 
  |  932       3739       1861        3588
- |  basileias hēs        epēngeilato tois
- |  βασιλείας ἧς         ἐπηγγείλατο τοῖς
+ |  basileias h\304\223s        ep\304\223ngeilato tois
+ |  \316\262\316\261\317\203\316\271\316\273\316\265\316\257\316\261\317\202 \341\274\247\317\202         \341\274\220\317\200\316\267\316\263\316\263\316\265\316\257\316\273\316\261\317\204\316\277 \317\204\316\277\341\277\226\317\202
  |  kingdom   that       He promised to those
  |  N-GFS     RelPro-GFS V-AIM-3S    Art-DMP
  | 
  |  25        846
- |  agapōsin  auton
- |  ἀγαπῶσιν  αὐτόν  ?
+ |  agap\305\215sin  auton
+ |  \341\274\200\316\263\316\261\317\200\341\277\266\317\203\316\271\316\275  \316\261\341\275\220\317\204\317\214\316\275  ?
  |  loving    Him
  |  V-PPA-DMP PPro-AM3S
 
@@ -107263,22 +107486,22 @@ are not in opposition), Biblically speaking:
 Man and woman, husband and wife are a single unit called Adam:
 
  |      1254              3117           120     8034        853
- | s    hib·bā·rə·’ām.    bə·yō·wm       ’ā·ḏām, šə·mām      ’eṯ-
- | ס    הבראם׃            ביום           אדם     שמם         את־
+ | s    hib\302\267b\304\201\302\267r\311\231\302\267\342\200\231\304\201m.    b\311\231\302\267y\305\215\302\267wm       \342\200\231\304\201\302\267\341\270\217\304\201m, \305\241\311\231\302\267m\304\201m      \342\200\231e\341\271\257-
+ | \327\241    \327\224\326\264\327\221\326\270\326\274\326\275\327\250\326\260\327\220\326\270\326\275\327\235\327\203            \327\221\326\260\326\274\327\231\326\226\327\225\326\271\327\235           \327\220\326\270\327\223\326\270\326\224\327\235     \327\251\326\260\327\201\327\236\326\270\327\235\326\231         \327\220\326\266\327\252\326\276
  |  -   they were created in the day     man     them         -
- | Punc V‑Nifal‑Inf | 3mp Prep‑b | N‑msc N‑ms    N‑msc | 3mp DirObjM
+ | Punc V\342\200\221Nifal\342\200\221Inf | 3mp Prep\342\200\221b | N\342\200\221msc N\342\200\221ms    N\342\200\221msc | 3mp DirObjM
  |
  | 7121                            853           1288
- | way·yiq·rā                      ’ō·ṯām,       way·ḇā·reḵ
- | ויקרא                           אתם           ויברך
+ | way\302\267yiq\302\267r\304\201                      \342\200\231\305\215\302\267\341\271\257\304\201m,       way\302\267\341\270\207\304\201\302\267re\341\270\265
+ | \327\225\326\267\327\231\326\264\326\274\327\247\326\260\327\250\326\270\326\244\327\220                           \327\220\326\271\327\252\326\270\326\227\327\235           \327\225\326\267\327\231\326\260\327\221\326\270\326\243\327\250\326\266\327\232\326\260
  |  and called                      them          and He blessed
- |  Conj‑w | V‑Qal‑ConsecImperf‑3ms DirObjM | 3mp Conj‑w | V‑Piel‑ConsecImperf‑3ms
+ |  Conj\342\200\221w | V\342\200\221Qal\342\200\221ConsecImperf\342\200\2213ms DirObjM | 3mp Conj\342\200\221w | V\342\200\221Piel\342\200\221ConsecImperf\342\200\2213ms
  | 
  |  1254                 5347          2145
- |  bə·rā·’ām;           ū·nə·qê·ḇāh   zā·ḵār
- |  בראם                 ונקבה         זכר
+ |  b\311\231\302\267r\304\201\302\267\342\200\231\304\201m;           \305\253\302\267n\311\231\302\267q\303\252\302\267\341\270\207\304\201h   z\304\201\302\267\341\270\265\304\201r
+ |  \327\221\326\260\326\274\327\250\326\270\327\220\326\270\326\221\327\235                 \327\225\326\274\327\240\326\260\327\247\326\265\327\221\326\270\326\226\327\224         \327\226\326\270\327\233\326\270\326\245\327\250
  |  He created them      and female    male
- |  V‑Qal‑Perf‑3ms | 3mp Conj‑w | N‑fs N‑ms
+ |  V\342\200\221Qal\342\200\221Perf\342\200\2213ms | 3mp Conj\342\200\221w | N\342\200\221fs N\342\200\221ms
 
 youtube.com: The BEST Explanation of the Trinity You Will EVER Hear | @shamounian {@ChristOverAll-1} @time: 3 min
 24 sec
@@ -107558,7 +107781,7 @@ Jesus was birthed from God:
 
  | Strong's Concordance
  | yalad: to bear, bring forth, beget
- | Original Word: ילד
+ | Original Word: \327\231\326\270\327\234\326\267\327\223
  | Part of Speech: Verb
  | Transliteration: yalad
  | Phonetic Spelling: (yaw-lad')
@@ -108080,12 +108303,12 @@ held up as an idol before or alongside Father God, or before or alongside our Sa
 
 The Hebrew has two words for 'helper'. The word which the greek in John 14 refers to I believe is the Saviour one:
 
- | מושיע
+ | \327\236\327\225\326\271\327\251\327\201\326\264\327\231\327\242\326\267
  | savior, deliverer, helper, saviour
 
 But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant!:
 
- | עוזר
+ | \327\242\327\225\326\271\327\226\326\265\327\250
  | assistant, aide, helper, second
 
   Genesis 2:18 - Then the Lord (H3068 Yhovah) God (H430 'elohiym) said (H559 'amar), “It is not good (H2896 towb)
@@ -111955,22 +112178,22 @@ kingdom of God. It's impossible.
 Man and woman, husband and wife are a single unit called Adam:
 
  |      1254              3117           120     8034        853
- | s    hib·bā·rə·’ām.    bə·yō·wm       ’ā·ḏām, šə·mām      ’eṯ-
- | ס    הבראם׃            ביום           אדם     שמם         את־
+ | s    hib\302\267b\304\201\302\267r\311\231\302\267\342\200\231\304\201m.    b\311\231\302\267y\305\215\302\267wm       \342\200\231\304\201\302\267\341\270\217\304\201m, \305\241\311\231\302\267m\304\201m      \342\200\231e\341\271\257-
+ | \327\241    \327\224\326\264\327\221\326\270\326\274\326\275\327\250\326\260\327\220\326\270\326\275\327\235\327\203            \327\221\326\260\326\274\327\231\326\226\327\225\326\271\327\235           \327\220\326\270\327\223\326\270\326\224\327\235     \327\251\326\260\327\201\327\236\326\270\327\235\326\231         \327\220\326\266\327\252\326\276
  |  -   they were created in the day     man     them         -
- | Punc V‑Nifal‑Inf | 3mp Prep‑b | N‑msc N‑ms    N‑msc | 3mp DirObjM
+ | Punc V\342\200\221Nifal\342\200\221Inf | 3mp Prep\342\200\221b | N\342\200\221msc N\342\200\221ms    N\342\200\221msc | 3mp DirObjM
  |
  | 7121                            853           1288
- | way·yiq·rā                      ’ō·ṯām,       way·ḇā·reḵ
- | ויקרא                           אתם           ויברך
+ | way\302\267yiq\302\267r\304\201                      \342\200\231\305\215\302\267\341\271\257\304\201m,       way\302\267\341\270\207\304\201\302\267re\341\270\265
+ | \327\225\326\267\327\231\326\264\326\274\327\247\326\260\327\250\326\270\326\244\327\220                           \327\220\326\271\327\252\326\270\326\227\327\235           \327\225\326\267\327\231\326\260\327\221\326\270\326\243\327\250\326\266\327\232\326\260
  |  and called                      them          and He blessed
- |  Conj‑w | V‑Qal‑ConsecImperf‑3ms DirObjM | 3mp Conj‑w | V‑Piel‑ConsecImperf‑3ms
+ |  Conj\342\200\221w | V\342\200\221Qal\342\200\221ConsecImperf\342\200\2213ms DirObjM | 3mp Conj\342\200\221w | V\342\200\221Piel\342\200\221ConsecImperf\342\200\2213ms
  | 
  |  1254                 5347          2145
- |  bə·rā·’ām;           ū·nə·qê·ḇāh   zā·ḵār
- |  בראם                 ונקבה         זכר
+ |  b\311\231\302\267r\304\201\302\267\342\200\231\304\201m;           \305\253\302\267n\311\231\302\267q\303\252\302\267\341\270\207\304\201h   z\304\201\302\267\341\270\265\304\201r
+ |  \327\221\326\260\326\274\327\250\326\270\327\220\326\270\326\221\327\235                 \327\225\326\274\327\240\326\260\327\247\326\265\327\221\326\270\326\226\327\224         \327\226\326\270\327\233\326\270\326\245\327\250
  |  He created them      and female    male
- |  V‑Qal‑Perf‑3ms | 3mp Conj‑w | N‑fs N‑ms
+ |  V\342\200\221Qal\342\200\221Perf\342\200\2213ms | 3mp Conj\342\200\221w | N\342\200\221fs N\342\200\221ms
 
 That is certainly true for two people (1 male and one female) who have been joined together by God. God joins man
 and woman together, but nowhere is it seen in Scripture that God joins any other combination of independent male
@@ -116962,20 +117185,20 @@ transitioning into the new. That might take some shaking off of old things, and 
 obedience to the Truth. But those who are in Christ are a brand new creation:
 
  | 5620 [e]  1487 [e] 5100 [e] 1722 [e] 5547 [e]  2537 [e]
- | hōste     ei       tis      en       Christō   kainē
- | ὥστε      εἴ       τις      ἐν       Χριστῷ  , καινὴ
+ | h\305\215ste     ei       tis      en       Christ\305\215   kain\304\223
+ | \341\275\245\317\203\317\204\316\265      \316\265\341\274\264       \317\204\316\271\317\202      \341\274\220\316\275       \316\247\317\201\316\271\317\203\317\204\341\277\267  , \316\272\316\261\316\271\316\275\341\275\264
  | Therefore if       anyone   [is] in  Christ    [he is] a new
  | Conj      Conj     IPro-NMS Prep     N-DMS     Adj-NFS
  |
  | 2937 [e]  3588 [e] 744 [e]    3928 [e]         2400 [e]
- | ktisis    ta       archaia    parēlthen        idou
- | κτίσις  . τὰ       ἀρχαῖα     παρῆλθεν  ;      ἰδοὺ  ,
+ | ktisis    ta       archaia    par\304\223lthen        idou
+ | \316\272\317\204\316\257\317\203\316\271\317\202  . \317\204\341\275\260       \341\274\200\317\201\317\207\316\261\341\277\226\316\261     \317\200\316\261\317\201\341\277\206\316\273\316\270\316\265\316\275  ;      \341\274\260\316\264\316\277\341\275\272  ,
  |  creation  The      old things have passed away behold
  |  N-NFS     Art-NNP  Adj-NNP    V-AIA-3S         V-AMA-2S
  | 
  |  1096 [e]            2537 [e]
  |  gegonen             kaina
- |  γέγονεν             καινά  .
+ |  \316\263\316\255\316\263\316\277\316\275\316\265\316\275             \316\272\316\261\316\271\316\275\316\254  .
  |  has come into being [the] new
  |  V-RIA-3S            Adj-NNP
 
@@ -117339,7 +117562,7 @@ we need to be those who "get back up" and continue on in faith:
   confession of our hope without wavering, for he who promised is faithful. (ESV)
 
  | apistia: unbelief
- | Original Word: ἀπιστία, ας, ἡ
+ | Original Word: \341\274\200\317\200\316\271\317\203\317\204\316\257\316\261, \316\261\317\202, \341\274\241
  | Part of Speech: Noun, Feminine
  | Transliteration: apistia
  | Phonetic Spelling: (ap-is-tee'-ah)
@@ -118801,9 +119024,9 @@ I put a bunch of concepts together to describe faith:
  |  Response-of-love-to-Jesus = e.g. praise, thankfulness, obeying His commandments
  | 
  |  Love is proportional-to the baggage which has been forgiven
- |  Love ∝ forgiven-baggage
+ |  Love \342\210\235 forgiven-baggage
  | 
- |  Obedience ∝ Love
+ |  Obedience \342\210\235 Love
  | 
  |  F = H * L
  | 
@@ -121478,20 +121701,20 @@ Forgive others. This must be done for our sake, that our sins may be forgiven:
   you do not forgive others their trespasses, neither will your Father forgive your trespasses. (ESV)
 
  | 1437 1063 863         3588    444        3588    3900
- | Ean  gar  aphēte      tois    anthrōpois ta      paraptōmata
- | Ἐὰν  γὰρ  ἀφῆτε       τοῖς    ἀνθρώποις  τὰ      παραπτώματα
+ | Ean  gar  aph\304\223te      tois    anthr\305\215pois ta      parapt\305\215mata
+ | \341\274\230\341\275\260\316\275  \316\263\341\275\260\317\201  \341\274\200\317\206\341\277\206\317\204\316\265       \317\204\316\277\341\277\226\317\202    \341\274\200\316\275\316\270\317\201\317\216\317\200\316\277\316\271\317\202  \317\204\341\275\260      \317\200\316\261\317\201\316\261\317\200\317\204\317\216\316\274\316\261\317\204\316\261
  | If   for  you forgive  -      men        the     trespasses
  | Conj Conj V-ASA-2P    Art-DMP N-DMP      Art-ANP N-ANP
  |
  | 846       863          2532 4771     3588    3962   4771
- | autōn     aphēsei      kai  hymin    ho      Patēr  hymōn
- | αὐτῶν  ,  ἀφήσει       καὶ  ὑμῖν     ὁ       Πατὴρ  ὑμῶν
+ | aut\305\215n     aph\304\223sei      kai  hymin    ho      Pat\304\223r  hym\305\215n
+ | \316\261\341\275\220\317\204\341\277\266\316\275  ,  \341\274\200\317\206\316\256\317\203\316\265\316\271       \316\272\316\261\341\275\266  \341\275\221\316\274\341\277\226\316\275     \341\275\201       \316\240\316\261\317\204\341\275\264\317\201  \341\275\221\316\274\341\277\266\316\275
  |  of them   will forgive also you      the     Father of you
  |  PPro-GM3P V-FIA-3S     Conj PPro-D2P Art-NMS N-NMS  PPro-G2P
  | 
  |  3588    3770 [e]
  |  ho      ouranios
- |  ὁ       οὐράνιος  .
+ |  \341\275\201       \316\277\341\275\220\317\201\316\254\316\275\316\271\316\277\317\202  .
  |   -      Heavenly
  |  Art-NMS Adj-NMS
 
@@ -122804,19 +123027,19 @@ eimi I AM or I am He) you will die in the sins of you
 
  | 2036     3767      4771     3754     599           1722 3588
  | eipon    oun       hymin    hoti     apothaneisthe en   tais
- | εἶπον    οὖν       ὑμῖν     ὅτι      ἀποθανεῖσθε   ἐν   ταῖς
+ | \316\265\341\274\266\317\200\316\277\316\275    \316\277\341\275\226\316\275       \341\275\221\316\274\341\277\226\316\275     \341\275\205\317\204\316\271      \341\274\200\317\200\316\277\316\270\316\261\316\275\316\265\341\277\226\317\203\316\270\316\265   \341\274\220\316\275   \317\204\316\261\341\277\226\317\202
  | I said   therefore to you   that     you will die  in   the
  | V-AIA-1S Conj      PPro-D2P Conj     V-FIM-2P      Prep Art-DFP
  |
  | 266        4771     1437 1063 3361 4100        3754 1473     1510
- | hamartiais hymōn    ean  gar  mē   pisteusēte  hoti egō      eimi
- | ἁμαρτίαις  ὑμῶν  ;  ἐὰν  γὰρ  μὴ   πιστεύσητε  ὅτι  ἐγώ      εἰμι  ,
+ | hamartiais hym\305\215n    ean  gar  m\304\223   pisteus\304\223te  hoti eg\305\215      eimi
+ | \341\274\201\316\274\316\261\317\201\317\204\316\257\316\261\316\271\317\202  \341\275\221\316\274\341\277\266\316\275  ;  \341\274\220\341\275\260\316\275  \316\263\341\275\260\317\201  \316\274\341\275\264   \317\200\316\271\317\203\317\204\316\265\317\215\317\203\316\267\317\204\316\265  \341\275\205\317\204\316\271  \341\274\220\316\263\317\216      \316\265\341\274\260\316\274\316\271  ,
  |  sins       of you   if   for  not  you believe that I        am [He]
  |  N-DFP      PPro-G2P Conj Conj Adv  V-ASA-2P    Conj PPro-N1S V-PIA-1S
  | 
  |  599           1722 3588    266        4771
- |  apothaneisthe en   tais    hamartiais hymōn
- |  ἀποθανεῖσθε   ἐν   ταῖς    ἁμαρτίαις  ὑμῶν  .
+ |  apothaneisthe en   tais    hamartiais hym\305\215n
+ |  \341\274\200\317\200\316\277\316\270\316\261\316\275\316\265\341\277\226\317\203\316\270\316\265   \341\274\220\316\275   \317\204\316\261\341\277\226\317\202    \341\274\201\316\274\316\261\317\201\317\204\316\257\316\261\316\271\317\202  \341\275\221\316\274\341\277\266\316\275  .
  |  you will die  in   the     sins       of you
  |  V-FIM-2P      Prep Art-DFP N-DFP      PPro-G2P
 
@@ -122826,14 +123049,14 @@ We are not to be led astray by false christs:
   they will mislead (Interlinear)
 
  | 4183    2064       1909 3588    3686    1473     3004
- | polloi  eleusontai epi  tō      onomati mou      legontes
- | πολλοὶ  ἐλεύσονται ἐπὶ  τῷ      ὀνόματί μου  ,   λέγοντες
+ | polloi  eleusontai epi  t\305\215      onomati mou      legontes
+ | \317\200\316\277\316\273\316\273\316\277\341\275\266  \341\274\220\316\273\316\265\317\215\317\203\316\277\316\275\317\204\316\261\316\271 \341\274\220\317\200\341\275\266  \317\204\341\277\267      \341\275\200\316\275\317\214\316\274\316\261\317\204\316\257 \316\274\316\277\317\205  ,   \316\273\316\255\316\263\316\277\316\275\317\204\316\265\317\202
  | Many    will come  in   the     name    of Me    saying
  | Adj-NMP V-FIM-3P   Prep Art-DNS N-DNS   PPro-G1S V-PPA-NMP
  |
  | 3754   1473     1510     2532 4183    4105
- | hoti   Egō      eimi     kai  pollous planēsousin
- | ὅτι  , Ἐγώ      εἰμι  ,  καὶ  πολλοὺς πλανήσουσιν  .
+ | hoti   Eg\305\215      eimi     kai  pollous plan\304\223sousin
+ | \341\275\205\317\204\316\271  , \341\274\230\316\263\317\216      \316\265\341\274\260\316\274\316\271  ,  \316\272\316\261\341\275\266  \317\200\316\277\316\273\316\273\316\277\341\275\272\317\202 \317\200\316\273\316\261\316\275\316\256\317\203\316\277\317\205\317\203\316\271\316\275  .
  |   -     I        am [He]  and  many    they will mislead
  |  Conj   PPro-N1S V-PIA-1S Conj Adj-AMP V-FIA-3P
 
@@ -124663,7 +124886,7 @@ The 1689 Baptist confession affirms that the problem of corruption remains after
  | motions thereof, are truly and properly sin.14
  |
  | 13 Rom. 7:18,23; Eccles. 7:20; 1 John 1:8
- |  14 Rom. 7:23–25; Gal. 5:17
+ |  14 Rom. 7:23\342\200\22325; Gal. 5:17
 
 64.1. My experience in turning to love Jesus and obey Jesus
 
@@ -125284,34 +125507,34 @@ salvation from Jesus:
   (ESV)
 
  | 6213              3598         3685          2015
- | ‘ō·śêh            ḵî·māh       ū·ḵə·sîl,     wə·hō·pêḵ
- | עשה               כימה         וכסיל         והפך
+ | \342\200\230\305\215\302\267\305\233\303\252h            \341\270\265\303\256\302\267m\304\201h       \305\253\302\267\341\270\265\311\231\302\267s\303\256l,     w\311\231\302\267h\305\215\302\267p\314\204\303\252\341\270\265
+ | \327\242\326\271\327\251\326\265\327\202\326\250\327\224                  \327\233\326\264\327\231\327\236\326\270\326\234\327\224         \327\225\326\274\327\233\326\260\327\241\326\264\326\227\327\231\327\234         \327\225\326\260\327\224\326\271\327\244\326\265\326\244\327\232\326\260
  | He made           the Pleiades and Orion     and He turns
- | V‑Qal‑Prtcpl‑msc  N‑fs         Conj‑w | N‑ms Conj‑w | V‑Qal‑Prtcpl‑ms
+ | V\342\200\221Qal\342\200\221Prtcpl\342\200\221msc  N\342\200\221fs         Conj\342\200\221w | N\342\200\221ms Conj\342\200\221w | V\342\200\221Qal\342\200\221Prtcpl\342\200\221ms
 
  | 1242               6757                3117          3915
- | lab·bō·qer         ṣal·mā·weṯ,         wə·yō·wm      lay·lāh
- | לבקר               צלמות               ויום          לילה
+ | lab\302\267b\305\215\302\267qer         \341\271\243al\302\267m\304\201\302\267we\341\271\257,         w\311\231\302\267y\305\215\302\267wm      lay\302\267l\304\201h
+ | \327\234\326\267\327\221\326\271\326\274\326\231\327\247\326\266\327\250\326\231               \327\246\326\267\327\234\326\260\327\236\326\270\326\224\327\225\326\266\327\252               \327\225\326\260\327\231\326\226\327\225\326\271\327\235          \327\234\326\267\326\243\327\231\326\260\327\234\326\270\327\224
  | into morning       the shadow of death and the day   as night
- | Prep‑l, Art | N‑ms N‑ms                Conj‑w | N‑ms N‑ms
+ | Prep\342\200\221l, Art | N\342\200\221ms N\342\200\221ms                Conj\342\200\221w | N\342\200\221ms N\342\200\221ms
 
  | 2821             7121                  4325
- | heḥ·šîḵ;         haq·qō·w·rê           lə·mê-
- | החשיך            הקורא                 למי־
+ | he\341\270\245\302\267\305\241\303\256\341\270\265;         haq\302\267q\305\215\302\267w\302\267r\303\252           l\311\231\302\267m\303\252-
+ | \327\224\326\266\327\227\326\260\327\251\326\264\327\201\326\221\327\231\327\232\326\260            \327\224\326\267\327\247\326\274\327\225\326\271\327\250\326\265\326\243\327\220                 \327\234\326\260\327\236\326\265\326\275\327\231\326\276
  | makes dark       He calls              for the waters
- | V‑Hifil‑Perf‑3ms Art | V‑Qal‑Prtcpl‑ms Prep‑l | N‑mpc
+ | V\342\200\221Hifil\342\200\221Perf\342\200\2213ms Art | V\342\200\221Qal\342\200\221Prtcpl\342\200\221ms Prep\342\200\221l | N\342\200\221mpc
 
  | 3220       8210
- | hay·yām,   way·yiš·pə·ḵêm
- | הים        וישפכם
+ | hay\302\267y\304\201m,   way\302\267yi\305\241\302\267p\311\231\302\267\341\270\265\303\252m
+ | \327\224\326\267\327\231\326\270\326\274\326\227\327\235        \327\225\326\267\326\275\327\231\326\264\326\274\327\251\326\260\327\201\327\244\326\260\326\274\327\233\326\265\326\233\327\235
  | of the sea and pours them out
- | Art | N‑ms Conj‑w | V‑Qal‑ConsecImperf‑3ms | 3mp
+ | Art | N\342\200\221ms Conj\342\200\221w | V\342\200\221Qal\342\200\221ConsecImperf\342\200\2213ms | 3mp
 
  | 5921 6440     776          3068        8034
- | ‘al- pə·nê    hā·’ā·reṣ    Yah·weh     šə·mōw.       s
- | על־  פני      הארץ         יהוה        שמו׃          ס
+ | \342\200\230al- p\311\231\302\267n\303\252    h\304\201\302\267\342\200\231\304\201\302\267re\341\271\243    Yah\302\267weh     \305\241\311\231\302\267m\305\215w.       s
+ | \327\242\326\267\327\234\326\276  \327\244\326\260\326\274\327\240\326\265\326\245\327\231      \327\224\326\270\327\220\326\270\326\226\327\250\326\266\327\245         \327\231\326\260\327\224\327\225\326\270\326\245\327\224        \327\251\326\260\327\201\327\236\326\275\327\225\326\271\327\203          \327\241
  | on   the face of the earth Yahweh      [is] His name  -
- | Prep N‑cpc    Art | N‑fs   N‑proper‑ms N‑msc | 3ms   Punc
+ | Prep N\342\200\221cpc    Art | N\342\200\221fs   N\342\200\221proper\342\200\221ms N\342\200\221msc | 3ms   Punc
 
   II Chronicles 15:3-4 - For a long time Israel was without the true God, and without a teaching priest and
   without law, but when in their distress they turned to the Lord, the God of Israel, and sought him, he was found
@@ -129945,20 +130168,20 @@ I find this interesting, notice the word for life (Zoe) has the Strongs number 2
 John 5:12 (Interlinar):
 
  | 3588      2192      3588    5207  2192     3588
- | ho        echōn     ton     Huion echei    tēn
- | ὁ         ἔχων      τὸν     Υἱὸν  ἔχει     τὴν
+ | ho        ech\305\215n     ton     Huion echei    t\304\223n
+ | \341\275\201         \341\274\224\317\207\317\211\316\275      \317\204\341\275\270\316\275     \316\245\341\274\261\341\275\270\316\275  \341\274\224\317\207\316\265\316\271     \317\204\341\275\264\316\275
  | The [one] having    the     Son   has       -
  | Art-NMS   V-PPA-NMS Art-AMS N-AMS V-PIA-3S Art-AFS
  |
  | 2222    3588      3361 2192      3588    5207
- | zōēn    ho        mē   echōn     ton     Huion
- | ζωήν  ; ὁ         μὴ   ἔχων      τὸν     Υἱὸν
+ | z\305\215\304\223n    ho        m\304\223   ech\305\215n     ton     Huion
+ | \316\266\317\211\316\256\316\275  ; \341\275\201         \316\274\341\275\264   \341\274\224\317\207\317\211\316\275      \317\204\341\275\270\316\275     \316\245\341\274\261\341\275\270\316\275
  |  life    the [one] not  having    the     Son
  |  N-AFS   Art-NMS   Adv  V-PPA-NMS Art-AMS N-AMS
  | 
  |  3588    2316    3588    2222  3756 2192
- |  tou     Theou   tēn     zōēn  ouk  echei
- |  τοῦ     Θεοῦ  , τὴν     ζωὴν  οὐκ  ἔχει  .
+ |  tou     Theou   t\304\223n     z\305\215\304\223n  ouk  echei
+ |  \317\204\316\277\341\277\246     \316\230\316\265\316\277\341\277\246  , \317\204\341\275\264\316\275     \316\266\317\211\341\275\264\316\275  \316\277\341\275\220\316\272  \341\274\224\317\207\316\265\316\271  .
  |   -      of God   -      life  not  has
  |  Art-GMS N-GMS   Art-AFS N-AFS Adv  V-PIA-3S
 
@@ -130924,12 +131147,12 @@ Quote from Martin Luther King Jr.:
 
 The Hebrew has two words for 'helper'. The word which the greek in John 14 refers to I believe is the Saviour one:
 
- | מושיע
+ | \327\236\327\225\326\271\327\251\327\201\326\264\327\231\327\242\326\267
  | savior, deliverer, helper, saviour
 
 But the Hebrew for helper in Genesis 2:18 is not the 'saviour' but the assistant!:
 
- | עוזר
+ | \327\242\327\225\326\271\327\226\326\265\327\250
  | assistant, aide, helper, second
 
   Genesis 2:18 - Then the Lord (H3068 Yhovah) God (H430 'elohiym) said (H559 'amar), “It is not good (H2896 towb)
@@ -133441,7 +133664,7 @@ Jesus Christ has total dominion:
   kurios) and Christ (G5547 Christos), this Jesus whom you crucified. (ESV)
 
  | kurios: Lord, master, owner
- | Original Word: κύριος
+ | Original Word: \316\272\317\215\317\201\316\271\316\277\317\202
  | Part of Speech: Noun, Masculine
  | Transliteration: kurios
  | Pronunciation: koo'-ree-os
@@ -133450,7 +133673,7 @@ Jesus Christ has total dominion:
  | Meaning: lord, master, sir; the Lord.
 
  | Christos: Christ, Anointed One, Messiah
- | Original Word: Χριστός
+ | Original Word: \316\247\317\201\316\271\317\203\317\204\317\214\317\202
  | Part of Speech: Noun, Masculine
  | Transliteration: Christos
  | Pronunciation: khris-TOS
@@ -133588,38 +133811,38 @@ Jesus' gospel:
   blood of Him (Interlinear - biblehub.com)
 
  | 2532 575  2424  5547      3588    3144
- | kai  apo  Iēsou Christou  ho      martys
- | καὶ  ἀπὸ  Ἰησοῦ Χριστοῦ , ὁ       μάρτυς
+ | kai  apo  I\304\223sou Christou  ho      martys
+ | \316\272\316\261\341\275\266  \341\274\200\317\200\341\275\270  \341\274\270\316\267\317\203\316\277\341\277\246 \316\247\317\201\316\271\317\203\317\204\316\277\341\277\246 , \341\275\201       \316\274\316\254\317\201\317\204\317\205\317\202
  | and  from Jesus Christ    the     witness
  | Conj Prep N-GMS N-GMS     Art-NMS N-NMS
  |
  | 3588    4103      3588    4416       3588    3498
- | ho      pistos    ho      prōtotokos tōn     nekrōn
- | ὁ       πιστός  , ὁ       πρωτότοκος τῶν     νεκρῶν
+ | ho      pistos    ho      pr\305\215totokos t\305\215n     nekr\305\215n
+ | \341\275\201       \317\200\316\271\317\203\317\204\317\214\317\202  , \341\275\201       \317\200\317\201\317\211\317\204\317\214\317\204\316\277\316\272\316\277\317\202 \317\204\341\277\266\316\275     \316\275\316\265\316\272\317\201\341\277\266\316\275
  |   -      faithful  the     firstborn  of the  dead
  |  Art-NMS Adj-NMS   Art-NMS Adj-NMS    Art-GMP Adj-GMP
  | 
  |  2532 3588    758    3588    935      3588
- |  kai  ho      archōn tōn     basileōn tēs
- |  καὶ  ὁ       ἄρχων  τῶν     βασιλέων τῆς
+ |  kai  ho      arch\305\215n t\305\215n     basile\305\215n t\304\223s
+ |  \316\272\316\261\341\275\266  \341\275\201       \341\274\204\317\201\317\207\317\211\316\275  \317\204\341\277\266\316\275     \316\262\316\261\317\203\316\271\316\273\316\255\317\211\316\275 \317\204\341\277\206\317\202
  |  and  the     ruler  of the  kings    of the
  |  Conj Art-NMS N-NMS  Art-GMP N-GMP    Art-GFS
  | 
  |  1093   3588         25        1473     2532
- |  gēs    Tō           agapōnti  hēmas    kai
- |  γῆς  . Τῷ           ἀγαπῶντι  ἡμᾶς     καὶ
+ |  g\304\223s    T\305\215           agap\305\215nti  h\304\223mas    kai
+ |  \316\263\341\277\206\317\202  . \316\244\341\277\267           \341\274\200\316\263\316\261\317\200\341\277\266\316\275\317\204\316\271  \341\274\241\316\274\341\276\266\317\202     \316\272\316\261\341\275\266
  |  earth  To the [One] loving    us       and
  |  N-GFS  Art-DMS      V-PPA-DMS PPro-A1P Conj
  | 
  |  3089      1473     1537 3588    266
- |  lysanti   hēmas    ek   tōn     hamartiōn
- |  λύσαντι   ἡμᾶς     ἐκ   τῶν     ἁμαρτιῶν
+ |  lysanti   h\304\223mas    ek   t\305\215n     hamarti\305\215n
+ |  \316\273\317\215\317\203\316\261\316\275\317\204\316\271   \341\274\241\316\274\341\276\266\317\202     \341\274\220\316\272   \317\204\341\277\266\316\275     \341\274\201\316\274\316\261\317\201\317\204\316\271\341\277\266\316\275
  |  releasing us       from the     sins
  |  V-APA-DMS PPro-A1P Prep Art-GFP N-GFP
  | 
  |  1473     1722    3588    129     846
- |  hēmōn    en      tō      haimati autou
- |  ἡμῶν     ἐν      τῷ      αἵματι  αὐτοῦ   —
+ |  h\304\223m\305\215n    en      t\305\215      haimati autou
+ |  \341\274\241\316\274\341\277\266\316\275     \341\274\220\316\275      \317\204\341\277\267      \316\261\341\274\265\316\274\316\261\317\204\316\271  \316\261\341\275\220\317\204\316\277\341\277\246   \342\200\224
  |  of us    through the     blood   of Him
  |  PPro-G1P Prep    Art-DNS N-DNS   PPro-GM3S
 
@@ -133632,37 +133855,37 @@ Jesus' gospel:
 
  | 4771     1161    1085         1588       934
  | Hymeis   de      genos        eklekton   basileion
- | Ὑμεῖς    δὲ      γένος        ἐκλεκτόν , βασίλειον
+ | \341\275\231\316\274\316\265\341\277\226\317\202    \316\264\341\275\262      \316\263\316\255\316\275\316\277\317\202        \341\274\220\316\272\316\273\316\265\316\272\317\204\317\214\316\275 , \316\262\316\261\317\203\316\257\316\273\316\265\316\271\316\277\316\275
  | You      however [are] a race chosen     a royal
  | PPro-N2P Conj    N-NNS        Adj-NNS    Adj-NNS
  |
  | 2406         1484     40       2992     1519
  | hierateuma   ethnos   hagion   laos     eis
- | ἱεράτευμα  , ἔθνος    ἅγιον  , λαὸς     εἰς
+ | \341\274\261\316\265\317\201\316\254\317\204\316\265\317\205\316\274\316\261  , \341\274\224\316\270\316\275\316\277\317\202    \341\274\205\316\263\316\271\316\277\316\275  , \316\273\316\261\341\275\270\317\202     \316\265\341\274\260\317\202
  |  priesthood   a nation holy     a people for [His]
  |  N-NNS        N-NNS    Adj-NNS  N-NMS    Prep
  | 
  |  4047          3704    3588     703
- |  peripoiēsin   hopōs   tas      aretas
- |  περιποίησιν , ὅπως    τὰς      ἀρετὰς
+ |  peripoi\304\223sin   hop\305\215s   tas      aretas
+ |  \317\200\316\265\317\201\316\271\317\200\316\277\316\257\316\267\317\203\316\271\316\275 , \341\275\205\317\200\317\211\317\202    \317\204\341\275\260\317\202      \341\274\200\317\201\316\265\317\204\341\275\260\317\202
  |  possession    so that the      excellencies
  |  N-AFS         Conj    Art-AFP  N-AFP
  | 
  |  1804             3588         1537   4655
- |  exangeilēte      tou          ek     skotous
- |  ἐξαγγείλητε      τοῦ          ἐκ     σκότους
+ |  exangeil\304\223te      tou          ek     skotous
+ |  \341\274\220\316\276\316\261\316\263\316\263\316\265\316\257\316\273\316\267\317\204\316\265      \317\204\316\277\341\277\246          \341\274\220\316\272     \317\203\316\272\317\214\317\204\316\277\317\205\317\202
  |  you may proclaim of the [One] out of darkness
  |  V-ASA-2P         Art-GMS      Prep   N-GNS
  | 
  |  4771     2564          1519 3588    2298
  |  hymas    kalesantos    eis  to      thaumaston
- |  ὑμᾶς     καλέσαντος  , εἰς  τὸ      θαυμαστὸν
+ |  \341\275\221\316\274\341\276\266\317\202     \316\272\316\261\316\273\316\255\317\203\316\261\316\275\317\204\316\277\317\202  , \316\265\341\274\260\317\202  \317\204\341\275\270      \316\270\316\261\317\205\316\274\316\261\317\203\317\204\341\275\270\316\275
  |  you      having called to   the     marvelous
  |  PPro-A2P V-APA-GMS     Prep Art-ANS Adj-ANS
  | 
  |  846       5457
- |  autou     phōs
- |  αὐτοῦ     φῶς  ,
+ |  autou     ph\305\215s
+ |  \316\261\341\275\220\317\204\316\277\341\277\246     \317\206\341\277\266\317\202  ,
  |  of Him    light
  |  PPro-GM3S N-ANS
 
@@ -134326,11 +134549,11 @@ divineoffice.org: Divine Office - Liturgy of the Hours of the Roman Catholic Chu
  |  Let your good spirit guide me
  |  in ways that are level and smooth.
  | 
- |  For your name’s sake, Lord, save my life;
+ |  For your name\342\200\231s sake, Lord, save my life;
  |  in your justice save my soul from distress.
  | 
  |  Glory to the Father, and to the Son, and to the Holy Spirit:
- |  — as it was in the beginning, is now, and will be for ever. Amen.
+ |  \342\200\224 as it was in the beginning, is now, and will be for ever. Amen.
 
 78.4.2. Journal entry <2025-06-22 Sun>
 
@@ -138727,7 +138950,7 @@ prophets up to John…". It's clear that the Law isn't voided because of what Je
  | law (G3551)        | Just a way of specifying the law up to this time,
  | and (G2532)        | not saying the law is only up to this time.
  | the (G3588)        |
- | prophētai (G4396)  |
+ | proph\304\223tai (G4396)  |
  | until (G3360)      |
  | John (G2491)     --+
  |
@@ -139221,6 +139444,11 @@ God, and prefer God to evil, etc.
   Luke 16:30-31 - And he said, No, father Abraham, but if someone goes to them from the dead, they will repent. He
   said to him, If they do not hear Moses and the Prophets, neither will they be convinced if someone should rise
   from the dead. (ESV)
+
+  Psalms 112:1,6-8 - Praise ye Jah! O the happiness of one fearing Jehovah, In His commands he hath delighted
+  greatly. For–to the age he is not moved; For a memorial age-during is the righteous. Of an evil report he is not
+  afraid, Prepared is His heart, confident in Jehovah. Sustained is his heart–he feareth not, Till that he look on
+  his adversaries. (YLT)
 
 The law of Christ is a law of faith (not works), so what counts is not the works that come from the faith but what
 is in the heart (trust, obedience, love, hope, fear of God). A good heart that treasures God's Word produces good.
@@ -143436,11 +143664,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-06 Tue 21:07
+Date: 2026-10-14 Wed 19:15
 
 Author: Shane Mulligan
 
-Created: 2026-10-06 Tue 22:03
+Created: 2026-10-14 Wed 22:28
 
 Validate
 
