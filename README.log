@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  15 OCT 2026 18:50
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  15 OCT 2026 20:11
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -1764,7 +1764,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 29490--29498
 
 [684] [685] [686]
 
-LaTeX Warning: Hyper reference `sec:orgf3bfb1a' on page 687 undefined on input 
+LaTeX Warning: Hyper reference `sec:org9e81084' on page 687 undefined on input 
 line 29884.
 
 [687] [688] [689] [690] [691] [692]
@@ -2734,7 +2734,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 37839--37842
 
 [865]
 
-LaTeX Warning: Hyper reference `sec:org513d992' on page 866 undefined on input 
+LaTeX Warning: Hyper reference `sec:org3a86f6a' on page 866 undefined on input 
 line 37906.
 
 [866]
@@ -6274,7 +6274,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1574]
 
-LaTeX Warning: Reference `sec:org0a54d11' on page 1575 undefined on input line 
+LaTeX Warning: Reference `sec:org6ad5aa1' on page 1575 undefined on input line 
 73019.
 
 [1575] [1576]
@@ -8306,7 +8306,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [2181] [2182] [2183] [2184]
 
-LaTeX Warning: Reference `sec:org0a54d11' on page 2185 undefined on input line 
+LaTeX Warning: Reference `sec:org6ad5aa1' on page 2185 undefined on input line 
 102806.
 
 [2185] [2186] [2187]
@@ -8532,7 +8532,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 106346--106349
 
 [2254] [2255] [2256] [2257] [2258]
 
-LaTeX Warning: Hyper reference `sec:orgb84b04c' on page 2259 undefined on input
+LaTeX Warning: Hyper reference `sec:orgaa9a908' on page 2259 undefined on input
  line 106640.
 
 [2259]
@@ -9488,7 +9488,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 117931--117932
 
 [2477] [2478] [2479] [2480] [2481] [2482] [2483]
 
-LaTeX Warning: Hyper reference `sec:orgb84b04c' on page 2484 undefined on input
+LaTeX Warning: Hyper reference `sec:orgaa9a908' on page 2484 undefined on input
  line 118148.
 
 [2484] [2485] [2486]
@@ -9834,7 +9834,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 119869--119876
 
 [2522]
 
-LaTeX Warning: Hyper reference `sec:org387feb1' on page 2523 undefined on input
+LaTeX Warning: Hyper reference `sec:org125355c' on page 2523 undefined on input
  line 119960.
 
 [2523]
