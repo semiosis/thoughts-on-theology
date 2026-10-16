@@ -1947,6 +1947,110 @@ So we must resist committing sin:
   did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were
   unable to enter because of unbelief. (ESV)
 
+youtube.com: Will the Sins of Born - Again Believers Be Judged ? | Michael Heiser {@ stefanlouw6395 }
+
+I commented here:
+
+I don't think it's right to say "believers sin". When a person sins they are an unbeliever when they sin. If
+somebody who has believed sins then in that moment they are committing sin they are an unbeliever. These Jews here
+had believed in Jesus but then they went on to want to kill Jesus (so they became unbelievers). Are their sins
+covered by Jesus' blood? Only if they ended up returning to faith. While disbelieving they are condemned and on
+their way to hell.
+
+  John 8:31-47 - So Jesus said to the Jews who had believed (G4100 pepisteukotas: having believed 'V-RPA-AMP past
+  tense') in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth
+  will set you free. They answered him, We are offspring of Abraham and have never been enslaved to anyone. How is
+  it that you say, You will become free? Jesus answered them, Truly, truly, I say to you, everyone who commits sin
+  is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets
+  you free, you will be free indeed. I know that you are offspring of Abraham; yet you seek to kill me because my
+  word finds no place in you. I speak of what I have seen with my Father, and you do what you have heard from your
+  father. They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would
+  be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God.
+  This is not what Abraham did. You are doing what your father did. They said to him, We were not born of sexual
+  immorality. We have one Father—even God. Jesus said to them, If God were your Father, you would love me, for I
+  came from God and I am here. I came not of my own accord, but he sent me. Why do you not understand what I say?
+  It is because you cannot bear to hear my word. You are of your father the devil, and your will is to do your
+  father's desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is
+  no truth in him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. But
+  because I tell the truth, you do not believe me. Which one of you convicts me of sin? If I tell the truth, why
+  do you not believe me? Whoever is of God hears the words of God. The reason why you do not hear them is that you
+  are not of God. (ESV)
+
+So if someone is committing a sin (i.e. in the act of sinning) then they are not walking in the light and are not
+believing and not being sanctified in that moment. It's not possible to rape and murder, steal and lie at the same
+time as having faith, even if the sin is from the heart but without the physical part of it. It's not possible to
+be sanctified while committing sin. Whatever does not proceed from faith is sin. A person who is not believing is
+not a believer. A person who has been born again of the word of God is at that point a believer. But a person who
+was born again but then subsequently commits sin needs to return to faith (walk in the love for the truth, the
+love of God, the love of Jesus Christ) to be cleansed from sin. They need to turn away from the sin and return to
+faith.
+
+The one born of God doesn't sin. Whoever commits sin does the work of the devil.
+
+  I Corinthians 15:34 - Wake up from your drunken stupor, as is right, and do not go on sinning. For some have no
+  knowledge of God. I say this to your shame. (ESV)
+
+  Hebrews 10:26 - For if we go on sinning deliberately after receiving the knowledge of the truth, there no longer
+  remains a sacrifice for sins, (ESV)
+
+  I John 3:8-9 - he who is doing the sin, of the devil he is, because from the beginning the devil doth sin; for
+  this was the Son of God manifested, that he may break up the works of the devil; every one who hath been
+  begotten of God, sin he doth not, because his seed in him doth remain, and he is not able to sin, because of God
+  he hath been begotten. (YLT)
+
+  John 8:34-36 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The
+  slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be
+  free indeed. (ESV)
+
+When Heiser quotes I John 1:10, he uses it to say "believers sin sometimes". But really the verse is talking about
+"have sinned". Every believer sinned before they were born-again. When a person sins, they now "have sin". There's
+a difference between committing sin and having it. If a person commits adultery and has sex with someone outside
+of marriage then they then have the sin of adultery, and they need to confess their sin to be cleaned from it. A
+person can "have sin" (as the Apostle Paul had sin, see Romans 7) while being a believer. But they can't "commit
+sin" while being a believer. If a person commits sin then while they are committing sin they are not a believer,
+and they need to return to faith:
+
+  I John 1:8-10 - If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our
+  sins, he is faithful and just to forgive us our sins and to cleanse us from all unrighteousness. If we say we
+  have not sinned, we make him a liar, and his word is not in us. (ESV)
+
+And a real faith involves abiding in Jesus' commandments, loving one another from the heart. Faith is connected to
+love very strongly:
+
+  Mark 16:16 - Whoever believes and is baptized will be saved, but whoever does not believe will be condemned.
+  (ESV)
+
+  John 3:18 - Whoever believes in him is not condemned, but whoever does not believe is condemned already, because
+  he has not believed in the name of the only Son of God. (ESV)
+
+  I John 5:10 - Whoever believes in the Son of God has the testimony in himself. Whoever does not believe God has
+  made him a liar, because he has not believed in the testimony that God has borne concerning his Son. (ESV)
+
+  John 5:24 - Truly, truly, I say to you, whoever hears my word and believes him who sent me has eternal life. He
+  does not come into judgment, but has passed from death to life. (ESV)
+
+  I John 3:13-16 - Do not be surprised, brothers, that the world hates you. We know that we have passed out of
+  death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his
+  brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that
+  he laid down his life for us, and we ought to lay down our lives for the brothers. (ESV)
+
+  I John 3:3-7 - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice
+  of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in
+  him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him
+  or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. (ESV)
+
+  I John 2:3-6 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
+  know him but does not keep his commandments is a liar, and the truth is not in him, but whoever keeps his word,
+  in him truly the love of God is perfected. By this we may be sure that we are in him: whoever says he abides in
+  him ought to walk in the same way in which he walked. (ESV)
+
+  I John 3:21-24 - Beloved, if our heart does not condemn us, we have confidence before God; and whatever we ask
+  we receive from him, because we keep his commandments and do what pleases him. And this is his commandment, that
+  we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us. Whoever keeps
+  his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he
+  has given us. (ESV)
+
 Father God takes away Jesus' branches which do not bear fruit. So we must bear good fruit in order to continue
 abiding in Jesus:
 
@@ -6721,6 +6825,15 @@ sin):
 
 Doing our duty as Christians is of vital importance. And when I hear that word "duty", I think of grace, because
 God in His grace hasn't burdened us with more than we can handle.
+
+We've got to love love-another and resist sin and fulfill the law of Christ. We do need to do this:
+
+  Galatians 6:1-6 - Brothers, if anyone is caught in any transgression, you who are spiritual should restore him
+  in a spirit of gentleness. Keep watch on yourself, lest you too be tempted. Bear one another's burdens, and so
+  fulfill the law of Christ. For if anyone thinks he is something, when he is nothing, he deceives himself. But
+  let each one test his own work, and then his reason to boast will be in himself alone and not in his neighbor.
+  For each will have to bear his own load. One who is taught the word must share all good things with the one who
+  teaches. (ESV)
 
 Getting cleaned up to agape love as commanded in a complete way is the process of sanctification, and of course
 that does involve abstaining from committing sin (Romans 13:8-10), even abstaining from sinning against our own
@@ -40281,8 +40394,9 @@ Take care of family in Christ:
 
 We should bless our family in Christ, and not curse them.
 
-And when we talk about true Israel, what we really mean is those who do the works of Abraham who are Abraham's
-children who if we bless, we shall be blessed:
+And when we talk about true Israel (the Israel of God), what we really mean is those who do the works of Abraham
+who are Abraham's children who if we bless, we shall be blessed. The Israel of God who God has redeemed, the are
+part of the new creation and obey the truth:
 
   Genesis 12:3 - I will bless those who bless you, and him who dishonors you I will curse, and in you all the
   families of the earth shall be blessed. (ESV)
@@ -40295,6 +40409,26 @@ children who if we bless, we shall be blessed:
 
   John 6:45 - It is written in the Prophets, And they will all be taught by God. Everyone who has heard and
   learned from the Father comes to me— (ESV)
+
+  Galatians 6:13-16 - For even those who are circumcised do not themselves keep the law, but they desire to have
+  you circumcised that they may boast in your flesh. But far be it from me to boast except in the cross of our
+  Lord Jesus Christ, by which the world has been crucified to me, and I to the world. For neither circumcision
+  counts for anything, nor uncircumcision, but a new creation. And as for all who walk by this rule, peace and
+  mercy be upon them, and upon the Israel of God. (ESV)
+
+  I Corinthians 7:17-24 - Only let each person lead the life that the Lord has assigned to him, and to which God
+  has called him. This is my rule in all the churches. Was anyone at the time of his call already circumcised? Let
+  him not seek to remove the marks of circumcision. Was anyone at the time of his call uncircumcised? Let him not
+  seek circumcision. For neither circumcision counts for anything nor uncircumcision, but keeping the commandments
+  of God. Each one should remain in the condition in which he was called. Were you a slave when called? Do not be
+  concerned about it. But if you can gain your freedom, avail yourself of the opportunity. For he who was called
+  in the Lord as a slave is a freedman of the Lord. Likewise he who was free when called is a slave of Christ. You
+  were bought with a price; do not become slaves of men. So, brothers, in whatever condition each was called,
+  there let him remain with God. (ESV)
+
+  Galatians 5:6-8 - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only
+  faith working through love. You were running well. Who hindered you from obeying the truth? This persuasion is
+  not from him who calls you. (ESV)
 
 Be obedient to Jesus Christ in all His commandments for us:
 
@@ -143661,11 +143795,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-15 Thu 16:55
+Date: 2026-10-17 Sat 08:36
 
 Author: Shane Mulligan
 
-Created: 2026-10-15 Thu 19:31
+Created: 2026-10-17 Sat 09:19
 
 Validate
 
