@@ -483,7 +483,7 @@ The Apostle Paul speaks of faith while "not working" (doing deeds), and so faith
 faith keeping the Sabbath command to rest).
 
 Even when a person is resting in faith, God is working (John 6:28-29), so long as that resting is truly done in
-faith (rather than, for example, a "sin of omission" - see James 4:17).
+faith (rather than, for example, a sin of omission" - see James 4:17, Matthew 25:41-46).
 
 So therefore, faith while resting from working is not alone because God still works. So it's not accurate to take
 Romans 4:5 and say this "faith without working" is faith that's alone without works.
@@ -506,8 +506,8 @@ It's imperative, no matter how much we've been attempting to work for God, that 
 and that does require at least some point at which we have rested/abstained from working while holding faith in
 Jesus Christ while ceasing from working altogether. In holding faith in Jesus while abstaining from working in a
 legitimate way (i.e. in a way that is obedient to God as opposed to abstaining from working in a way that is
-committing sin as a "sin of omission" - see James 4:17), while acknowledging their ungodliness (their sin) one
-receives the gift of righteousness.
+committing sin as a "sin of omission" - see James 4:17, Matthew 25:41-46), while acknowledging their ungodliness
+(their sin) one receives the gift of righteousness.
 
 There is "faith working righteousness" (John 3:21, John 4:34, Galatians 6:7-10, John 6:27), which is a good place
 to be.
@@ -545,6 +545,25 @@ actuality, while still holding faith, so doing so obediently, not resting, say, 
   longer for human passions but for the will of God. The time that is past suffices for doing what the Gentiles
   want to do, living in sensuality, passions, drunkenness, orgies, drinking parties, and lawless idolatry. (ESV)
 
+  James 4:17 - So whoever knows the right thing to do and fails to do it, for him it is sin. (ESV)
+
+  Matthew 25:41-46 - Then he will say to those on his left, Depart from me, you cursed, into the eternal fire
+  prepared for the devil and his angels. For I was hungry and you gave me no food, I was thirsty and you gave me
+  no drink, I was a stranger and you did not welcome me, naked and you did not clothe me, sick and in prison and
+  you did not visit me. Then they also will answer, saying, Lord, when did we see you hungry or thirsty or a
+  stranger or naked or sick or in prison, and did not minister to you? Then he will answer them, saying, Truly, I
+  say to you, as you did not do it to one of the least of these, you did not do it to me. And these will go away
+  into eternal punishment, but the righteous into eternal life. (ESV)
+
+  1Jn 3:4,6,8,9 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. No one
+  who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Whoever makes
+  a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of
+  God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's
+  seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
+
+  Matthew 7:23 - And then will I declare to them, I never knew you; depart from me, you workers of lawlessness.
+  (ESV)
+
 This "faith apart from works" is what so-called "justification by faith 'alone'" (i.e. what the Apostle Paul
 speaks of) is based on, I think, (Romans 3:21,9:31,10:4-10), rather than what an antinomian / disobedient /
 faithless person might think faith alone is.
@@ -559,6 +578,43 @@ should not be confused:
 
   John 9:4 - We must work the works of him who sent me while it is day; night is coming, when no one can work.
   (ESV)
+
+A believer in Jesus is promised good deeds, and every true believer will carry them out provided they continue in
+faith in Jesus (Romans 11:17-23). A person is saved by Jesus out from practicing wickedness (wickedness which
+which leads to death), and saved into practicing righteousness, the fruit of which leads to eternal life. At the
+start of the salvation journey a person is forgiven for their history of evil deeds (Romans 4:3-8) when they have
+stopped working (even stopped working lawlessness. They have stopped what they are doing, and not in that moment
+committing sin, but abstaining from deeding altogether) and having faith in Jesus Christ and so one's salvation is
+not on the basis of works. But that person will go on to carry out good deeds prepared for them provided they
+continue abiding Jesus, abiding in His commandments (I John 3:3-11, I John 2:3-6):
+
+  Romans 4:3-8 - For what does the Scripture say? Abraham believed God, and it was counted to him as
+  righteousness. Now to the one who works, his wages are not counted as a gift but as his due. And to the one who
+  does not work but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David
+  also speaks of the blessing of the one to whom God counts righteousness apart from works: Blessed are those
+  whose lawless deeds are forgiven, and whose sins are covered; blessed is the man against whom the Lord will not
+  count his sin. (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+  Ephesians 2:8-10 - For by grace you have been saved through faith. And this is not your own doing; it is the
+  gift of God, not a result of works, so that no one may boast. For we are his workmanship, created in Christ
+  Jesus for good works, which God prepared beforehand, that we should walk in them.
+
+  Matthew 25:31-40 - When the Son of Man comes in his glory, and all the angels with him, then he will sit on his
+  glorious throne. Before him will be gathered all the nations, and he will separate people one from another as a
+  shepherd separates the sheep from the goats. And he will place the sheep on his right, but the goats on the
+  left. Then the King will say to those on his right, Come, you who are blessed by my Father, inherit the kingdom
+  prepared for you from the foundation of the world. For I was hungry and you gave me food, I was thirsty and you
+  gave me drink, I was a stranger and you welcomed me, I was naked and you clothed me, I was sick and you visited
+  me, I was in prison and you came to me. Then the righteous will answer him, saying, Lord, when did we see you
+  hungry and feed you, or thirsty and give you drink? And when did we see you a stranger and welcome you, or naked
+  and clothe you? And when did we see you sick or in prison and visit you? And the King will answer them, Truly, I
+  say to you, as you did it to one of the least of these my brothers, you did it to me. (ESV)
+
+  Romans 6:22 - But now that you have been set free from sin and have become slaves of God, the fruit you get
+  leads to sanctification and its end, eternal life. (ESV)
 
 Without the love of God, the love for the truth, in them, a person can't have saving faith:
 
@@ -6257,6 +6313,15 @@ but working for wages that will lead to death (Romans 6:23):
   Luke 5:30-32 - And the Pharisees and their scribes grumbled at his disciples, saying, Why do you eat and drink
   with tax collectors and sinners? And Jesus answered them, Those who are well have no need of a physician, but
   those who are sick. I have not come to call the righteous but sinners to repentance. (ESV)
+
+  1Jn 3:4,6,8,9 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. No one
+  who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Whoever makes
+  a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of
+  God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's
+  seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
+
+  Matthew 7:23 - And then will I declare to them, I never knew you; depart from me, you workers of lawlessness.
+  (ESV)
 
 If a person thinks that they are "doing good" but they haven't done good in God's sight, but they keep working
 anyway without stopping, then that isn't going to go well for them. To receive the gift of righteousness where
@@ -45193,7 +45258,7 @@ A new creation has faith working through love and keeps Jesus Christ's commandme
   kainē; new) (G2937 ktisis; creation). (ESV)
 
 We both love/obey (25. agapaó) Jesus and believe/trust (4100. pisteuó) in Him and receive the outcome of our
-faith, the salvation of our souls. :
+faith, the salvation of our souls:
 
   I Peter 1:8-9 - Though you have not seen him, you love (25. agapaó) him. Though you do not now see him, you
   believe (4100. pisteuó) in him and rejoice with joy that is inexpressible and filled with glory, obtaining the
@@ -143795,11 +143860,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-17 Sat 08:36
+Date: 2026-10-18 Sun 08:10
 
 Author: Shane Mulligan
 
-Created: 2026-10-17 Sat 09:19
+Created: 2026-10-18 Sun 09:26
 
 Validate
 
