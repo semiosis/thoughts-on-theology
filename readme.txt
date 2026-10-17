@@ -616,6 +616,12 @@ continue abiding Jesus, abiding in His commandments (I John 3:3-11, I John 2:3-6
   Romans 6:22 - But now that you have been set free from sin and have become slaves of God, the fruit you get
   leads to sanctification and its end, eternal life. (ESV)
 
+  Titus 3:3-6 - For we ourselves were once foolish, disobedient, led astray, slaves to various passions and
+  pleasures, passing our days in malice and envy, hated by others and hating one another. But when the goodness
+  and loving kindness of God our Savior appeared, he saved us, not because of works done by us in righteousness,
+  but according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit, whom he poured
+  out on us richly through Jesus Christ our Savior, (ESV)
+
 Without the love of God, the love for the truth, in them, a person can't have saving faith:
 
   John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
@@ -20053,8 +20059,8 @@ upright, righteous, virtuous, keeping the commands of God
 We don't gives ourselves the "pat on the back" and tell ourselves "well done for doing the will of God". Rather,
 we endeavour to receive this commendation from God as we obediently do His will.
 
-  Hebrews 11:39 - And all these, though commended (G3140 martyrēthentes; having been commended) through their
-  faith, did not receive what was promised, (ESV)
+  Hebrews 11:39-40 - And all these, though commended through their faith, did not receive what was promised, since
+  God had provided something better for us, that apart from us they should not be made perfect. (ESV)
 
 G3140 martureó
 To bear witness, testify, give evidence, affirm that one has seen, heard, or experienced something.
@@ -30894,6 +30900,18 @@ completed by his works/deeds:
   the same sentence of condemnation? And we indeed are suffering justly, for we are receiving what we deserve for
   our deeds; but this man has done nothing wrong.” And he was saying, “Jesus, remember me when You come in Your
   kingdom!” And He said to him, “Truly I say to you, today you shall be with Me in Paradise.”
+
+When is a Christian perfected? A believer in Jesus is promised to themselves do the deeds of Jesus Christ. When
+are these promises fulfilled? When are Christian works completed? Eventually. And like the promise given to
+Abraham, not even death can stop these promises from being received:
+
+  Hebrews 11:39-40 - And all these, though commended through their faith, did not receive what was promised, since
+  God had provided something better for us, that apart from us they should not be made perfect. (ESV)
+
+  Revelation of John 3:2-3 - Wake up, and strengthen what remains and is about to die, for I have not found your
+  works complete (G4137 peplērōmena; having been completed) in the sight of my God. So remember what you have
+  received and heard; and keep it, and repent. Therefore if you do not wake up, I will come like a thief, and you
+  will not know at what hour I will come to you.
 
 John 3:19 connects faith with deeds. Evil deeds come from a love of darkness. Luke 6:45 also connects faith with
 deeds. Good deeds come from a love of the truth.
@@ -143860,11 +143878,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-18 Sun 08:10
+Date: 2026-10-18 Sun 11:09
 
 Author: Shane Mulligan
 
-Created: 2026-10-18 Sun 09:26
+Created: 2026-10-18 Sun 11:17
 
 Validate
 
