@@ -19880,7 +19880,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge890b89) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgaca38e2) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -25724,7 +25724,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org498041b).
+I didn't know but it turned out to be the last day of my [sentence](#orgbedd23e).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -50748,7 +50748,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgd5b556a)
+See: [33.4.1](#orgdc80ece)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -72599,7 +72599,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgd5b556a)
+See: [33.4.1](#orgdc80ece)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -75255,7 +75255,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org77a46e4) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org1d8a41b) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -83600,7 +83600,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org77a46e4) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org1d8a41b) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -84938,7 +84938,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgdff5032)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org1762bf2)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -89926,6 +89926,59 @@ and to not misrepresent the Gospel of Jesus, because time is precious:
 > **[Ephesians 5:15-16](https://www.biblegateway.com/passage/?search=Ephesians%205%3A15-16&version=ESV)** - Look carefully then how you walk, not as unwise but as wise, making the best use of the time, because the days are evil. (ESV)
 
 So this is what has prompted me to write on what I have written today, and also some other interactions I have had today.
+
+
+### Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-10-23 Fri 15:13&gt;</span></span>
+
+Here's a dream worth recording which I had this morning.
+In this dream a young man came up to me and asked me, "You do believe that salvation is not by works, right?"
+I said, "Yes."
+Then another young man came up to me, someone seemingly new in the faith.
+And I explained to them,
+"Repentance is turning away from sin. Faith is turning towards God. It's like a sunflower turning away from sin and towards God.
+Are you OK with that?" They said yes.
+And in this dream I then called the other first guy a "bud" ("buddy"),
+and he handed me a knife and fork in a paper napkin.
+
+And I woke up and I thought, what could this mean?
+Perhaps it's something to do with the marriage supper of the lamb.
+However, later in the day today, I am still wondering if this dream is really from God,
+and I'm still bothered by some things including continued demonic harassment and defilement and oppression.
+
+I'm not giving up resisting the evil which has come against me.
+I'm not going to rest in Satan's fake rest.
+
+Jesus' rest is entered through faith and obedience.
+Now, yes, the real faith involves a turning away from sin.
+Jesus' rest doesn't go to those who are continuing in sin.
+People who continue to practice sinning are working lawlessness.
+
+But continuing in faith involves continuing in obedience too.
+And a sin of omission is working lawlessness.
+
+A sin of omission, though, is where a person **knows** what good they ought to do and do know do it.
+
+And today upon receiving this dream, I also received an email.
+
+I think that if someone gets an email in their inbox which says, "I need money, please help."
+but there's not enough evidence that they are even a real person,
+then I think there's no sin of omission in not sending money.
+These days with chatbots etc. I think it's wise to have a conversation and see if this is even a real person with real needs,
+before deciding to give money across the internet blindly.
+I think that one should do their duty to love neighbour who they see directly with their own eyes, or hear their actual voice.
+
+> **[I John 4:20](https://www.biblegateway.com/passage/?search=1%20John%204%3A20&version=ESV)** - If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. (ESV)
+
+I think that one should do their duty to love their own countryman.
+
+> **[Leviticus 19:17-18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A17-18&version=ESV)** - **‘You shall not hate your fellow countryman in your heart; you may surely reprove your neighbor, but shall not incur sin because of him**. You shall not take vengeance, nor bear any grudge against the sons of your people, but you shall love your neighbor as yourself; I am the LORD. (NASB)
+
+Also, Jesus said to "Give to the one who asks." Jesus didn't say, "Give the one who asks exactly what they asked for."
+
+Also, do not trust every spirit. Test the spirits to see if they are from God.
+Every spirit which confesses that Jesus Christ has come [into the world] from God as flesh (word become flesh) is from God.
+
+> **[I John 4:1-3](https://www.biblegateway.com/passage/?search=1%20John%204%3A1-3&version=ESV)** - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that confesses that Jesus Christ has come in the flesh is from God, and every spirit that does not confess Jesus is not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already. (ESV)
 
 
 ## Prayer of thanks
