@@ -19880,7 +19880,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8c9030d) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgc5e343e) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -25724,7 +25724,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org102e103).
+I didn't know but it turned out to be the last day of my [sentence](#org8516226).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -50748,7 +50748,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orga49ac9c)
+See: [33.4.1](#org9bc844a)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -72599,7 +72599,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orga49ac9c)
+See: [33.4.1](#org9bc844a)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -75255,7 +75255,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org30bc430) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orge24fd2a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -83600,7 +83600,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org30bc430) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orge24fd2a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -84938,7 +84938,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6634074)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org80f0f21)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -89945,6 +89945,27 @@ Perhaps it's something to do with the marriage supper of the Lamb.
 However, later in the day today, I am still wondering if this dream is really from God,
 and I'm still bothered by some things including continued demonic harassment and defilement and oppression.
 
+I have, for example, a year or two ago, been getting extreme pressure from both people around me
+and also by dreams and visions and difficult circumstances to break faithfulness to Jesus (to not affirm teachings from or about Jesus Christ,
+and to renege on committments I had made to Him, or to affirm sinful behaviour), and as past of this was some strange dreams depicting "feasting", and that "feasting"
+was simultaneously depicting unity with the world. And I was also receiving a huge amount of punishment through demonic attacks including dreams with themes of demonic religions
+and sexual perversion, seemingly punishing me as I had been choosing holiness.
+
+And so I'm not 100% sure about this dream with the cuttlery. There has been a huge amount of pressure on me to stop having faith and rather go back into sinning,
+and this pressure has often come through doctrines of demons which I have heard taught in places which call themselves Christian churches.
+
+I'm not giving up resisting the evil which has come against me.
+I'm not going to rest in Satan's fake rest.
+I'm happy to grow in the grace and knowledge of God as I continue endeavouring to trust and obey Jesus Christ:
+
+> **[Romans 6:23](https://www.biblegateway.com/passage/?search=Romans%206%3A23&version=ESV)** - For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord. (ESV)
+
+> **[I Corinthians 15:34](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A34&version=ESV)** - Wake up from your drunken stupor, as is right, and do not go on sinning. For some have no knowledge of God. I say this to your shame. (ESV)
+
+> **[Hebrews 9:13-14](https://www.biblegateway.com/passage/?search=Hebrews%209%3A13-14&version=ESV)** - For if the sprinkling of defiled persons with the blood of goats and bulls and with the ashes of a heifer sanctifies for the purification of the flesh, how much more will the blood of Christ, who through the eternal Spirit offered himself without blemish to God, purify our conscience from dead works to serve the living God. (ESV)
+
+> **[Romans 16:17-20](https://www.biblegateway.com/passage/?search=Romans%2016%3A17-20&version=ESV)** - I appeal to you, brothers, to watch out for those who cause divisions and create obstacles contrary to the doctrine that you have been taught; avoid them. For such persons do not serve our Lord Christ, but their own appetites, and by smooth talk and flattery they deceive the hearts of the naive. For your obedience is known to all, so that I rejoice over you, but I want you to be **wise as to what is good and innocent as to what is evil. The God of peace will soon crush Satan under your feet.** The grace of our Lord Jesus Christ be with you. (ESV)
+
 I'm not giving up resisting the evil which has come against me.
 I'm not going to rest in Satan's fake rest.
 
@@ -89958,7 +89979,7 @@ And a sin of omission is working lawlessness.
 
 A sin of omission, though, is where a person **knows** what good they ought to do and close their heart to not do it.
 
-A person is saved from practicing lawlessness into practicing righteousness, and the fruit of obedience to God the Father and to Jesus Christ His Son leads to sanctification and eternal life.
+A person is saved from practicing lawlessness and into practicing righteousness, and the fruit of obedience to God the Father and to Jesus Christ His Son leads to sanctification and eternal life.
 
 > **[Philippians 1:9-11](https://www.biblegateway.com/passage/?search=Philippians%201%3A9-11&version=ESV)** - And it is my prayer that your love may abound more and more, with knowledge and all discernment, so that you may approve what is excellent, and so be pure and blameless for the day of Christ, filled with the fruit of righteousness that comes through Jesus Christ, to the glory and praise of God.
 
@@ -89966,29 +89987,56 @@ A person is saved from practicing lawlessness into practicing righteousness, and
 
 > **[Hebrews 5:7-14](https://www.biblegateway.com/passage/?search=Hebrews%205%3A7-14&version=ESV)** - In the days of his flesh, Jesus offered up prayers and supplications, with loud cries and tears, to him who was able to save him from death, and he was heard because of his reverence. Although he was a son, he learned obedience through what he suffered. And being made perfect, he became the source of eternal salvation to all who obey him, being designated by God a high priest after the order of Melchizedek. About this we have much to say, and it is hard to explain, since you have become dull of hearing. For though by this time you ought to be teachers, you need someone to teach you again the basic principles of the oracles of God. You need milk, not solid food, for everyone who lives on milk is unskilled in the word of righteousness, since he is a child. But solid food is for the mature, for those who have their powers of discernment trained by constant practice to distinguish good from evil. (ESV)
 
-A person is saved into doing good deeds.
+A person is saved into doing good deeds because they are saved into having
+faith with a love for the truth, and when they do a deed while having this faith, a good deed is done.
+
+A Christian is saved into doing good deeds out of faith in Jesus.
+
 True salvation comes with the promise of doing the deeds that Jesus did, good deeds.
 
 > **[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)** - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father. (ESV)
 
 If a person is deeding then those deeds are either evil deeds or they are good deeds.
 A saved person does good deeds.
-A person is saved not because of their former works, but they are saved into good works.
+
+> **[III John 1:11](https://www.biblegateway.com/passage/?search=3%20John%201%3A11&version=ESV)** - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil has not seen God. (ESV)
+
+A person is saved not because of their former works, but they are saved into doing good works:
 
 > **[Ephesians 2:1-10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-10&version=ESV)** - And you were dead in the trespasses and sins in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind. But God, being rich in mercy, because of the great love with which he loved us, even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved— and raised us up with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show the immeasurable riches of his grace in kindness toward us in Christ Jesus. For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
 
-The salvation which has been bought to the person who is being saved is still to be performed. I think of it like a package which Jesus Christ has bought, which we still need to perform, so long as they are obligated to:
+The salvation which has been bought by Jesus is still to be performed by the person who is being saved. I think of it like a package which Jesus Christ has bought which results in a person who is zealous for good deeds.
+
+> **[Titus 2:11-15](https://www.biblegateway.com/passage/?search=Titus%202%3A11-15&version=ESV)** - For the grace of God has appeared, bringing salvation for all people, training us to renounce ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age, waiting for our blessed hope, the appearing of the glory of our great God and Savior Jesus Christ, who gave himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who are zealous for good works. Declare these things; exhort and rebuke with all authority. Let no one disregard you. (ESV)
+
+The salvation which is salvation from committing sin still needs to be performed, so long as they are obligated to:
 
 > **[I Corinthians 15:1-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A1-8&version=ESV)** - Now I would remind you, brothers, of the gospel I preached to you, which you received, in which you stand, and **by which you are being saved, if you hold fast to the word I preached to you—unless you believed in vain.** For I delivered to you as of <ins>first importance what I also received: that Christ died for our sins in accordance with the Scriptures, that he was buried, that he was raised on the third day in accordance with the Scriptures,</ins> and that he appeared to Cephas, then to the twelve. Then he appeared to more than five hundred brothers at one time, most of whom are still alive, though some have fallen asleep. Then he appeared to James, then to all the apostles. Last of all, as to one untimely born, he appeared also to me. (ESV)
 
 > **[Philippians 2:12-16](https://www.biblegateway.com/passage/?search=Philippians%202%3A12-16&version=ESV)** - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure. Do all things without grumbling or questioning, that you may be blameless and innocent, children of God without blemish in the midst of a crooked and twisted generation, among whom you shine as lights in the world, holding fast to the word of life, so that in the day of Christ I may be proud that I did not run in vain or labor in vain. (ESV)
 
+> **[John 8:34-35](https://www.biblegateway.com/passage/?search=John%208%3A34-35&version=ESV),36,42,51** - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+
+> **[I Corinthians 9:16](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A16&version=ESV)** - For if I preach the gospel, that gives me no ground for boasting. For necessity is laid upon me. Woe to me if I do not preach the gospel! (ESV)
+
 But when a person starts walking in their salvation, it's not because of former works of theirs.
 In other words, they didn't deserve to receive salvation.
+
+Why can noone boast before God?
+
+-   All humans asides from Jesus need/have needed to be saved from death through Jesus Christ.
+-   All who are saved are saved from being enslaved to sin.
+-   All who have been saved have needed God's forgiveness and restoration.
+-   All have fallen short of God's glory.
+-   Only God carries out perfect deeds all the time.
+-   Noone can repay God.
+-   Noone can exceed God's holiness or perfection or goodness.
 
 [Romans 4:3-8](https://www.biblegateway.com/passage/?search=Romans%204%3A3-8&version=ESV) is talking about former works which we are not saved by.
 
 > **[Romans 4:3-8](https://www.biblegateway.com/passage/?search=Romans%204%3A3-8&version=ESV)** - For what does the Scripture say? Abraham believed God, and it was counted to him as righteousness. Now to the one who works, his wages are not counted as a gift but as his due. And to the one who does not work but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from works: Blessed are those whose lawless deeds are forgiven, and whose sins are covered; blessed is the man against whom the Lord will not count his sin. (ESV)
+
+> **[Ephesians 2:1-10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-10&version=ESV)** - And you were dead in the trespasses and sins in which you once walked, following the course of this world, following the prince of the power of the air, the spirit that is now at work in the sons of disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind. But God, being rich in mercy, because of the great love with which he loved us, even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved— and raised us up with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show the immeasurable riches of his grace in kindness toward us in Christ Jesus. For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
 
 And today upon receiving this dream, I also received an email.
 
@@ -89997,11 +90045,13 @@ but there's not enough evidence that they are even a real person,
 then I think there's no sin of omission in not sending money.
 These days with chatbots etc. I think it's wise to have a conversation and see if this is even a real person with real needs,
 before deciding to give money across the internet blindly.
-I think that one should do their duty to love neighbour who they see directly with their own eyes, or hear their actual voice.
+I think that one should do their duty to love their neighbour who they have seen directly with their own eyes, or have heard their actual voice. We can love Jesus in our deeds in this way, by loving His family in deed:
 
 > **[I John 4:20](https://www.biblegateway.com/passage/?search=1%20John%204%3A20&version=ESV)** - If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. (ESV)
 
-I think that one should do their duty to love their own countryman.
+> **[Matthew 25:31-40](https://www.biblegateway.com/passage/?search=Matthew%2025%3A31-40&version=ESV)** - When the Son of Man comes in his glory, and all the angels with him, then he will sit on his glorious throne. Before him will be gathered all the nations, and he will separate people one from another as a shepherd separates the sheep from the goats. And he will place the sheep on his right, but the goats on the left. Then the King will say to those on his right, Come, you who are blessed by my Father, inherit the kingdom prepared for you from the foundation of the world. For I was hungry and you gave me food, I was thirsty and you gave me drink, I was a stranger and you welcomed me, I was naked and you clothed me, I was sick and you visited me, I was in prison and you came to me. Then the righteous will answer him, saying, Lord, when did we see you hungry and feed you, or thirsty and give you drink? And when did we see you a stranger and welcome you, or naked and clothe you? And when did we see you sick or in prison and visit you? And the King will answer them, Truly, I say to you, as you did it to one of the least of these my brothers, you did it to me. (ESV)
+
+I think that one should do their duty to love their own countryman:
 
 > **[Leviticus 19:17-18](https://www.biblegateway.com/passage/?search=Leviticus%2019%3A17-18&version=ESV)** - **‘You shall not hate your fellow countryman in your heart; you may surely reprove your neighbor, but shall not incur sin because of him**. You shall not take vengeance, nor bear any grudge against the sons of your people, but you shall love your neighbor as yourself; I am the LORD. (NASB)
 

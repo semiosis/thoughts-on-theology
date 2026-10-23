@@ -143815,6 +143815,38 @@ And I woke up and I thought, what could this mean? Perhaps it's something to do 
 Lamb. However, later in the day today, I am still wondering if this dream is really from God, and I'm still
 bothered by some things including continued demonic harassment and defilement and oppression.
 
+I have, for example, a year or two ago, been getting extreme pressure from both people around me and also by
+dreams and visions and difficult circumstances to break faithfulness to Jesus (to not affirm teachings from or
+about Jesus Christ, and to renege on committments I had made to Him, or to affirm sinful behaviour), and as past
+of this was some strange dreams depicting "feasting", and that "feasting" was simultaneously depicting unity with
+the world. And I was also receiving a huge amount of punishment through demonic attacks including dreams with
+themes of demonic religions and sexual perversion, seemingly punishing me as I had been choosing holiness.
+
+And so I'm not 100% sure about this dream with the cuttlery. There has been a huge amount of pressure on me to
+stop having faith and rather go back into sinning, and this pressure has often come through doctrines of demons
+which I have heard taught in places which call themselves Christian churches.
+
+I'm not giving up resisting the evil which has come against me. I'm not going to rest in Satan's fake rest. I'm
+happy to grow in the grace and knowledge of God as I continue endeavouring to trust and obey Jesus Christ:
+
+  Romans 6:23 - For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord.
+  (ESV)
+
+  I Corinthians 15:34 - Wake up from your drunken stupor, as is right, and do not go on sinning. For some have no
+  knowledge of God. I say this to your shame. (ESV)
+
+  Hebrews 9:13-14 - For if the sprinkling of defiled persons with the blood of goats and bulls and with the ashes
+  of a heifer sanctifies for the purification of the flesh, how much more will the blood of Christ, who through
+  the eternal Spirit offered himself without blemish to God, purify our conscience from dead works to serve the
+  living God. (ESV)
+
+  Romans 16:17-20 - I appeal to you, brothers, to watch out for those who cause divisions and create obstacles
+  contrary to the doctrine that you have been taught; avoid them. For such persons do not serve our Lord Christ,
+  but their own appetites, and by smooth talk and flattery they deceive the hearts of the naive. For your
+  obedience is known to all, so that I rejoice over you, but I want you to be wise as to what is good and innocent
+  as to what is evil. The God of peace will soon crush Satan under your feet. The grace of our Lord Jesus Christ
+  be with you. (ESV)
+
 I'm not giving up resisting the evil which has come against me. I'm not going to rest in Satan's fake rest.
 
 Jesus' rest is entered through faith and obedience. Now, yes, the real faith involves a turning away from sin.
@@ -143825,8 +143857,8 @@ But continuing in faith involves continuing in obedience too. And a sin of omiss
 
 A sin of omission, though, is where a person knows what good they ought to do and close their heart to not do it.
 
-A person is saved from practicing lawlessness into practicing righteousness, and the fruit of obedience to God the
-Father and to Jesus Christ His Son leads to sanctification and eternal life.
+A person is saved from practicing lawlessness and into practicing righteousness, and the fruit of obedience to God
+the Father and to Jesus Christ His Son leads to sanctification and eternal life.
 
   Philippians 1:9-11 - And it is my prayer that your love may abound more and more, with knowledge and all
   discernment, so that you may approve what is excellent, and so be pure and blameless for the day of Christ,
@@ -143845,14 +143877,23 @@ Father and to Jesus Christ His Son leads to sanctification and eternal life.
   a child. But solid food is for the mature, for those who have their powers of discernment trained by constant
   practice to distinguish good from evil. (ESV)
 
-A person is saved into doing good deeds. True salvation comes with the promise of doing the deeds that Jesus did,
-good deeds.
+A person is saved into doing good deeds because they are saved into having faith with a love for the truth, and
+when they do a deed while having this faith, a good deed is done.
+
+A Christian is saved into doing good deeds out of faith in Jesus.
+
+True salvation comes with the promise of doing the deeds that Jesus did, good deeds.
 
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
   works than these will he do, because I am going to the Father. (ESV)
 
 If a person is deeding then those deeds are either evil deeds or they are good deeds. A saved person does good
-deeds. A person is saved not because of their former works, but they are saved into good works.
+deeds.
+
+  III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
+  has not seen God. (ESV)
+
+A person is saved not because of their former works, but they are saved into doing good works:
 
   Ephesians 2:1-10 - And you were dead in the trespasses and sins in which you once walked, following the course
   of this world, following the prince of the power of the air, the spirit that is now at work in the sons of
@@ -143865,8 +143906,18 @@ deeds. A person is saved not because of their former works, but they are saved i
   doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship,
   created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
 
-The salvation which has been bought to the person who is being saved is still to be performed. I think of it like
-a package which Jesus Christ has bought, which we still need to perform, so long as they are obligated to:
+The salvation which has been bought by Jesus is still to be performed by the person who is being saved. I think of
+it like a package which Jesus Christ has bought which results in a person who is zealous for good deeds.
+
+  Titus 2:11-15 - For the grace of God has appeared, bringing salvation for all people, training us to renounce
+  ungodliness and worldly passions, and to live self-controlled, upright, and godly lives in the present age,
+  waiting for our blessed hope, the appearing of the glory of our great God and Savior Jesus Christ, who gave
+  himself for us to redeem us from all lawlessness and to purify for himself a people for his own possession who
+  are zealous for good works. Declare these things; exhort and rebuke with all authority. Let no one disregard
+  you. (ESV)
+
+The salvation which is salvation from committing sin still needs to be performed, so long as they are obligated
+to:
 
   I Corinthians 15:1-8 - Now I would remind you, brothers, of the gospel I preached to you, which you received, in
   which you stand, and by which you are being saved, if you hold fast to the word I preached to you—unless you
@@ -143883,8 +143934,27 @@ a package which Jesus Christ has bought, which we still need to perform, so long
   whom you shine as lights in the world, holding fast to the word of life, so that in the day of Christ I may be
   proud that I did not run in vain or labor in vain. (ESV)
 
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  I Corinthians 9:16 - For if I preach the gospel, that gives me no ground for boasting. For necessity is laid
+  upon me. Woe to me if I do not preach the gospel! (ESV)
+
 But when a person starts walking in their salvation, it's not because of former works of theirs. In other words,
 they didn't deserve to receive salvation.
+
+Why can noone boast before God?
+
+• All humans asides from Jesus need/have needed to be saved from death through Jesus Christ.
+• All who are saved are saved from being enslaved to sin.
+• All who have been saved have needed God's forgiveness and restoration.
+• All have fallen short of God's glory.
+• Only God carries out perfect deeds all the time.
+• Noone can repay God.
+• Noone can exceed God's holiness or perfection or goodness.
 
 Romans 4:3-8 is talking about former works which we are not saved by.
 
@@ -143895,18 +143965,41 @@ Romans 4:3-8 is talking about former works which we are not saved by.
   whose lawless deeds are forgiven, and whose sins are covered; blessed is the man against whom the Lord will not
   count his sin. (ESV)
 
+  Ephesians 2:1-10 - And you were dead in the trespasses and sins in which you once walked, following the course
+  of this world, following the prince of the power of the air, the spirit that is now at work in the sons of
+  disobedience— among whom we all once lived in the passions of our flesh, carrying out the desires of the body
+  and the mind, and were by nature children of wrath, like the rest of mankind. But God, being rich in mercy,
+  because of the great love with which he loved us, even when we were dead in our trespasses, made us alive
+  together with Christ—by grace you have been saved— and raised us up with him and seated us with him in the
+  heavenly places in Christ Jesus, so that in the coming ages he might show the immeasurable riches of his grace
+  in kindness toward us in Christ Jesus. For by grace you have been saved through faith. And this is not your own
+  doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship,
+  created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
+
 And today upon receiving this dream, I also received an email.
 
 I think that if someone gets an email in their inbox which says, "I need money, please help." but there's not
 enough evidence that they are even a real person, then I think there's no sin of omission in not sending money.
 These days with chatbots etc. I think it's wise to have a conversation and see if this is even a real person with
 real needs, before deciding to give money across the internet blindly. I think that one should do their duty to
-love neighbour who they see directly with their own eyes, or hear their actual voice.
+love their neighbour who they have seen directly with their own eyes, or have heard their actual voice. We can
+love Jesus in our deeds in this way, by loving His family in deed:
 
   I John 4:20 - If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
   brother whom he has seen cannot love God whom he has not seen. (ESV)
 
-I think that one should do their duty to love their own countryman.
+  Matthew 25:31-40 - When the Son of Man comes in his glory, and all the angels with him, then he will sit on his
+  glorious throne. Before him will be gathered all the nations, and he will separate people one from another as a
+  shepherd separates the sheep from the goats. And he will place the sheep on his right, but the goats on the
+  left. Then the King will say to those on his right, Come, you who are blessed by my Father, inherit the kingdom
+  prepared for you from the foundation of the world. For I was hungry and you gave me food, I was thirsty and you
+  gave me drink, I was a stranger and you welcomed me, I was naked and you clothed me, I was sick and you visited
+  me, I was in prison and you came to me. Then the righteous will answer him, saying, Lord, when did we see you
+  hungry and feed you, or thirsty and give you drink? And when did we see you a stranger and welcome you, or naked
+  and clothe you? And when did we see you sick or in prison and visit you? And the King will answer them, Truly, I
+  say to you, as you did it to one of the least of these my brothers, you did it to me. (ESV)
+
+I think that one should do their duty to love their own countryman:
 
   Leviticus 19:17-18 - ‘You shall not hate your fellow countryman in your heart; you may surely reprove your
   neighbor, but shall not incur sin because of him. You shall not take vengeance, nor bear any grudge against the
@@ -144000,11 +144093,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-23 Fri 18:44
+Date: 2026-10-24 Sat 00:03
 
 Author: Shane Mulligan
 
-Created: 2026-10-23 Fri 22:29
+Created: 2026-10-24 Sat 00:06
 
 Validate
 
