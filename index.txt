@@ -143825,9 +143825,28 @@ But continuing in faith involves continuing in obedience too. And a sin of omiss
 
 A sin of omission, though, is where a person knows what good they ought to do and do know do it.
 
-A person is saved from practicing lawlessness into practicing righteousness, and the fruit of obedience to Jesus
-Christ is eternal life. A person is saved into doing good deeds. True salvation comes with the promise of doing
-the deeds that Jesus did, good deeds.
+A person is saved from practicing lawlessness into practicing righteousness, and the fruit of obedience to God the
+Father and to Jesus Christ His Son leads to sanctification and eternal life.
+
+  Philippians 1:9-11 - And it is my prayer that your love may abound more and more, with knowledge and all
+  discernment, so that you may approve what is excellent, and so be pure and blameless for the day of Christ,
+  filled with the fruit of righteousness that comes through Jesus Christ, to the glory and praise of God.
+
+  Romans 6:22 - But now that you have been set free from sin and have become slaves of God, the fruit you get
+  leads to sanctification and its end, eternal life. (ESV)
+
+  Hebrews 5:7-14 - In the days of his flesh, Jesus offered up prayers and supplications, with loud cries and
+  tears, to him who was able to save him from death, and he was heard because of his reverence. Although he was a
+  son, he learned obedience through what he suffered. And being made perfect, he became the source of eternal
+  salvation to all who obey him, being designated by God a high priest after the order of Melchizedek. About this
+  we have much to say, and it is hard to explain, since you have become dull of hearing. For though by this time
+  you ought to be teachers, you need someone to teach you again the basic principles of the oracles of God. You
+  need milk, not solid food, for everyone who lives on milk is unskilled in the word of righteousness, since he is
+  a child. But solid food is for the mature, for those who have their powers of discernment trained by constant
+  practice to distinguish good from evil. (ESV)
+
+A person is saved into doing good deeds. True salvation comes with the promise of doing the deeds that Jesus did,
+good deeds.
 
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
   works than these will he do, because I am going to the Father. (ESV)
@@ -143985,7 +144004,7 @@ Date: 2026-10-23 Fri 18:44
 
 Author: Shane Mulligan
 
-Created: 2026-10-23 Fri 21:50
+Created: 2026-10-23 Fri 22:07
 
 Validate
 
