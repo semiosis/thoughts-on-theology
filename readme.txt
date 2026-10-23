@@ -143823,7 +143823,7 @@ lawlessness.
 
 But continuing in faith involves continuing in obedience too. And a sin of omission is working lawlessness.
 
-A sin of omission, though, is where a person knows what good they ought to do and do know do it.
+A sin of omission, though, is where a person knows what good they ought to do and close their heart to not do it.
 
 A person is saved from practicing lawlessness into practicing righteousness, and the fruit of obedience to God the
 Father and to Jesus Christ His Son leads to sanctification and eternal life.
@@ -144004,7 +144004,7 @@ Date: 2026-10-23 Fri 18:44
 
 Author: Shane Mulligan
 
-Created: 2026-10-23 Fri 22:07
+Created: 2026-10-23 Fri 22:29
 
 Validate
 
