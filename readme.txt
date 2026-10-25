@@ -21809,11 +21809,13 @@ to us, as keeping a good conscience with God would require them to be done).
   Galatians 6:10 - So then, as we have opportunity, let us do good to everyone, and especially to those who are of
   the household of faith. (ESV)
 
- | *[[https://www.biblegateway.com/passage/?search=Proverbs%203%3A28&version=ESV][Proverbs 3:28]]* - Do not say to your neighbor, Go, and come again, tomorrow I will give it—when you have it with you. (ESV)
+  Proverbs 3:28 - Do not say to your neighbor, Go, and come again, tomorrow I will give it—when you have it with
+  you. (ESV)
 
- | *[[https://www.biblegateway.com/passage/?search=Proverbs%203%3A27-28&version=ESV][Proverbs 3:27-28]]* - Do not withhold good from those to whom it is due, when it is in your power to do it. Do not say to your neighbor, Go, and come again, tomorrow I will give it—when you have it with you. (ESV)
+  Proverbs 3:27-28 - Do not withhold good from those to whom it is due, when it is in your power to do it. Do not
+  say to your neighbor, Go, and come again, tomorrow I will give it—when you have it with you. (ESV)
 
- | *[[https://www.biblegateway.com/passage/?search=Psalms%2037%3A21&version=ESV][Psalms 37:21]]* - The wicked borrows but does not pay back, but the righteous is generous and gives; (ESV)
+  Psalms 37:21 - The wicked borrows but does not pay back, but the righteous is generous and gives; (ESV)
 
 Being "generous" and "ready to share" are heart attitudes and as we practice these heart attitudes, the Scripture
 says we are laying up a good foundation for the future:
@@ -144135,7 +144137,7 @@ Date: 2026-10-25 Sun 20:49
 
 Author: Shane Mulligan
 
-Created: 2026-10-25 Sun 20:53
+Created: 2026-10-26 Mon 00:50
 
 Validate
 

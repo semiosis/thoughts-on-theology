@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  25 OCT 2026 21:22
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  26 OCT 2026 01:01
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -1147,29 +1147,8 @@ Missing character: There is no κ in font [lmmono10-regular]:!
 Missing character: There is no ί in font [lmmono10-regular]:!
 Missing character: There is no α in font [lmmono10-regular]:!
 Missing character: There is no ς in font [lmmono10-regular]:!
- [405] [406] [407] [408]
-Overfull \hbox (458.25725pt too wide) in paragraph at lines 17368--17368
-[]\TU/lmtt/m/n/10.95 1  *[[https://www.biblegateway.com/passage/?search=Proverb
-s%203%3A28&version=ESV][Proverbs 3:28]]* - Do not say to your neighbor, Go, and
- come again, tomorrow I will give it—
- []
-
-
-Overfull \hbox (987.14215pt too wide) in paragraph at lines 17372--17372
-[]\TU/lmtt/m/n/10.95 1  *[[https://www.biblegateway.com/passage/?search=Proverb
-s%203%3A27-28&version=ESV][Proverbs 3:27-28]]* - Do not withhold good from thos
-e to whom it is due, when it is in your power to do it. Do not say to your neig
-hbor, Go, and come again, tomorrow I will give it—
- []
-
-
-Overfull \hbox (532.99098pt too wide) in paragraph at lines 17376--17376
-[]\TU/lmtt/m/n/10.95 1  *[[https://www.biblegateway.com/passage/?search=Psalms%
-2037%3A21&version=ESV][Psalms 37:21]]* - The wicked borrows but does not pay ba
-ck, but the righteous is generous and gives; (ESV)[] 
- []
-
-[409] [410] [411] [412] [413] [414] [415]
+ [405] [406] [407] [408] [409]
+[410] [411] [412] [413] [414] [415]
 Overfull \hbox (14.57535pt too wide) in paragraph at lines 17627--17628
 |   []   |   []   |   []   |   []   |   []   |   []   |   []   |   []   |   [] 
   |   []
@@ -1792,7 +1771,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 29667--29675
 
 [689] [690] [691]
 
-LaTeX Warning: Hyper reference `sec:orga03fc5c' on page 692 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgdb36001' on page 692 undefined on input 
 line 30061.
 
 [692] [693] [694] [695] [696] [697]
@@ -2761,7 +2740,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 38028--38031
 
 [870]
 
-LaTeX Warning: Hyper reference `sec:org153e914' on page 871 undefined on input 
+LaTeX Warning: Hyper reference `sec:org9fb0342' on page 871 undefined on input 
 line 38095.
 
 [871]
@@ -6301,7 +6280,7 @@ Missing character: There is no ο in font [lmmono10-regular]:!
 Missing character: There is no υ in font [lmmono10-regular]:!
  [1579]
 
-LaTeX Warning: Reference `sec:orgbf19de4' on page 1580 undefined on input line 
+LaTeX Warning: Reference `sec:org42e4b70' on page 1580 undefined on input line 
 73208.
 
 [1580] [1581]
@@ -8333,7 +8312,7 @@ Missing character: There is no ύ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ω in font [lmroman10-regular]:mapping=tex-text;!
  [2186] [2187] [2188] [2189]
 
-LaTeX Warning: Reference `sec:orgbf19de4' on page 2190 undefined on input line 
+LaTeX Warning: Reference `sec:org42e4b70' on page 2190 undefined on input line 
 102995.
 
 [2190] [2191] [2192]
@@ -8559,7 +8538,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 106535--106538
 
 [2259] [2260] [2261] [2262] [2263]
 
-LaTeX Warning: Hyper reference `sec:org2dcaca4' on page 2264 undefined on input
+LaTeX Warning: Hyper reference `sec:org0e9c38c' on page 2264 undefined on input
  line 106829.
 
 [2264]
@@ -9515,7 +9494,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 118120--118121
 
 [2482] [2483] [2484] [2485] [2486] [2487] [2488]
 
-LaTeX Warning: Hyper reference `sec:org2dcaca4' on page 2489 undefined on input
+LaTeX Warning: Hyper reference `sec:org0e9c38c' on page 2489 undefined on input
  line 118337.
 
 [2489] [2490] [2491]
@@ -9861,7 +9840,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 120058--120065
 
 [2527]
 
-LaTeX Warning: Hyper reference `sec:orgd8d52ba' on page 2528 undefined on input
+LaTeX Warning: Hyper reference `sec:org0a05f74' on page 2528 undefined on input
  line 120149.
 
 [2528]
