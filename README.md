@@ -782,6 +782,8 @@ A person who is sinful who has turned to have faith in Jesus can appeal to God f
 
 > **[Psalms 51:1-2](https://www.biblegateway.com/passage/?search=Psalms%2051%3A1-2&version=ESV)** - Have mercy on me, O God, according to your steadfast love; according to your abundant mercy blot out my transgressions. To the choirmaster. A Psalm of David, when Nathan the prophet went to him, after he had gone in to Bathsheba. Wash me thoroughly from my iniquity, and cleanse me from my sin! (ESV)
 
+> **[Daniel 9:4-5](https://www.biblegateway.com/passage/?search=Daniel%209%3A4-5&version=ESV)** - I prayed to the LORD my God and made confession, saying, O Lord, the great and awesome God, who keeps covenant and steadfast love with those who love him and keep his commandments, we have sinned and done wrong and acted wickedly and rebelled, turning aside from your commandments and rules. (ESV)
+
 So while God justifies the ungodly who have faith (**[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)**), there is a day of judgement coming for the ungodly and it's coming for **all** the ungodly (**[Romans 1:18-25](https://www.biblegateway.com/passage/?search=Romans%201%3A18-25&version=ESV)**):
 
 > **[II Peter 3:7](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A7&version=ESV)** - But by the same word the heavens and earth that now exist are stored up for fire, being kept until the day of judgment and destruction of the ungodly. (ESV)
@@ -1814,6 +1816,12 @@ We've got to love Jesus rather than evil. Jesus cleans us so that we stop commit
     
     > **[I John 3:6-18](https://www.biblegateway.com/passage/?search=1%20John%203%3A6-18&version=ESV)** - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. **We should not be like Cain, who was of the evil one and murdered his brother. And why did he murder him? Because his own deeds were evil and his brother's righteous.** Do not be surprised, brothers, that the world hates you. We know that we have passed out of death into life, because we love the brothers. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little children, let us not love in word or talk but in deed and in truth. (ESV)
     
+    > **[Deuteronomy 15:7-8](https://www.biblegateway.com/passage/?search=Deuteronomy%2015%3A7-8&version=ESV)** - If among you, one of your brothers should become poor, in any of your towns within your land that the LORD your God is giving you, you shall not harden your heart or shut your hand against your poor brother, but you shall open your hand to him and lend him sufficient for his need, whatever it may be. (ESV)
+    
+    > **[James 4:17](https://www.biblegateway.com/passage/?search=James%204%3A17&version=ESV)** - So whoever knows the right thing to do and fails to do it, for him it is sin. (ESV)
+    
+    > **[I John 3:14-20](https://www.biblegateway.com/passage/?search=1%20John%203%3A14-20&version=ESV)** - We know that we have passed out of death into life, because we love (**[agapōmen](https://biblehub.com/interlinear/1_john/3-14.htm)**) the brothers. Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down our lives for the brothers. But if anyone has the world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little children, let us not love in word or talk but in deed and in truth. By this we shall know that we are of the truth and reassure our heart before him; for whenever our heart condemns us, God is greater than our heart, and he knows everything. (ESV)
+    
     We need to continue trusting Jesus. It's not possible to simultaneously commit sin and have faith in Jesus Christ. So we must resist committing sin:
     
     > **[Hebrews 3:12-19](https://www.biblegateway.com/passage/?search=Hebrews%203%3A12-19&version=ESV)** - Take care, brothers, lest there be in any of you an evil, unbelieving heart, leading you to fall away from the living God. But exhort one another every day, as long as it is called today, that none of you may be hardened by the deceitfulness of sin. For we share in Christ, if indeed we hold our original confidence firm to the end. As it is said, Today, if you hear his voice, do not harden your hearts as in the rebellion. For who were those who heard and yet rebelled? Was it not all those who left Egypt led by Moses? And with whom was he provoked for forty years? Was it not with those who sinned, whose bodies fell in the wilderness? And to whom did he swear that they would not enter his rest, but to those who were disobedient? So we see that they were unable to enter because of unbelief. (ESV)
@@ -2389,6 +2397,8 @@ of God doesn't commit sin ([I John 5:18](https://www.biblegateway.com/passage/?s
 We should love those who are not loving us, and we should do so the way we are commanded to. In "by faith in Jesus' word, His instruction" love those who are not loving us, we are exercising faith in Jesus. In by faith obeying Jesus Christ from a love of the truth, we are doing God's will for us in this matter:
 
 > **[Luke 6:27-36](https://www.biblegateway.com/passage/?search=Luke%206%3A27-36&version=ESV)** - But I say to you who hear, Love your enemies, do good to those who hate you, bless those who curse you, pray for those who abuse you. To one who strikes you on the cheek, offer the other also, and from one who takes away your cloak do not withhold your tunic either. Give to everyone who begs from you, and from one who takes away your goods do not demand them back. And as you wish that others would do to you, do so to them. If you love those who love you, what benefit is that to you? For even sinners love those who love them. And if you do good to those who do good to you, what benefit is that to you? For even sinners do the same. And if you lend to those from whom you expect to receive, what credit is that to you? Even sinners lend to sinners, to get back the same amount. But love your enemies, and do good, and lend, expecting nothing in return, and your reward will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be merciful, even as your Father is merciful. (ESV)
+
+> **[Exodus 22:25](https://www.biblegateway.com/passage/?search=Exodus%2022%3A25&version=ESV)** - If you lend money to any of my people with you who is poor, you shall not be like a moneylender to him, and you shall not exact interest from him. (ESV)
 
 -   [Polycarp 3:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html) [3:2 the faith given to you] which is the mother of us all, while hope followeth after and
     **love goeth before** &#x2013; <ins>love toward God and Christ and toward our neighbor.</ins> For
@@ -11392,6 +11402,12 @@ So in resting from our works, we remain ready and prepared to do good works oppo
 
 > **[Galatians 6:10](https://www.biblegateway.com/passage/?search=Galatians%206%3A10&version=ESV)** - So then, as we have opportunity, let us do good to everyone, and especially to those who are of the household of faith. (ESV)
 
+    1  *[[https://www.biblegateway.com/passage/?search=Proverbs%203%3A28&version=ESV][Proverbs 3:28]]* - Do not say to your neighbor, Go, and come again, tomorrow I will give it—when you have it with you. (ESV)
+
+    1  *[[https://www.biblegateway.com/passage/?search=Proverbs%203%3A27-28&version=ESV][Proverbs 3:27-28]]* - Do not withhold good from those to whom it is due, when it is in your power to do it. Do not say to your neighbor, Go, and come again, tomorrow I will give it—when you have it with you. (ESV)
+
+    1  *[[https://www.biblegateway.com/passage/?search=Psalms%2037%3A21&version=ESV][Psalms 37:21]]* - The wicked borrows but does not pay back, but the righteous is generous and gives; (ESV)
+
 Being "generous" and "ready to share" are heart attitudes and as we practice these heart attitudes, the Scripture says we are laying up a good foundation for the future:
 
 > **[I Timothy 6:17-19](https://www.biblegateway.com/passage/?search=1%20Timothy%206%3A17-19&version=ESV)** - As for the rich in this present age, **charge them not to be haughty, nor to set their hopes on the uncertainty of riches, but on God, who richly provides us with everything to enjoy**. They are to do good, to be rich in good works, to be **generous and ready to share**, thus storing up treasure for themselves as a good foundation for the future, so that they may take hold of that which is truly life. (ESV)
@@ -13381,6 +13397,10 @@ For salvation we should be unifying in heart and soul with other believers, with
     
     That's because of what Jesus Christ has taught in His parable of the unforgiving servant.
     My debt was cancelled when I was born-again.
+    
+    > **[Deuteronomy 15:1-2](https://www.biblegateway.com/passage/?search=Deuteronomy%2015%3A1-2&version=ESV)** - At the end of every seven years you shall grant a release. And this is the manner of the release: every creditor shall release what he has lent to his neighbor. He shall not exact it of his neighbor, his brother, because the LORD's release has been proclaimed. (ESV)
+    
+    > **[Colossians 2:11-14](https://www.biblegateway.com/passage/?search=Colossians%202%3A11-14&version=ESV)** - In him also you were circumcised with a circumcision made without hands, by putting off the body of the flesh, by the circumcision of Christ, having been buried with him in baptism, in which you were also raised with him through faith in the powerful working of God, who raised him from the dead. And you, who were dead in your trespasses and the uncircumcision of your flesh, God made alive together with him, having forgiven us all our trespasses, by canceling the record of debt that stood against us with its legal demands. This he set aside, nailing it to the cross. (ESV)
     
     As for what happens going forward, I believe that it's right to be compassionate and merciful towards all men, as Polycarp has instructed,
     but abiding in the teaching of Christ.
@@ -19880,7 +19900,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgc5e343e) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8d5716c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -25724,7 +25744,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org8516226).
+I didn't know but it turned out to be the last day of my [sentence](#org354bd57).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -50748,7 +50768,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org9bc844a)
+See: [33.4.1](#org342f1a1)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -72599,7 +72619,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org9bc844a)
+See: [33.4.1](#org342f1a1)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -75255,7 +75275,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orge24fd2a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgaef69bd) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -83600,7 +83620,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orge24fd2a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgaef69bd) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -84938,7 +84958,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org80f0f21)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org8e84a87)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

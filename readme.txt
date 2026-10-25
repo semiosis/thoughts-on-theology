@@ -1534,6 +1534,10 @@ justification then they have access to sanctification. This may be a turning poi
   out my transgressions. To the choirmaster. A Psalm of David, when Nathan the prophet went to him, after he had
   gone in to Bathsheba. Wash me thoroughly from my iniquity, and cleanse me from my sin! (ESV)
 
+  Daniel 9:4-5 - I prayed to the LORD my God and made confession, saying, O Lord, the great and awesome God, who
+  keeps covenant and steadfast love with those who love him and keep his commandments, we have sinned and done
+  wrong and acted wickedly and rebelled, turning aside from your commandments and rules. (ESV)
+
 So while God justifies the ungodly who have faith (Romans 4:4-6), there is a day of judgement coming for the
 ungodly and it's coming for all the ungodly (Romans 1:18-25):
 
@@ -3877,6 +3881,20 @@ Entering the Kingdom of God requires having faith in Jesus Christ, having stoppe
   and sees his brother in need, yet closes his heart against him, how does God's love abide in him? Little
   children, let us not love in word or talk but in deed and in truth. (ESV)
 
+  Deuteronomy 15:7-8 - If among you, one of your brothers should become poor, in any of your towns within your
+  land that the LORD your God is giving you, you shall not harden your heart or shut your hand against your poor
+  brother, but you shall open your hand to him and lend him sufficient for his need, whatever it may be. (ESV)
+
+  James 4:17 - So whoever knows the right thing to do and fails to do it, for him it is sin. (ESV)
+
+  I John 3:14-20 - We know that we have passed out of death into life, because we love (agapōmen) the brothers.
+  Whoever does not love abides in death. Everyone who hates his brother is a murderer, and you know that no
+  murderer has eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought
+  to lay down our lives for the brothers. But if anyone has the world's goods and sees his brother in need, yet
+  closes his heart against him, how does God's love abide in him? Little children, let us not love in word or talk
+  but in deed and in truth. By this we shall know that we are of the truth and reassure our heart before him; for
+  whenever our heart condemns us, God is greater than our heart, and he knows everything. (ESV)
+
 We need to continue trusting Jesus. It's not possible to simultaneously commit sin and have faith in Jesus Christ.
 So we must resist committing sin:
 
@@ -5035,6 +5053,9 @@ obeying Jesus Christ from a love of the truth, we are doing God's will for us in
   back the same amount. But love your enemies, and do good, and lend, expecting nothing in return, and your reward
   will be great, and you will be sons of the Most High, for he is kind to the ungrateful and the evil. Be
   merciful, even as your Father is merciful. (ESV)
+
+  Exodus 22:25 - If you lend money to any of my people with you who is poor, you shall not be like a moneylender
+  to him, and you shall not exact interest from him. (ESV)
 
 • Polycarp 3:3 [3:2 the faith given to you] which is the mother of us all, while hope followeth after and love
 goeth before – love toward God and Christ and toward our neighbor. For if any man be occupied with these, he
@@ -21788,6 +21809,12 @@ to us, as keeping a good conscience with God would require them to be done).
   Galatians 6:10 - So then, as we have opportunity, let us do good to everyone, and especially to those who are of
   the household of faith. (ESV)
 
+ | *[[https://www.biblegateway.com/passage/?search=Proverbs%203%3A28&version=ESV][Proverbs 3:28]]* - Do not say to your neighbor, Go, and come again, tomorrow I will give it—when you have it with you. (ESV)
+
+ | *[[https://www.biblegateway.com/passage/?search=Proverbs%203%3A27-28&version=ESV][Proverbs 3:27-28]]* - Do not withhold good from those to whom it is due, when it is in your power to do it. Do not say to your neighbor, Go, and come again, tomorrow I will give it—when you have it with you. (ESV)
+
+ | *[[https://www.biblegateway.com/passage/?search=Psalms%2037%3A21&version=ESV][Psalms 37:21]]* - The wicked borrows but does not pay back, but the righteous is generous and gives; (ESV)
+
 Being "generous" and "ready to share" are heart attitudes and as we practice these heart attitudes, the Scripture
 says we are laying up a good foundation for the future:
 
@@ -25942,6 +25969,17 @@ anyone accountable for any perceived wrong done towards me.
 
 That's because of what Jesus Christ has taught in His parable of the unforgiving servant. My debt was cancelled
 when I was born-again.
+
+  Deuteronomy 15:1-2 - At the end of every seven years you shall grant a release. And this is the manner of the
+  release: every creditor shall release what he has lent to his neighbor. He shall not exact it of his neighbor,
+  his brother, because the LORD's release has been proclaimed. (ESV)
+
+  Colossians 2:11-14 - In him also you were circumcised with a circumcision made without hands, by putting off the
+  body of the flesh, by the circumcision of Christ, having been buried with him in baptism, in which you were also
+  raised with him through faith in the powerful working of God, who raised him from the dead. And you, who were
+  dead in your trespasses and the uncircumcision of your flesh, God made alive together with him, having forgiven
+  us all our trespasses, by canceling the record of debt that stood against us with its legal demands. This he set
+  aside, nailing it to the cross. (ESV)
 
 As for what happens going forward, I believe that it's right to be compassionate and merciful towards all men, as
 Polycarp has instructed, but abiding in the teaching of Christ.
@@ -144093,11 +144131,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-24 Sat 00:03
+Date: 2026-10-25 Sun 20:49
 
 Author: Shane Mulligan
 
-Created: 2026-10-24 Sat 00:06
+Created: 2026-10-25 Sun 20:53
 
 Validate
 
