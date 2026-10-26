@@ -524,6 +524,14 @@ So there must be a point at which God affirms that we have recognised our own de
 His mercy, and we need forgiveness and atonement for the sin incurred due to our history of evil deeds, and had
 faith in Jesus Christ while resting/abstaining from working so as to not commit sin.
 
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+nickcady.org: What Does It Mean That “Whatever Does Not Proceed From Faith Is Sin”? Whatever Does Not Proceed From
+Faith Is Sina ??? - Theology for the People
+If you have a sincere conviction before God that you should not do something, then you should act on that
+conviction in faith, and do so as unto the Lord.
+
 Being cleansed from sin involves a cessation of committing sin (I Peter 4:1-3, Ephesians 5:1-21, I John 1:7). To
 decide, "I will not steal" is to decide to "not work lawlessness".
 
@@ -25970,27 +25978,32 @@ for anything which anyone has done against me personally up to that time when I 
 anyone accountable for any perceived wrong done towards me.
 
 That's because of what Jesus Christ has taught in His parable of the unforgiving servant. My debt was cancelled
-when I was born-again. Jesus set me free. I quote Deuteronomy 15:1-2 here to show that in having been "released"
-is not an excuse to then extract from somebody else as the "unforgiving servant" was in (Matthew 18:21-35). But
-also, Deuteronomy 15:1-10 also says "He shall not exact it of his neighbor, his brother". It's important for for
-the believer in Christ to love their brother and to forgive their brother. The mother and brother and sister of
-those people who are in Christ are those who hear the word of God and do it (I Peter 2:6-9, Luke 8:21).
+when I was born-again. Jesus set me free. I quote Deuteronomy 15:1-2 here to show that in having been "released",
+it is not an excuse to then extract from one's own servants after one's own master forgiven them. The "unforgiving
+servant" in Jesus' parable in (Matthew 18:21-35) is an example of what we must not be like. But also, Deuteronomy
+15:1-10 also says "he shall not exact it of his neighbor, his brother". It's imperative that the believer in
+Christ loves their brother and forgives their brother from their heart as they themself have been forgiven.
+Ongoingly the instruction is to forgive if they repent but after having been forgiven by Jesus, ones' master, it's
+then vitally important to forgive anyone who had owed you. The mother and brother and sister of those people who
+are in Christ are those who hear the word of God and do it (I Peter 2:6-9, Luke 8:21). These people, we must love
+or the faith is not genuine (I John 3:13-16, Proverbs 8:35-36, I John 5:12). And for those who are on the outside
+of the faith, we are still instructed to do good for them as we have opportunity (Galatians 6:10).
 
-#BEGIN[QUOTE] Deuteronomy 15:1-10 - At the end of every seven years you shall grant a release. And this is the
-manner of the release: every creditor shall release what he has lent to his neighbor. He shall not exact it of his
-neighbor, his brother, because the LORD's release has been proclaimed. Of a foreigner you may exact it, but
-whatever of yours is with your brother your hand shall release. But there will be no poor among you; for the LORD
-will bless you in the land that the LORD your God is giving you for an inheritance to possess— if only you will
-strictly obey the voice of the LORD your God, being careful to do all this commandment that I command you today.
-For the LORD your God will bless you, as he promised you, and you shall lend to many nations, but you shall not
-borrow, and you shall rule over many nations, but they shall not rule over you. If among you, one of your brothers
-should become poor, in any of your towns within your land that the LORD your God is giving you, you shall not
-harden your heart or shut your hand against your poor brother, but you shall open your hand to him and lend him
-sufficient for his need, whatever it may be. Take care lest there be an unworthy thought in your heart and you
-say, The seventh year, the year of release is near, and your eye look grudgingly on your poor brother, and you
-give him nothing, and he cry to the LORD against you, and you be guilty of sin. You shall give to him freely, and
-your heart shall not be grudging when you give to him, because for this the LORD your God will bless you in all
-your work and in all that you undertake. (ESV) #+END[QUOTE]
+  Deuteronomy 15:1-10 - At the end of every seven years you shall grant a release. And this is the manner of the
+  release: every creditor shall release what he has lent to his neighbor. He shall not exact it of his neighbor,
+  his brother, because the LORD's release has been proclaimed. Of a foreigner you may exact it, but whatever of
+  yours is with your brother your hand shall release. But there will be no poor among you; for the LORD will bless
+  you in the land that the LORD your God is giving you for an inheritance to possess— if only you will strictly
+  obey the voice of the LORD your God, being careful to do all this commandment that I command you today. For the
+  LORD your God will bless you, as he promised you, and you shall lend to many nations, but you shall not borrow,
+  and you shall rule over many nations, but they shall not rule over you. If among you, one of your brothers
+  should become poor, in any of your towns within your land that the LORD your God is giving you, you shall not
+  harden your heart or shut your hand against your poor brother, but you shall open your hand to him and lend him
+  sufficient for his need, whatever it may be. Take care lest there be an unworthy thought in your heart and you
+  say, The seventh year, the year of release is near, and your eye look grudgingly on your poor brother, and you
+  give him nothing, and he cry to the LORD against you, and you be guilty of sin. You shall give to him freely,
+  and your heart shall not be grudging when you give to him, because for this the LORD your God will bless you in
+  all your work and in all that you undertake. (ESV)
 
   Luke 4:18-21 - The Spirit of the Lord is upon me, because he has anointed me to proclaim good news to the poor.
   He has sent me to proclaim liberty to the captives and recovering of sight to the blind, to set at liberty those
@@ -144210,7 +144223,7 @@ Date: 2026-10-27 Tue 07:39
 
 Author: Shane Mulligan
 
-Created: 2026-10-27 Tue 07:42
+Created: 2026-10-27 Tue 08:25
 
 Validate
 
