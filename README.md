@@ -13396,11 +13396,31 @@ For salvation we should be unifying in heart and soul with other believers, with
     I couldn't hold anyone accountable for any perceived wrong done towards me.
     
     That's because of what Jesus Christ has taught in His parable of the unforgiving servant.
-    My debt was cancelled when I was born-again.
+    My debt was cancelled when I was born-again. Jesus set me free. I quote [Deuteronomy 15:1-2](https://www.biblegateway.com/passage/?search=Deuteronomy%2015%3A1-2&version=ESV) here to show that in having been "released" is not an excuse to then extract from somebody else as the "unforgiving servant" was in (**[Matthew 18:21-35](https://www.biblegateway.com/passage/?search=Matthew%2018%3A21-35&version=ESV)**). But also, **[Deuteronomy 15:1-10](https://www.biblegateway.com/passage/?search=Deuteronomy%2015%3A1-10&version=ESV)** also says "He shall not exact it of his neighbor, his brother". It's important for for the believer in Christ to love their brother and to forgive their brother. The mother and brother and sister of those people who are in Christ are those who hear the word of God and do it (**[I Peter 2:6-9](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A6-9&version=ESV)**, **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)**).
     
-    > **[Deuteronomy 15:1-2](https://www.biblegateway.com/passage/?search=Deuteronomy%2015%3A1-2&version=ESV)** - At the end of every seven years you shall grant a release. And this is the manner of the release: every creditor shall release what he has lent to his neighbor. He shall not exact it of his neighbor, his brother, because the LORD's release has been proclaimed. (ESV)
+    \#BEGIN<sub>QUOTE</sub>
+      **[Deuteronomy 15:1-10](https://www.biblegateway.com/passage/?search=Deuteronomy%2015%3A1-10&version=ESV)** - At the end of every seven years you shall grant a release. And this is the manner of the release: every creditor shall release what he has lent to his neighbor. He shall not exact it of his neighbor, his brother, because the LORD's release has been proclaimed. Of a foreigner you may exact it, but whatever of yours is with your brother your hand shall release. But there will be no poor among you; for the LORD will bless you in the land that the LORD your God is giving you for an inheritance to possess— if only you will strictly obey the voice of the LORD your God, being careful to do all this commandment that I command you today. For the LORD your God will bless you, as he promised you, and you shall lend to many nations, but you shall not borrow, and you shall rule over many nations, but they shall not rule over you. If among you, one of your brothers should become poor, in any of your towns within your land that the LORD your God is giving you, you shall not harden your heart or shut your hand against your poor brother, but you shall open your hand to him and lend him sufficient for his need, whatever it may be. Take care lest there be an unworthy thought in your heart and you say, The seventh year, the year of release is near, and your eye look grudgingly on your poor brother, and you give him nothing, and he cry to the LORD against you, and you be guilty of sin. You shall give to him freely, and your heart shall not be grudging when you give to him, because for this the LORD your God will bless you in all your work and in all that you undertake. (ESV)
+    \#+END<sub>QUOTE</sub>
+    
+    > **[Luke 4:18-21](https://www.biblegateway.com/passage/?search=Luke%204%3A18-21&version=ESV)** - The Spirit of the Lord is upon me, because he has anointed me to proclaim good news to the poor. He has sent me to proclaim liberty to the captives and recovering of sight to the blind, to set at liberty those who are oppressed, to proclaim the year of the Lord's favor. And he rolled up the scroll and gave it back to the attendant and sat down. And the eyes of all in the synagogue were fixed on him. And he began to say to them, Today this Scripture has been fulfilled in your hearing. (ESV)
+    
+    > **[John 8:34-35](https://www.biblegateway.com/passage/?search=John%208%3A34-35&version=ESV),36,42,51** - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
     
     > **[Colossians 2:11-14](https://www.biblegateway.com/passage/?search=Colossians%202%3A11-14&version=ESV)** - In him also you were circumcised with a circumcision made without hands, by putting off the body of the flesh, by the circumcision of Christ, having been buried with him in baptism, in which you were also raised with him through faith in the powerful working of God, who raised him from the dead. And you, who were dead in your trespasses and the uncircumcision of your flesh, God made alive together with him, having forgiven us all our trespasses, by canceling the record of debt that stood against us with its legal demands. This he set aside, nailing it to the cross. (ESV)
+    
+    > **[Romans 7:1-4](https://www.biblegateway.com/passage/?search=Romans%207%3A1-4&version=ESV)** - Or do you not know, brothers—for I am speaking to those who know the law—that the law is binding on a person only as long as he lives? Thus a married woman is bound by law to her husband while he lives, but if her husband dies she is released from the law of marriage. Accordingly, she will be called an adulteress if she lives with another man while her husband is alive. But if her husband dies, she is free from that law, and if she marries another man she is not an adulteress. Likewise, my brothers, **you also have died to the law through the body of Christ, so that you may belong to another**, to <ins>him who has been raised from the dead,</ins> **in order that we may bear fruit for God**. (ESV)
+    
+    > **[Matthew 18:21-35](https://www.biblegateway.com/passage/?search=Matthew%2018%3A21-35&version=ESV)** - Then Peter came up and said to him, Lord, how often will my brother sin against me, and I forgive him? As many as seven times? Jesus said to him, I do not say to you seven times, but seventy times seven. Therefore the kingdom of heaven may be compared to a king who wished to settle accounts with his servants. When he began to settle, one was brought to him who owed him ten thousand talents. And since he could not pay, his master ordered him to be sold, with his wife and children and all that he had, and payment to be made. So the servant fell on his knees, imploring him, Have patience with me, and I will pay you everything. And out of pity for him, the master of that servant released him and forgave him the debt. But when that same servant went out, he found one of his fellow servants who owed him a hundred denarii, and seizing him, he began to choke him, saying, Pay what you owe. So his fellow servant fell down and pleaded with him, Have patience with me, and I will pay you. He refused and went and put him in prison until he should pay the debt. When his fellow servants saw what had taken place, they were greatly distressed, and they went and reported to their master all that had taken place. Then his master summoned him and said to him, **You wicked servant! I forgave you all that debt because you pleaded with me. And should not you have had mercy on your fellow servant, as I had mercy on you?** And in anger his master delivered him to the jailers, until he should pay all his debt. So also my heavenly Father will do to every one of you, if you do not **forgive your brother from your heart.** (ESV)
+    
+    > **[I Peter 2:6-9](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A6-9&version=ESV)** - For it stands in Scripture: Behold, I am laying in Zion a stone, a cornerstone chosen and precious, and whoever believes in him will not be put to shame. So the honor is for you who believe, but for those who do not believe, The stone that the builders rejected has become the cornerstone, and A stone of stumbling, and a rock of offense. They stumble because they disobey the word, as they were destined to do. But you are a chosen race, a royal priesthood, a holy nation, a people for his own possession, that you may proclaim the excellencies of him who called you out of darkness into his marvelous light. (ESV)
+    
+    > **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+    
+    > **[Luke 17:3-4](https://www.biblegateway.com/passage/?search=Luke%2017%3A3-4&version=ESV)** - Pay attention to yourselves! If your brother sins, rebuke him, and if he repents, forgive him, and if he sins against you seven times in the day, and turns to you seven times, saying, I repent, you must forgive him. (ESV)
+    
+    > **[Colossians 3:12-14](https://www.biblegateway.com/passage/?search=Colossians%203%3A12-14&version=ESV)** - Put on then, as God's chosen ones, holy and beloved, compassion, kindness, humility, meekness, and patience, bearing with one another and, if one has a complaint against another, forgiving each other; as the Lord has forgiven you, so you also must forgive. And above all these put on love, which binds everything together in perfect harmony. (ESV)
+    
+    > **[I John 3:17](https://www.biblegateway.com/passage/?search=1%20John%203%3A17&version=ESV)** - But if anyone has the world's goods and sees his brother in need, yet closes his heart against him, how does God's love abide in him? (ESV)
     
     As for what happens going forward, I believe that it's right to be compassionate and merciful towards all men, as Polycarp has instructed,
     but abiding in the teaching of Christ.
@@ -19900,7 +19920,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgcb9de5b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org08bdb75) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -25744,7 +25764,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org992b00b).
+I didn't know but it turned out to be the last day of my [sentence](#org84d4b98).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -50768,7 +50788,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org6e78101)
+See: [33.4.1](#orgf42ea30)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -72619,7 +72639,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org6e78101)
+See: [33.4.1](#orgf42ea30)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -75275,7 +75295,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org7cb20c3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgb5793bb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -83620,7 +83640,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org7cb20c3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgb5793bb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -84958,7 +84978,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org665ec92)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org260b99b)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -89967,7 +89987,7 @@ and I'm still bothered by some things including continued demonic harassment and
 
 I have, for example, a year or two ago, been getting extreme pressure from both people around me
 and also by dreams and visions and difficult circumstances to break faithfulness to Jesus (to not affirm teachings from or about Jesus Christ,
-and to renege on committments I had made to Him, or to affirm sinful behaviour), and as past of this was some strange dreams depicting "feasting", and that "feasting"
+and to renege on committments I had made to Him, or to affirm sinful behaviour), and as part of this was some strange dreams depicting "feasting", and that "feasting"
 was simultaneously depicting unity with the world. And I was also receiving a huge amount of punishment through demonic attacks including dreams with themes of demonic religions
 and sexual perversion, seemingly punishing me as I had been choosing holiness.
 
