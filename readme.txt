@@ -528,7 +528,7 @@ faith in Jesus Christ while resting/abstaining from working so as to not commit 
   whatever does not proceed from faith is sin. (ESV)
 
 nickcady.org: What Does It Mean That “Whatever Does Not Proceed From Faith Is Sin”? Whatever Does Not Proceed From
-Faith Is Sina ??? - Theology for the People
+Faith Is Sin ??? - Theology for the People
 If you have a sincere conviction before God that you should not do something, then you should act on that
 conviction in faith, and do so as unto the Lord.
 
@@ -20514,11 +20514,11 @@ demonstrated and commanded:
   your most holy faith; pray in the Holy Spirit; keep yourselves in the love of God (G26 agapē: [the] love) (G2316
   Theou: of God), waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
 
-Being 'philos with (friends with, allured by, attracted to)', money , self, pleasure, rather than
-([[strongs:G3123][(G3123 mallon: rather [Adv])]]) being allured by God (wanting to be around God) is bad. But we
-should avoid those who are attracted to such things rather than/instead of God. We want to be attracted to God,
-and certainly must be attracted to God moreso than by pleasure, money, self, etc. And we are instructed to avoid
-such people who are drawn to such things in preference to God. We are to avoid enemies of God:
+Being 'philos with (friends with, allured by, attracted to)', money , self, pleasure, rather than ((G3123 mallon:
+rather [Adv])) being allured by God (wanting to be around God) is bad. But we should avoid those who are attracted
+to such things rather than/instead of God. We want to be attracted to God, and certainly must be attracted to God
+moreso than by pleasure, money, self, etc. And we are instructed to avoid such people who are drawn to such things
+in preference to God. We are to avoid enemies of God:
 
   II Timothy 3:1-5 - But understand this, that in the last days there will come times of difficulty. For people
   will be lovers of self (G5367 philautoi: lovers of self [Adj-NMP]), lovers of money (G5366 philargyroi: lovers
@@ -37866,7 +37866,8 @@ Moses) and is not a law of works (Romans 3:21-31), is not being under a curse, b
   John 1:17 - For the law was given through Moses; grace and truth came through Jesus Christ. (ESV)
 
 We must love one-another as commanded to be "law-abiding". We can come to Jesus with baggage, with sin, but we
-can't come to Jesus by sinning:
+can't come to Jesus by sinning. As a limited analogy of what not to do, imagine somebody with a baseball bat
+knocking people out of the way with it in order to "get to Jesus":
 
   I John 3:23-24 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this
@@ -144219,11 +144220,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-27 Tue 12:45
+Date: 2026-10-27 Tue 11:14
 
 Author: Shane Mulligan
 
-Created: 2026-10-27 Tue 12:46
+Created: 2026-10-27 Tue 13:16
 
 Validate
 
