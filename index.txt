@@ -144219,11 +144219,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-27 Tue 07:39
+Date: 2026-10-27 Tue 12:45
 
 Author: Shane Mulligan
 
-Created: 2026-10-27 Tue 08:25
+Created: 2026-10-27 Tue 12:46
 
 Validate
 
