@@ -922,6 +922,12 @@ Whether we are resting or working, we need to still go on abstaining from evil, 
 
 > **[I Thessalonians 5:22-24](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A22-24&version=ESV)** - Abstain from every form of evil. Now may the God of peace himself sanctify you completely, and may your whole spirit and soul and body be kept blameless at the coming of our Lord Jesus Christ. He who calls you is faithful; he will surely do it. (ESV)
 
+A person who continues sinning deliberately is not being sanctified:
+
+> **[Hebrews 10:26-29](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A26-29&version=ESV)** - For if we go on sinning deliberately after receiving the knowledge of the truth, there no longer remains a sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God, and has profaned the blood of the covenant by which he was sanctified, and has outraged the Spirit of grace? (ESV)
+
+> **[I Corinthians 11:25-27](https://www.biblegateway.com/passage/?search=1%20Corinthians%2011%3A25-27&version=ESV)** - In the same way also he took the cup, after supper, saying, This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this bread and drink the cup, you proclaim the Lord's death until he comes. Whoever, therefore, eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord. (ESV)
+
 Walking in the light involves loving the brothers:
 
 > **[I John 2:9](https://www.biblegateway.com/passage/?search=1%20John%202%3A9&version=ESV)** - Whoever says he is in the light and hates his brother is still in darkness. (ESV)
@@ -3928,6 +3934,8 @@ The desires of the flesh are opposed to the desires of the Spirit. **Those who w
 > **[Galatians 5:13-24](https://www.biblegateway.com/passage/?search=Galatians%205%3A13-24&version=ESV)** - For you were called to freedom, brothers. Only do not use your freedom as an opportunity for the flesh, but through love serve one another. For the whole law is fulfilled in one word: You shall love your neighbor as yourself. But if you bite and devour one another, watch out that you are not consumed by one another. But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not under the law. Now the works of the flesh are evident: sexual immorality, impurity, sensuality, idolatry, sorcery, enmity, strife, jealousy, fits of anger, rivalries, dissensions, divisions, envy, drunkenness, orgies, and things like these. I warn you, as I warned you before, that those who do such things will not inherit the kingdom of God. But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control; against such things there is no law. And those who belong to Christ Jesus have crucified the flesh with its passions and desires. (ESV)
 
 > **[Romans 8:2-8](https://www.biblegateway.com/passage/?search=Romans%208%3A2-8&version=ESV)** - For the law of the Spirit of life has set you free in Christ Jesus from the law of sin and death. For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. For **those who live according to the flesh set their minds on the things of the flesh, but those who live according to the Spirit set their minds on the things of the Spirit.** To set the mind on the flesh is death, but to set the mind on the Spirit is life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit to God's law; indeed, it cannot. Those who are in the flesh cannot please God. (ESV)
+
+> **[I Peter 1:13-16](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13-16&version=ESV)** - Therefore, preparing your minds for action, and being sober-minded, set your hope fully on the grace that will be brought to you at the revelation of Jesus Christ. As obedient children, do not be conformed to the passions of your former ignorance, but as he who called you is holy, you also be holy in all your conduct, since it is written, You shall be holy, for I am holy. (ESV)
 
 God's Law is good and is laid down for the "lawless and the disobedient", for the "ungodly, and sinners, for the unholy and profane, etc.":
 
@@ -16311,6 +16319,24 @@ Real faith and genuine agape love and hope in God are "overlapping". Love believ
 
 Also, justification by faith in Jesus Christ enables us to be sanctified (cleaned up, I Thessalonians 4:3-8) by the blood of Jesus.
 
+> **[Hebrews 13:12](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A12&version=ESV)** - So Jesus also suffered outside the gate in order to sanctify the people through his own blood. (ESV)
+
+> **[Matthew 26:27-28](https://www.biblegateway.com/passage/?search=Matthew%2026%3A27-28&version=ESV)** - And he took a cup, and when he had given thanks he gave it to them, saying, Drink of it, all of you, for this is my blood of the covenant, which is poured out for many for the forgiveness of sins. (ESV)
+
+> **[Hebrews 9:22](https://www.biblegateway.com/passage/?search=Hebrews%209%3A22&version=ESV)** - Indeed, under the law almost everything is purified with blood, and without the shedding of blood there is no forgiveness of sins. (ESV)
+
+> **[Revelation of John 12:10-11](https://www.biblegateway.com/passage/?search=Revelation%2012%3A10-11&version=ESV)** - And I heard a loud voice in heaven, saying, Now the salvation and the power and the kingdom of our God and the authority of his Christ have come, for the accuser of our brothers has been thrown down, who accuses them day and night before our God. And they have conquered him by the blood of the Lamb and by the word of their testimony, for they loved not their lives even unto death. (ESV)
+
+> **[I John 1:7](https://www.biblegateway.com/passage/?search=1%20John%201%3A7&version=ESV)** - But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
+
+> **[Hebrews 10:26-29](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A26-29&version=ESV)** - For if we go on sinning deliberately after receiving the knowledge of the truth, there no longer remains a sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God, and has profaned the blood of the covenant by which he was sanctified, and has outraged the Spirit of grace? (ESV)
+
+> **[I Corinthians 11:25-27](https://www.biblegateway.com/passage/?search=1%20Corinthians%2011%3A25-27&version=ESV)** - In the same way also he took the cup, after supper, saying, This cup is the new covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this bread and drink the cup, you proclaim the Lord's death until he comes. Whoever, therefore, eats the bread or drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord. (ESV)
+
+> **[Revelation of John 7:14](https://www.biblegateway.com/passage/?search=Revelation%207%3A14&version=ESV)** - I said to him, Sir, you know. And he said to me, These are the ones coming out of the great tribulation. They have washed their robes and made them white in the blood of the Lamb. (ESV)
+
+> **[Hebrews 13:20-21](https://www.biblegateway.com/passage/?search=Hebrews%2013%3A20-21&version=ESV)** - Now may the God of peace who brought again from the dead our Lord Jesus, the great shepherd of the sheep, by the blood of the eternal covenant, equip you with everything good that you may do his will, working in us that which is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever. Amen. (ESV)
+
 The Bible's very clear that none of us mere humans has been without sin. So we all need God's grace ultimately to be saved from sin and death and hell. So what we'd be talking about is an imperfect sinner who laid down their life for someone else who hated them, and did so out of fear of God and out of a heart of love for God and their neighbour and God who sees everything saw this. Can a person be "justified by works" in that way, and what would be the implications of that?
 
 Firstly, I believe it's not possible for a person to be justified if they reject Jesus. So the agape love must be in the truth. Christ-denying "agape" love is not real agape love at all.
@@ -19922,7 +19948,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orga20c576) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3c4d231) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -25766,7 +25792,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org43bfeed).
+I didn't know but it turned out to be the last day of my [sentence](#org420e3af).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -50790,7 +50816,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgea1fbe8)
+See: [33.4.1](#org477454d)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -53162,6 +53188,10 @@ I believe that deliverance ministries may be legitimate, such as this one:
 I was really encouraged yesterday to see Mark busy at work with his ministry yesterday:
 
 -   [youtube.com: ESTONIA MIRACLE REVIVAL 7 pm Fri, 6 pm Sat, May 10 &11th, Sobra 56, Tartu, Estonia {@MarkHemans}](https://www.youtube.com/watch?v=EDBjq4yk5do)
+
+I also have really appreciated Fernando Perez' deliverance prayers:
+
+-   [youtube.com:  Curse Breaking & Demon Deliverance Prayer - Experience Freedom Today {@ EVANGELISTFERNANDOPEREZ }](https://www.youtube.com/watch?v=B2ZrrK2K6wA)
 
 
 ### I feel like we should have compassion when we are serving others, even in healing / deliverance ministries
@@ -72641,7 +72671,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgea1fbe8)
+See: [33.4.1](#org477454d)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -75297,7 +75327,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgbf0284d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org62016bb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -83642,7 +83672,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgbf0284d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org62016bb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -84980,7 +85010,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org7ea5f3f)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org7a15cdf)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

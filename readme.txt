@@ -1776,6 +1776,21 @@ Whether we are resting or working, we need to still go on abstaining from evil, 
   completely, and may your whole spirit and soul and body be kept blameless at the coming of our Lord Jesus
   Christ. He who calls you is faithful; he will surely do it. (ESV)
 
+A person who continues sinning deliberately is not being sanctified:
+
+  Hebrews 10:26-29 - For if we go on sinning deliberately after receiving the knowledge of the truth, there no
+  longer remains a sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume
+  the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three
+  witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God,
+  and has profaned the blood of the covenant by which he was sanctified, and has outraged the Spirit of grace?
+  (ESV)
+
+  I Corinthians 11:25-27 - In the same way also he took the cup, after supper, saying, This cup is the new
+  covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this
+  bread and drink the cup, you proclaim the Lord's death until he comes. Whoever, therefore, eats the bread or
+  drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord.
+  (ESV)
+
 Walking in the light involves loving the brothers:
 
   I John 2:9 - Whoever says he is in the light and hates his brother is still in darkness. (ESV)
@@ -8108,6 +8123,11 @@ we need to be those who are law-abiding by the law of the Spirit. With a mind se
   set their minds on the things of the Spirit. To set the mind on the flesh is death, but to set the mind on the
   Spirit is life and peace. For the mind that is set on the flesh is hostile to God, for it does not submit to
   God's law; indeed, it cannot. Those who are in the flesh cannot please God. (ESV)
+
+  I Peter 1:13-16 - Therefore, preparing your minds for action, and being sober-minded, set your hope fully on the
+  grace that will be brought to you at the revelation of Jesus Christ. As obedient children, do not be conformed
+  to the passions of your former ignorance, but as he who called you is holy, you also be holy in all your
+  conduct, since it is written, You shall be holy, for I am holy. (ESV)
 
 God's Law is good and is laid down for the "lawless and the disobedient", for the "ungodly, and sinners, for the
 unholy and profane, etc.":
@@ -31282,6 +31302,44 @@ the Truth, love Jesus Christ, love Jesus' words, love Father God, love Holy Spir
 
 Also, justification by faith in Jesus Christ enables us to be sanctified (cleaned up, I Thessalonians 4:3-8) by
 the blood of Jesus.
+
+  Hebrews 13:12 - So Jesus also suffered outside the gate in order to sanctify the people through his own blood.
+  (ESV)
+
+  Matthew 26:27-28 - And he took a cup, and when he had given thanks he gave it to them, saying, Drink of it, all
+  of you, for this is my blood of the covenant, which is poured out for many for the forgiveness of sins. (ESV)
+
+  Hebrews 9:22 - Indeed, under the law almost everything is purified with blood, and without the shedding of blood
+  there is no forgiveness of sins. (ESV)
+
+  Revelation of John 12:10-11 - And I heard a loud voice in heaven, saying, Now the salvation and the power and
+  the kingdom of our God and the authority of his Christ have come, for the accuser of our brothers has been
+  thrown down, who accuses them day and night before our God. And they have conquered him by the blood of the Lamb
+  and by the word of their testimony, for they loved not their lives even unto death. (ESV)
+
+  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. (ESV)
+
+  Hebrews 10:26-29 - For if we go on sinning deliberately after receiving the knowledge of the truth, there no
+  longer remains a sacrifice for sins, but a fearful expectation of judgment, and a fury of fire that will consume
+  the adversaries. Anyone who has set aside the law of Moses dies without mercy on the evidence of two or three
+  witnesses. How much worse punishment, do you think, will be deserved by the one who has spurned the Son of God,
+  and has profaned the blood of the covenant by which he was sanctified, and has outraged the Spirit of grace?
+  (ESV)
+
+  I Corinthians 11:25-27 - In the same way also he took the cup, after supper, saying, This cup is the new
+  covenant in my blood. Do this, as often as you drink it, in remembrance of me. For as often as you eat this
+  bread and drink the cup, you proclaim the Lord's death until he comes. Whoever, therefore, eats the bread or
+  drinks the cup of the Lord in an unworthy manner will be guilty of profaning the body and blood of the Lord.
+  (ESV)
+
+  Revelation of John 7:14 - I said to him, Sir, you know. And he said to me, These are the ones coming out of the
+  great tribulation. They have washed their robes and made them white in the blood of the Lamb. (ESV)
+
+  Hebrews 13:20-21 - Now may the God of peace who brought again from the dead our Lord Jesus, the great shepherd
+  of the sheep, by the blood of the eternal covenant, equip you with everything good that you may do his will,
+  working in us that which is pleasing in his sight, through Jesus Christ, to whom be glory forever and ever.
+  Amen. (ESV)
 
 The Bible's very clear that none of us mere humans has been without sin. So we all need God's grace ultimately to
 be saved from sin and death and hell. So what we'd be talking about is an imperfect sinner who laid down their
@@ -88325,6 +88383,10 @@ I was really encouraged yesterday to see Mark busy at work with his ministry yes
 
 • youtube.com: ESTONIA MIRACLE REVIVAL 7 pm Fri, 6 pm Sat, May 10 &11th, Sobra 56, Tartu, Estonia {@MarkHemans}
 
+I also have really appreciated Fernando Perez' deliverance prayers:
+
+• youtube.com: Curse Breaking & Demon Deliverance Prayer - Experience Freedom Today {@ EVANGELISTFERNANDOPEREZ }
+
 18.8.1. I feel like we should have compassion when we are serving others, even in healing / deliverance ministries
 
   Matthew 15:32 - Then Jesus called his disciples to him and said, I have compassion on the crowd because they
@@ -144220,11 +144282,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-27 Tue 11:14
+Date: 2026-10-28 Wed 09:57
 
 Author: Shane Mulligan
 
-Created: 2026-10-27 Tue 13:16
+Created: 2026-10-28 Wed 10:07
 
 Validate
 
