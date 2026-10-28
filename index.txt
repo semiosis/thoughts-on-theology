@@ -144197,6 +144197,11 @@ I think that one should do their duty to love their own countryman:
 Also, Jesus said to "Give to the one who asks." Jesus didn't say, "Give the one who asks exactly what they asked
 for."
 
+Jesus' commandment is not to "Give to the one you trust." But the commandment is to "Give to the one who asks." So
+some amount of providing the "benefit of the doubt" is normal. Not trusting somebody is not an excuse to not give
+to them. Establishing that somebody even is a real human, though, should not be conflated with establishing trust
+for that person.
+
 Also, do not trust every spirit. Test the spirits to see if they are from God. Every spirit which confesses that
 Jesus Christ has come [into the world] from God as flesh (word become flesh) is from God.
 
@@ -144282,11 +144287,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-28 Wed 09:57
+Date: 2026-10-28 Wed 17:39
 
 Author: Shane Mulligan
 
-Created: 2026-10-28 Wed 10:07
+Created: 2026-10-28 Wed 20:30
 
 Validate
 
