@@ -135,7 +135,7 @@ that's exactly the way it is today.
   Romans 3:25 - whom God put forward as a propitiation by his blood, to be received by faith. This was to show
   God's righteousness, because in his divine forbearance he had passed over former sins. (ESV)
 
-God helps us as we hold the faith:
+God helps us as we hold the faith (Jude 1:20-21, Ephesians 2:4-10, Matthew 19:25-26):
 
   Jude 1:20-21 - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep
   yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
@@ -328,6 +328,20 @@ grace when I was born-again:
   Jude 1:20-21 - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep
   yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
 
+  Jude 1:20-21 - But you, beloved, build yourselves up in your most holy faith; pray in the Holy Spirit; keep
+  yourselves in the love of God, waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
+
+  Ephesians 2:4-10 - But God, being rich in mercy, because of the great love with which he loved us, even when we
+  were dead in our trespasses, *made us alive together with Christ—by grace you have been saved—* and raised us up
+  with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show
+  the immeasurable riches of his grace in kindness toward us in Christ Jesus. For by grace you have been saved
+  through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may
+  boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that
+  we should walk in them. (ESV)
+
+  Matthew 19:25-26 - When the disciples heard this, they were greatly astonished, saying, Who then can be saved?
+  But Jesus looked at them and said, With man this is impossible, but with God all things are possible. (ESV)
+
 I am not the same person as the person who died in baptism on 2 April 2022. 2 April 2022 is the death day of my
 previous self. It's very important then to walk in faith, love, holiness and truth. The former manner of life is
 corrupt and must be put off. Rather, we must put on the new self:
@@ -446,6 +460,9 @@ and to leave the rest to Him which includes providing us with our material needs
 
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
+
+  Revelation of John 21:27 - But nothing unclean will ever enter it, nor anyone who does what is detestable or
+  false, but only those who are written in the Lamb's book of life. (ESV)
 
 A person is justified by the law of faith (what is in the heart) rather than by a law of works (i.e. inclusive of
 the successful carrying out of external actions in the world):
@@ -1571,21 +1588,21 @@ receives the gift of righteousness:
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 Good                                                     Evil
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
-Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10, John      Love for evil working lawlessness
-6:27)                                                                          (John 3:20, Romans 6:22-23; i.e.
-the wages of sin)
+Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10, John     Love for evil working lawlessness
+6:27)                                                                         (John 3:20, Romans 6:22-23; i.e.
+the wages of sin, Proverbs 16:3-4)
 Faith without working (G2038 ergazomenō; working) (Romans 4:5, Romans
 6:22-23; i.e. the free gift). We all must receive this (Romans 11:29-33,
 Proverbs 12:3), even the one who works has to have received this (i.e. have
 ceased trusting in themselves that they are in themselves righteous apart
 from (G5565 chōris) Jesus Christ and to have refrained from working in order
-to received the gift), because we must not be establishing a righteousness of   
-our own which is apart from (G5565 chōris) Christ (Romans 10:3-11, John
+to received the gift), because we must not be establishing a righteousness     
+of our own which is apart from (G5565 chōris) Christ (Romans 10:3-11, John
 15:1-6). So there must be a point at which God affirms that we have
 recognised our own deeds have been evil, and we need His mercy, and we need
 forgiveness and atonement for the sin incurred due to our history of evil
-deeds, and had faith in Jesus Christ while resting/abstaining from working so
-as to not commit sin.
+deeds, and had faith in Jesus Christ while resting/abstaining from working
+so as to not commit sin.
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 
 The cessation of working/deeding (G2038 ergazomenō; working) in Romans 4:5 is a differnet type of working to the
@@ -1972,7 +1989,50 @@ sin, then they have done so without faith:
 
   John 16:9 - concerning sin, because they do not believe in me; (ESV)
 
-It's possible to have sin/defilement while having faith:
+I think that "entering the Kingdom of Heaven" is not exactly the same as what Revelation describes as entering
+Jerusalem which is in the Heavenly places (i.e. Heavenly Jerusalem is in the Kingdom of Heaven). But even if it is
+the same, it would be the one born of God who loves as commanded, who does not sin, who confesses that Jesus is
+the Christ the Son of God who has come from God into the world in the flesh, who confesses the same Jesus as the
+Apostles and prophets, who is seated in the heavenly places, who can enter, rather than the sinful flesh from
+Adam:
+
+  Matthew 7:21 - Not everyone who says to me, Lord, Lord, will enter the kingdom of heaven, but the one who does
+  the will of my Father who is in heaven. (ESV)
+
+  Revelation 22:12-17, 20-21 - Behold, I am coming soon, bringing my recompense with me, to repay everyone for
+  what he has done. I am the Alpha and the Omega, the first and the last, the beginning and the end. Blessed are
+  those who wash their robes, so that they may have the right to the tree of life and that they may enter the city
+  by the gates. Outside are the dogs and sorcerers and the sexually immoral and murderers and idolaters, and
+  everyone who loves and practices falsehood. I, Jesus, have sent my angel to testify to you about these things
+  for the churches. I am the root and the descendant of David, the bright morning star. The Spirit and the Bride
+  say, Come. And let the one who hears say, Come. And let the one who is thirsty come; let the one who desires
+  take the water of life without price. He who testifies to these things says, Surely I am coming soon. Amen.
+  Come, Lord Jesus! The grace of the Lord Jesus be with all. Amen. (ESV)
+
+It's possible to have sin/defilement while having faith and while being a "citizen of heaven" looking forward to
+Jesus to save them but not yet having entered the Heavenly Jerusalem per-se:
+
+  Ephesians 2:4-10 - But God, being rich in mercy, because of the great love with which he loved us, even when we
+  were dead in our trespasses, made us alive together with Christ—by grace you have been saved— and raised us up
+  with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show
+  the immeasurable riches of his grace in kindness toward us in Christ Jesus. For by grace you have been saved
+  through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may
+  boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that
+  we should walk in them. (ESV)
+
+  I John 3:2-4 - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that
+  when he appears we shall be like him, because we shall see him as he is. And everyone who thus hopes in him
+  purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is
+  lawlessness. (ESV)
+
+  I Peter 1:3-5 - Blessed be the God and Father of our Lord Jesus Christ! According to his great mercy, he has
+  caused us to be born again to a living hope through the resurrection of Jesus Christ from the dead, to an
+  inheritance that is imperishable, undefiled, and unfading, kept in heaven for you, who by God's power are being
+  guarded through faith for a salvation ready to be revealed in the last time. (ESV)
+
+  Hebrews 9:27-28 - And just as it is appointed for man to die once, and after that comes judgment, so Christ,
+  having been offered once to bear the sins of many, will appear a second time, not to deal with sin but to save
+  those who are eagerly waiting for him. (ESV)
 
   II Corinthians 7:1 - Since we have these promises, beloved, let us cleanse ourselves from every defilement of
   body and spirit, bringing holiness to completion in the fear of God. (ESV)
@@ -5222,6 +5282,11 @@ of God's glory. From God's perspective, even the heavens are not pure:
 
 So what we need is not to simply agree with some of God's precepts from His law, but to be in agreement with the
 fulfillment of God's law who is God's revelation of the embodiment of righteousness Himself, Jesus Christ.
+
+  Revelation of John 2:4-6 - But I have this against you, that you have abandoned the love you had at first.
+  Remember therefore from where you have fallen; repent, and do the works you did at first. If not, I will come to
+  you and remove your lampstand from its place, unless you repent. Yet this you have: you hate the works of the
+  Nicolaitans, which I also hate. (ESV)
 
 Jesus Christ is the righteousness that God has revealed who we must love first and foremost as Christians but
 loving Him includes loving His family and serving Him involves serving His family. No Christian can exceed God's
@@ -9238,13 +9303,34 @@ resurrection body:
   victory. O death, where is your victory? O death, where is your sting? (ESV)
 
 After all, Jesus said, the slave to sin doesn't abide/remain in the house forever. So I believe that
-sanctification (getting cleaned up) is necessary abide forever. Putting a stop to committing sin, and, instead
-holding faith in Jesus, is necessary to enter the Kingdom.
+sanctification (getting cleaned up by the blood of Jesus through faith and obedience to Jesus Christ) is necessary
+abide forever. Putting a stop to committing sin, and, instead holding faith in Jesus, is necessary to enter the
+Kingdom.
 
-I believe that a person can still be (have sin) sinful and enter the Kingdom of God. After all, God justifies even
-the ungodly if they have faith in Jesus Christ. But I believe that faith must be a repentant fatih, holding faith
-in Jesus Christ, prefering God to evil, so has stopped "committing" sin to enter the Kingdom of God through Jesus
-Christ who is the door.
+I believe that a person can still be (have sin) sinful (have a body of sinful flesh) and "enter" the Kingdom of
+God, be a "citizen of heaven" (be a child of God). After all, that sin of the flesh is not actually the person who
+is born of God:
+
+  I John 3:2-4 - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that
+  when he appears we shall be like him, because we shall see him as he is. And everyone who thus hopes in him
+  purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is
+  lawlessness. (ESV)
+
+  Romans 7:16-20 - Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I
+  who do it, but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I
+  have the desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but
+  the evil I do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but
+  sin that dwells within me. (ESV)
+
+  Philippians 3:20-21 - But our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ,
+  who will transform our lowly body to be like his glorious body, by the power that enables him even to subject
+  all things to himself. (ESV)
+
+And God justifies even the ungodly if they have faith in Jesus Christ. But I believe that faith must be a
+repentant fatih, holding faith in Jesus Christ, prefering God to evil, so has stopped "committing" sin to enter
+the Kingdom of God through Jesus Christ who is the door. Yet entering the Kingdom of God might be different from
+what is described in Revelation as "entering the Jerusalem which is in heaven". Nothing unclean can enter the
+Jerusalem which is in heaven. So that requires having been cleaned up.
 
   From Matthew 21:24-32 - … Truly, I say to you, the tax collectors and the prostitutes go into the kingdom of God
   before you. For John came to you in the way of righteousness, and you did not believe him, but the tax
@@ -18520,6 +18606,29 @@ But it's not possible to simultaneously have faith while committing sin:
 
   I John 3:9 - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on
   sinning because he has been born of God. (ESV)
+
+Though we do need to be cleaned up to enter into Heavenly Jerusalem:
+
+  Revelation of John 21:10-27 - And he carried me away in the Spirit to a great, high mountain, and showed me the
+  holy city Jerusalem coming down out of heaven from God, having the glory of God, its radiance like a most rare
+  jewel, like a jasper, clear as crystal. It had a great, high wall, with twelve gates, and at the gates twelve
+  angels, and on the gates the names of the twelve tribes of the sons of Israel were inscribed— on the east three
+  gates, on the north three gates, on the south three gates, and on the west three gates. And the wall of the city
+  had twelve foundations, and on them were the twelve names of the twelve apostles of the Lamb. And the one who
+  spoke with me had a measuring rod of gold to measure the city and its gates and walls. The city lies foursquare;
+  its length the same as its width. And he measured the city with his rod, 12,000 stadia. Its length and width and
+  height are equal. He also measured its wall, 144 cubits by human measurement, which is also an angel's
+  measurement. The wall was built of jasper, while the city was pure gold, clear as glass. The foundations of the
+  wall of the city were adorned with every kind of jewel. The first was jasper, the second sapphire, the third
+  agate, the fourth emerald, the fifth onyx, the sixth carnelian, the seventh chrysolite, the eighth beryl, the
+  ninth topaz, the tenth chrysoprase, the eleventh jacinth, the twelfth amethyst. And the twelve gates were twelve
+  pearls, each of the gates made of a single pearl, and the street of the city was pure gold, transparent as
+  glass. And I saw no temple in the city, for its temple is the Lord God the Almighty and the Lamb. And the city
+  has no need of sun or moon to shine on it, for the glory of God gives it light, and its lamp is the Lamb. By its
+  light will the nations walk, and the kings of the earth will bring their glory into it, and its gates will never
+  be shut by day—and there will be no night there. They will bring into it the glory and the honor of the nations.
+  But nothing unclean will ever enter it, nor anyone who does what is detestable or false, but only those who are
+  written in the Lamb's book of life. (ESV)
 
 Clearly, then, it's possible to have sinful lapses of faith, and if it's possible to have sinful lapses of faith,
 then it's possible, I think, to have lapses of justification (i.e. in the act of committing the sin, anyway). Of
@@ -47584,11 +47693,25 @@ does save and His ongoing work is based on His prior work.
 
 We must become obedient to the will of Father God in heaven. We are saved to serve God, amen.
 
-I still think that we can experience the Kingdom of God on earth, doing God's will, but the kingdom of heaven is
-not an earthly kingdom. It's a spiritual kingdom, and those who are in it are servants of Christ. And I believe
-that heaven is a separate place to earth.
+I still think that we can experience the Kingdom of God on earth (while being seted with Christ in heavenly
+places), doing God's will, but the kingdom of heaven is not an earthly kingdom:
+
+  Luke 17:20-21 - Being asked by the Pharisees when the kingdom of God would come, he answered them, The kingdom
+  of God is not coming with signs to be observed, nor will they say, Look, here it is! or There! for behold, the
+  kingdom of God is in the midst of you. (ESV)
+
+The Kingdom of Heaven is a spiritual (James 3:14-17) and heavenly kingdom, and those who are in it are servants of
+Christ. And I believe that heaven is a separate place to Earth. So while the Kingdom of Heaven (Kingdom of God)
+extends into and has God's will being done on the Earth (Matthew 6:10, Luke 17:20-21), Heaven is still a different
+place to Earth, and Jerusalem in Heaven can only be entered into when cleaned up (Revelation 22:12-17):
 
   Matthew 6:10 - Your kingdom come, your will be done, on earth as it is in heaven. (ESV)
+
+  John 18:36-37 - Jesus answered, My kingdom is not of this world. If my kingdom were of this world, my servants
+  would have been fighting, that I might not be delivered over to the Jews. But my kingdom is not from the world.
+  Then Pilate said to him, So you are a king? Jesus answered, You say that I am a king. For this purpose I was
+  born and for this purpose I have come into the world — to bear witness to the truth. Everyone who is of the
+  truth listens to my voice. (ESV)
 
   Mark 8:34-38,9:1 - And he called to him the crowd with his disciples and said to them, If anyone would come
   after me, let him deny himself and take up his cross and follow me. For whoever would save his life will lose
@@ -97670,9 +97793,21 @@ faith in Jesus, and by obedience to Jesus. Can a "repentant" person "enter" the 
 to be having faith, and in having faith are not committing sin, but rather being sanctified (cleaned up),
 committing faith (so to speak) rather than committing sin.
 
-I think inheriting the Kingdom of God requires having been cleaned up. So in my understanding there is a
-distinction between entering and inheriting the Kingdom. To inherit the Kingdom of God, a person needs to have put
-on incorruption. I take it a person inherits the Kingdom of God with their resurrection body:
+I think inheriting the Kingdom of God requires having been cleaned up (washed their robes):
+
+  Revelation 22:12-17, 20-21 - Behold, I am coming soon, bringing my recompense with me, to repay everyone for
+  what he has done. I am the Alpha and the Omega, the first and the last, the beginning and the end. Blessed are
+  those who wash their robes, so that they may have the right to the tree of life and that they may enter the city
+  by the gates. Outside are the dogs and sorcerers and the sexually immoral and murderers and idolaters, and
+  everyone who loves and practices falsehood. I, Jesus, have sent my angel to testify to you about these things
+  for the churches. I am the root and the descendant of David, the bright morning star. The Spirit and the Bride
+  say, Come. And let the one who hears say, Come. And let the one who is thirsty come; let the one who desires
+  take the water of life without price. He who testifies to these things says, Surely I am coming soon. Amen.
+  Come, Lord Jesus! The grace of the Lord Jesus be with all. Amen. (ESV)
+
+So in my understanding there is a distinction between entering and inheriting the Kingdom/entering the Jerusalem
+which is in heaven. To inherit the Kingdom of God, a person needs to have put on incorruption. I take it a person
+inherits the Kingdom of God with their resurrection body:
 
   I Corinthians 15:50-55 - I tell you this, brothers: flesh and blood cannot inherit the kingdom of God, nor does
   the perishable inherit the imperishable. Behold! I tell you a mystery. We shall not all sleep, but we shall all
@@ -144287,11 +144422,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-28 Wed 17:39
+Date: 2026-10-30 Fri 11:33
 
 Author: Shane Mulligan
 
-Created: 2026-10-28 Wed 20:30
+Created: 2026-10-30 Fri 11:41
 
 Validate
 
