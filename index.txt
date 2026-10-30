@@ -3543,6 +3543,15 @@ Someone who is learning from Father God, coming to Jesus, still belongs to Jesus
   world, but they are in the world, and I am coming to you. Holy Father, keep them in your name, which you have
   given me, that they may be one, even as we are one. (ESV)
 
+The Lord Jesus Christ's words have not passed away. Jesus prayed that Father God would keep His disciples from the
+evil one while they are in the world:
+
+  John 17:14-15 - I have given them your word, and the world has hated them because they are not of the world,
+  just as I am not of the world. I do not ask that you take them out of the world, but that you keep them from the
+  evil one. (ESV)
+
+  Matthew 24:35 - Heaven and earth will pass away, but my words will not pass away. (ESV)
+
 When they are born-again, they may know what has been freely given to them. A person needs to be born-again to be
 able to see the Kingdom of God:
 
@@ -144422,11 +144431,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-30 Fri 11:33
+Date: 2026-10-31 Sat 09:11
 
 Author: Shane Mulligan
 
-Created: 2026-10-30 Fri 11:41
+Created: 2026-10-31 Sat 09:21
 
 Validate
 
