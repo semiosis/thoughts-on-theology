@@ -918,6 +918,11 @@ commandments which involves having love for God and for God's children:
   through what is good, in order that sin might be shown to be sin, and through the commandment might become
   sinful beyond measure. (ESV)
 
+  I Corinthians 10:5-6,11 - Nevertheless, with most of them God was not pleased, for they were overthrown in the
+  wilderness. Now these things took place as examples for us, that we might not desire evil as they did. Now these
+  things happened to them as an example, but they were written down for our instruction, on whom the end of the
+  ages has come. (ESV)
+
 I commented on the following video: youtube.com: Comment from @ ShaneMulligan - n7h {@ GESvids }
 
 I think it's important to grasp the concepts of faith in and obedience to God, and of faithlessness and
@@ -1345,6 +1350,9 @@ deeds of the flesh:
   dwells in you. So then, brothers, we are debtors, not to the flesh, to live according to the flesh. For if you
   live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will
   live. (ESV)
+
+  I Corinthians 10:5-6 - Nevertheless, with most of them God was not pleased, for they were overthrown in the
+  wilderness. Now these things took place as examples for us, that we might not desire evil as they did. (ESV)
 
 God disciplines every son He receives:
 
@@ -2492,6 +2500,9 @@ loves Jesus more than some evil desire, then they have the power through faith i
 death completely and to stop doing the evil deeds that arise from that bad desire, and to put a stop to those evil
 deeds. We are instructed to, from a love of the truth, practice righteousness with our members instead (Galatians
 5:16-18, Romans 6:10-13, Matthew 5:29-30).
+
+  I Corinthians 10:5-6 - Nevertheless, with most of them God was not pleased, for they were overthrown in the
+  wilderness. Now these things took place as examples for us, that we might not desire evil as they did. (ESV)
 
 Someone who used to do evil with their hands should then from the love of the truth instead do good with their
 hands. But I think this really extends even to what people do with their resources genreally such as computer or
@@ -117490,6 +117501,44 @@ the world, and people came to believe He is the Saviour of the world:
   John 4:42 - They said to the woman, It is no longer because of what you said that we believe, for we have heard
   for ourselves, and we know that this is indeed the Savior of the world. (ESV)
 
+reddit.com: Jehovah's witnesses aren't Christians and need to leave their group ASAP
+
+I commented on someone's comment:
+
+  Psalms 49:7-9 - Truly no man can ransom another, or give to God the price of his life, for the ransom of their
+  life is costly and can never suffice, that he should live on forever and never see the pit. (ESV)
+
+Only God can ransom a human, even if it were only one human. (So Jesus the Son of God must also be God, albeit the
+Son of God). The Son isn't the Father. But they're both God.
+
+And being propitiation for the whole world, doesn't mean all will receive that propitiation. Being the world's
+Saviour doesn't mean all will receive their Saviour. Those who disbelieve are condemned.
+
+  I John 2:2 - He is the propitiation for our sins, and not for ours only but also for the sins of the whole
+  world. (ESV)
+
+  John 1:29 - The next day he saw Jesus coming toward him, and said, Behold, the Lamb of God, who takes away the
+  sin of the world! (ESV)
+
+  John 4:42 - They said to the woman, It is no longer because of what you said that we believe, for we have heard
+  for ourselves, and we know that this is indeed the Savior of the world. (ESV)
+
+  Isaiah 45:22 - Turn to me and be saved, all the ends of the earth! For I am God, and there is no other. (ESV)
+
+  II Thessalonians 2:9-10 - The coming of the lawless one is by the activity of Satan with all power and false
+  signs and wonders, and with all wicked deception for those who are perishing, because they refused to love the
+  truth and so be saved. (ESV)
+
+  I Corinthians 1:18 - For the word of the cross is folly to those who are perishing, but to us who are being
+  saved it is the power of God. (ESV)
+
+  John 3:36 - Whoever believes (G4100 pisteuōn - is believing, faithing (verb)) in the Son has eternal life;
+  whoever does not obey (G544 - apeitheó - unpersuaded by, distrusting, disobeying) the Son shall not see life,
+  but the wrath of God remains on him. (ESV)
+
+  I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
+  another, just as he has commanded us. (ESV)
+
 It's the same gospel:
 
   I Corinthians 15:1-11 - Now I would remind you, brothers, of the gospel I preached to you, which you received,
@@ -144431,11 +144480,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-10-31 Sat 09:11
+Date: 2026-11-01 Sun 09:07
 
 Author: Shane Mulligan
 
-Created: 2026-10-31 Sat 09:21
+Created: 2026-11-01 Sun 09:26
 
 Validate
 
