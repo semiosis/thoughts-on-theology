@@ -414,8 +414,13 @@ produced while holding good faith. From faith in Jesus and His words we do what 
 We need to be doers of what Jesus Christ says here. Being led by the spirit and not under the law, a person would
 be "seeking first the Kingdom of God and His righteousness" in preference to worrying about worldly concerns to
 make the flesh their strength, and so would prioritise by faith obeying Jesus Christ's commandments in reality
-over, say, "ironing a shirt". God wants us to walk by the spirit (do the will of God which He has commanded us)
-and to leave the rest to Him which includes providing us with our material needs:
+over, say, "ironing a shirt". When the people of the world who are not believers who are anxious about tomorrow
+try to push their worries onto the Christian, the Christian should resist and instead by faith in Jesus Christ
+obey Jesus' commandment to not worry about tomorrow. Instead of worrying, the Christian should endeavour to not
+cease walking by faith, and endeavour to abide in Jesus Christ's teachings and commandments, even through
+temptation to make the flesh one's strength rather than make God one's strengh. God wants us to walk by the spirit
+(do the will of God which He has commanded us) and to leave the rest to Him which includes providing us with our
+material needs:
 
   Matthew 5:43-48 - You have heard that it was said, You shall love your neighbor and hate your enemy. But I say
   to you, Love your enemies and pray for those who persecute you, so that you may be sons of your Father who is in
@@ -2507,6 +2512,184 @@ deeds. We are instructed to, from a love of the truth, practice righteousness wi
 Someone who used to do evil with their hands should then from the love of the truth instead do good with their
 hands. But I think this really extends even to what people do with their resources genreally such as computer or
 their money, etc.
+
+reddit.com: Having sinful desires means not saved to begin with under OSAS?
+
+I commented,
+
+There is a distinction between the one who is born of God and the sinful flesh. The one born of God doesn't sin.
+The sinful flesh sins by nature. In Romans 7 Paul describes the indwelling sin as not who he truly is.
+
+  Romans 7:15-25 - I do not understand my own actions. For I do not do what I want, but I do the very thing I
+  hate. Now if I do what I do not want, I agree with the law, that it is good. So now it is no longer I who do it,
+  but sin that dwells within me. For I know that nothing good dwells in me, that is, in my flesh. For I have the
+  desire to do what is right, but not the ability to carry it out. For I do not do the good I want, but the evil I
+  do not want is what I keep on doing. Now if I do what I do not want, it is no longer I who do it, but sin that
+  dwells within me. So I find it to be a law that when I want to do right, evil lies close at hand. For I delight
+  in the law of God, in my inner being, but I see in my members another law waging war against the law of my mind
+  and making me captive to the law of sin that dwells in my members. Wretched man that I am! Who will deliver me
+  from this body of death? Thanks be to God through Jesus Christ our Lord! So then, I myself serve the law of God
+  with my mind, but with my flesh I serve the law of sin. (ESV)
+
+The lust of the flesh and the lust of the spirit war against each other. We are advised to "walk by the spirit".
+We should then desire God and Jesus and love the truth, love as commanded, be obedient, set our minds on the
+things of the spirit, and not give place to the devil. Temptation could come from the devil or demons putting them
+before a person's path to try to deter the person from doing God's will (Matthew 16:23), or temptation could come
+from the sinful flesh, for example. And I think that what matters is what someone does with temptation when
+temptation comes. If a person is looking to Jesus, loving Jesus from the heart, loving God from the heart, loving
+as commanded, loving the truth, then they are not having sinful desire. If someone is loving evil then they are
+not loving God. If the sinful flesh then tempts (through memories maybe, or from cravings or by selfish,
+worldly-thinking fears not trusting God, for example, like the Israelites wanting to go back to Egypt) or if the
+devil comes along and puts before them temptations (using, say, old bad habits or lusts), then instead of, say,
+sinning (e.g. acting on a temptation such as to steal, even sinning by acting on the temptation from the heart
+such as by lusting in the heart), do a different thing, something that you believe God delights in you doing (i.e.
+pray, or maybe out of faith going and making some food for a homeless person, or mediate on God's word). This is
+what I think Jesus meant when he said, "If your hand causes you to sin, cut it off." because if the one born of
+God is practicing righteousness with their members then in sense they have cut off the sinful flesh. So severing
+the sinful flesh hand this way: instead of sinning with the hand, practice righteous with your hand instead. If
+walking by the spirit then will not gratify the deeds of the flesh. By loving God rather than evil, obeying the
+truth (which necessitates love for God) we are being sanctified by obedience to the truth for a sincere love (the
+way we are commanded to) for family in Christ, ending up with good desire. Where sinful desire leads to death.
+Good desire leads to life. Desire Jesus (good treasure in one's heart), produce good, fruit for eternal life.
+Giving into desire for evil, that leads to fruit for death.
+
+  Romans 8:5-13 - For those who live according to the flesh set their minds on the things of the flesh, but those
+  who live according to the Spirit set their minds on the things of the Spirit. To set the mind on the flesh is
+  death, but to set the mind on the Spirit is life and peace. For the mind that is set on the flesh is hostile to
+  God, for it does not submit to God's law; indeed, it cannot. Those who are in the flesh cannot please God. You,
+  however, are not in the flesh but in the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not
+  have the Spirit of Christ does not belong to him. But if Christ is in you, although the body is dead because of
+  sin, the Spirit is life because of righteousness. If the Spirit of him who raised Jesus from the dead dwells in
+  you, he who raised Christ Jesus from the dead will also give life to your mortal bodies through his Spirit who
+  dwells in you. So then, brothers, we are debtors, not to the flesh, to live according to the flesh. For if you
+  live according to the flesh you will die, but if by the Spirit you put to death the deeds of the body, you will
+  live. (ESV)
+
+  II Peter 1:3-9 - His divine power has granted to us all things that pertain to life and godliness, through the
+  knowledge of him who called us to his own glory and excellence, by which he has granted to us his precious and
+  very great promises, so that through them you may become partakers of the divine nature, having escaped from the
+  corruption that is in the world because of sinful desire. For this very reason, make every effort to supplement
+  your faith with virtue, and virtue with knowledge, and knowledge with self-control, and self-control with
+  steadfastness, and steadfastness with godliness, and godliness with brotherly affection, and brotherly affection
+  with love. For if these qualities are yours and are increasing, they keep you from being ineffective or
+  unfruitful in the knowledge of our Lord Jesus Christ. For whoever lacks these qualities is so nearsighted that
+  he is blind, having forgotten that he was cleansed from his former sins. (ESV)
+
+  James 1:14-15 - But each person is tempted when he is lured and enticed by his own desire. Then desire when it
+  has conceived gives birth to sin, and sin when it is fully grown brings forth death. (ESV)
+
+  Matthew 18:3-10 - and said, Truly, I say to you, unless you turn and become like children, you will never enter
+  the kingdom of heaven. Whoever humbles himself like this child is the greatest in the kingdom of heaven. Whoever
+  receives one such child in my name receives me, but whoever causes one of these little ones who believe in me to
+  sin, it would be better for him to have a great millstone fastened around his neck and to be drowned in the
+  depth of the sea. Woe to the world for temptations to sin! For it is necessary that temptations come, but woe to
+  the one by whom the temptation comes! And if your hand or your foot causes you to sin, cut it off and throw it
+  away. It is better for you to enter life crippled or lame than with two hands or two feet to be thrown into the
+  eternal fire. And if your eye causes you to sin, tear it out and throw it away. It is better for you to enter
+  life with one eye than with two eyes to be thrown into the hell of fire. See that you do not despise one of
+  these little ones. For I tell you that in heaven their angels always see the face of my Father who is in heaven.
+  (ESV)
+
+  Romans 16:19-20 - For your obedience is known to all, so that I rejoice over you, but I want you to be wise as
+  to what is good and innocent as to what is evil. The God of peace will soon crush Satan under your feet. The
+  grace of our Lord Jesus Christ be with you. (ESV)
+
+  I Peter 1:22-25 - Having purified your souls by your obedience to the truth for a sincere brotherly love, love
+  one another earnestly from a pure heart, since you have been born again, not of perishable seed but of
+  imperishable, through the living and abiding word of God; for All flesh is like grass and all its glory like the
+  flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this
+  word is the good news that was preached to you. (ESV)
+
+Walking in the light, I believe is walking in the love of the truth. After all, love is more preceding than faith
+and hope (I Corinthians 13:13), faith without love (i.e. hating the truth) is demonic (James 2:19), obedience
+without love is feigned (Psalms 81:15):
+
+  I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
+  blood of Jesus his Son cleanses us from all sin. (ESV)
+
+I got a response from a reddit user:
+
+• Do you know anyone who never sins at all? Do you still sin?
+
+I replied:
+
+Before responding to your question, a little bit of biblical context. If a person is a slave to sin, that leads to
+death as Apostle Paul has said and Jesus did say the one who commits sin is a slave to sin and doesn't abide in
+the house (God's house I take it) forever. And the Apostle John says that no one who abides in Jesus Christ keeps
+on sinning. And I believe this. The real salvation Jesus offers is salvation from actually committing sin.
+
+  I John 3:4-9 - Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know
+  that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no
+  one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever
+  practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil,
+  for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works
+  of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep
+  on sinning because he has been born of God. (ESV)
+
+If I confess the truth about the word of God which says that the one born of God does not sin, I'm agreeing with
+Scripture, and coming into agreement with God's word, and so I'm being taught by God, by His word.
+
+Whatever does not proceed from faith is sin. If a person sins then when they sin they did not have faith and in
+that moment they're being condemned, but when a person is having faith then they have the love of the truth in
+them and are doing good.
+
+If I were to say, "I'm doing good." then I'd be commending myself, and how would that be credible to you? And how
+would that be credible to me? I might tell you, "What I'm doing I'm doing by faith in God an in Jesus Christ."
+I'll testify about that. It's fine to make testimony. I do confess that Jesus is the Son of God. And I believe
+that being a son of God entails practicing righteousness. Jesus Christ practiced righteousness. Jesus has never
+been a sinner. The Bible records that Father God testified of His Son Jesus in saying "This is my beloved Son,
+with whom I am well pleased."
+
+  Matthew 3:13-17 - Then Jesus came from Galilee to the Jordan to John, to be baptized by him. John would have
+  prevented him, saying, I need to be baptized by you, and do you come to me? But Jesus answered him, Let it be so
+  now, for thus it is fitting for us to fulfill all righteousness. Then he consented. And when Jesus was baptized,
+  immediately he went up from the water, and behold, the heavens were opened to him, and he saw the Spirit of God
+  descending like a dove and coming to rest on him; and behold, a voice from heaven said, This is my beloved Son,
+  with whom I am well pleased. (ESV)
+
+But the only way to credibly have your question answered is if God testified about me to you, and about me to me.
+I seek God's commendation. But I do confess that Jesus is the Christ the Son of God who has come from God into the
+world as a flesh and blood human man.
+
+  John 5:31-32 - If I alone bear witness about myself, my testimony is not deemed true. There is another who bears
+  witness about me, and I know that the testimony that he bears about me is true. (ESV)
+
+  II Corinthians 10:18 - For it is not the one who commends himself who is approved, but the one whom the Lord
+  commends. (ESV)
+
+You asked, "Do I know anyone who never sins?" If you asked that of any man or woman and they said, "Yes, Jesus
+Christ." then they themself would have to have themself stopped sinning to have come to know Jesus in order to
+truthfully tell you they know Jesus.
+
+If a person says, "I'm born of God." then they are essentially saying that presently they are not sinning, they
+are loving as commanded and they are confessing the truth of God. If you read through I John you will see those as
+characteristic of the person born of God.
+
+If a person is trying to gauge if someone is born of God then they should be able to get some evidence from their
+works, perhaps. But God knows their heart and knows them best. If they are confessing the truth about God, about
+Jesus Christ and if they are loving as commanded. But if someone hates their brother then they don't abide in
+Jesus, but rather they abide in death. Jesus' mother and brothers and sisters all do the will of God which
+includes being sanctified by obedience to the truth for a sincere love of their family in Christ. Their father is
+God the father of the Lord Jesus Christ, not any man on earth.
+
+Like the Apostles, we should be doers of the word for God to see, seeking God's commendation who sees everything
+and who knows our thoughts and intentions and the reason why we do anything. God sees our hearts. Affirming the
+truth that Jesus spoke, we should then be doers out of faith for God to see in all situations, rather than
+desperately trying to prove ourselves to our peers, for example, on a Sunday.
+
+  II Corinthians 10:11-12 - Let such a person understand that what we say by letter when absent, we do when
+  present. Not that we dare to classify or compare ourselves with some of those who are commending themselves. But
+  when they measure themselves by one another and compare themselves with one another, they are without
+  understanding. (ESV)
+
+So it's important to stop committing sin to abide in Jesus and come to know Him. I do believe that it's not a sin
+to confess that Jesus is the Christ, the Son of God. If a person confesses that Jesus is the Christ the Son of God
+from a love of the truth, I do believe that they are not in that moment committing sin, so they have in that
+moment stopped sinning. But God is the judge of that.
+
+I'll say this, I do presently believe that what I'm currently doing in responding to your question is the right
+thing to do. I'm trying to help through sharing what I've sincerely come to believe in God's word. You've got my
+testimony on that.
 
 The mind of the old self must be "shaken off" (Romans 6:11) and we do that by taking every thought captive for
 obedience to Jesus Christ (II Corinthians 10:5-6). We must set our minds on the things of the Spirit, rather than
@@ -58910,7 +59093,15 @@ wouldn't let anyone pass judgement on me over eating meat myself:
 
   Romans 14:16 - So do not let what you regard as good be spoken of as evil. (ESV)
 
-I definitely think that "killing animals" for no good reason, say for sport, is not good.
+It does seem as though the original design is that every plant yielding seed on the face of the earth is for food
+for humans (rather than humans eating animals), and that the animals would also eat green plants:
+
+  Genesis 1:29-30 - And God said, Behold, I have given you every plant yielding seed that is on the face of all
+  the earth, and every tree with seed in its fruit. You shall have them for food. And to every beast of the earth
+  and to every bird of the heavens and to everything that creeps on the earth, everything that has the breath of
+  life, I have given every green plant for food. And it was so. (ESV)
+
+I definitely think that "killing animals" for no good reason, say for sport, is not good:
 
   Isaiah 11:6-9 - The wolf shall dwell with the lamb, and the leopard shall lie down with the young goat, and the
   calf and the lion and the fattened calf together; and a little child shall lead them. The cow and the bear shall
@@ -59693,6 +59884,14 @@ Knowing God definitely involves not being violent, and it involves saving life.
   play over the hole of the cobra, and the weaned child shall put his hand on the adder's den. They shall not hurt
   or destroy in all my holy mountain; for the earth shall be full of the knowledge of the LORD as the waters cover
   the sea. (ESV)
+
+It does seem as though the original design is that every plant yielding seed on the face of the earth is for food
+for humans (rather than humans eating animals), and that the animals would also eat green plants:
+
+  Genesis 1:29-30 - And God said, Behold, I have given you every plant yielding seed that is on the face of all
+  the earth, and every tree with seed in its fruit. You shall have them for food. And to every beast of the earth
+  and to every bird of the heavens and to everything that creeps on the earth, everything that has the breath of
+  life, I have given every green plant for food. And it was so. (ESV)
 
 4.2.8. Honesty in pleasing God with works
 
@@ -144480,11 +144679,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-01 Sun 09:07
+Date: 2026-11-04 Wed 20:12
 
 Author: Shane Mulligan
 
-Created: 2026-11-01 Sun 09:26
+Created: 2026-11-04 Wed 20:21
 
 Validate
 
