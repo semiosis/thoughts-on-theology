@@ -604,7 +604,8 @@ Also, this "faith apart from works" is "obedient" to the gospel of the Lord Jesu
 
 If someone were to command another to "go to sleep" or to "rest", and they obeyed, then in obeying they have not
 "worked", yet they have still obeyed. So "working" and "obeying" are different words meaning different things and
-should not be confused:
+should not be confused. After all, Jesus was always walking by faith and obedience, but by the looks of John 9:4
+He must have also rested:
 
   John 9:4 - We must work the works of him who sent me while it is day; night is coming, when no one can work.
   (ESV)
@@ -1605,17 +1606,17 @@ Faith working righteousness (John 3:21, John 4:34, Galatians 6:7-10, John     Lo
 6:27)                                                                         (John 3:20, Romans 6:22-23; i.e.
 the wages of sin, Proverbs 16:3-4)
 Faith without working (G2038 ergazomenō; working) (Romans 4:5, Romans
-6:22-23; i.e. the free gift). We all must receive this (Romans 11:29-33,
-Proverbs 12:3), even the one who works has to have received this (i.e. have
-ceased trusting in themselves that they are in themselves righteous apart
-from (G5565 chōris) Jesus Christ and to have refrained from working in order
-to received the gift), because we must not be establishing a righteousness     
-of our own which is apart from (G5565 chōris) Christ (Romans 10:3-11, John
-15:1-6). So there must be a point at which God affirms that we have
-recognised our own deeds have been evil, and we need His mercy, and we need
-forgiveness and atonement for the sin incurred due to our history of evil
-deeds, and had faith in Jesus Christ while resting/abstaining from working
-so as to not commit sin.
+6:22-23; i.e. the free gift, John 9:4). We all must receive this (Romans
+11:29-33, Proverbs 12:3), even the one who works has to have received this
+(i.e. have ceased trusting in themselves that they are in themselves
+righteous apart from (G5565 chōris) Jesus Christ and to have refrained from
+working in order to received the gift), because we must not be establishing    
+a righteousness of our own which is apart from (G5565 chōris) Christ (Romans
+10:3-11, John 15:1-6). So there must be a point at which God affirms that we
+have recognised our own deeds have been evil, and we need His mercy, and we
+need forgiveness and atonement for the sin incurred due to our history of
+evil deeds, and had faith in Jesus Christ while resting/abstaining from
+working so as to not commit sin.
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 
 The cessation of working/deeding (G2038 ergazomenō; working) in Romans 4:5 is a differnet type of working to the
@@ -11192,6 +11193,26 @@ salvation comes their wife and to their children, to those calling them 'father'
   which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a
   good conscience, through the resurrection of Jesus Christ, who has gone into heaven and is at the right hand of
   God, with angels, authorities, and powers having been subjected to him. (ESV)
+
+https://www.reddit.com/r/redeemedzoomer/comments/1xoo9kj/do_you_guys_consider_catholics_to_be_christians/
+I commented:
+
+u/mullikine (Non-Denominational)
+
+What matters isn't the "User Flair" (the denomination a person affirms), but rather if a person is walking by
+faith or not. What matters is that a person is a doer of God's word in reality at the personal level. Jesus Christ
+living in a person mediates their relationship with God. While my own theological understanding has undergone a
+lot of changes as I endeavour to be corrected by God's word, I choose not to align myself with a denomination and
+endorse all their extraneous and often faulty theology, but rather to in practice try to affirm the truth of God
+in reality at the personal relationship level and opportunistically as God would have a person do it, endeavouring
+to keep a good conscience with God. Denominational theology and many of those who preach from the pulpit of
+varying denominations keep letting me down with their divisive theology. I think this is one reason why Jesus has
+said, "you have one teacher, the Christ".
+
+  John 3:19-21 - And this is the judgment: the light has come into the world, and people loved the darkness rather
+  than the light because their deeds were evil. For everyone who does wicked things hates the light and does not
+  come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that
+  it may be clearly seen that his deeds have been carried out in God. (ESV)
 
 If God would consider me to be a scribe in the Kingdom of God then I could "potentially" (only if God-willing)
 consider the Roman catholic church or the SSPX, for example, to be a "neighbour household" / "neighbour
@@ -42696,6 +42717,29 @@ It's evident that in the KJV, the word "would" at the time of writing the KJV is
 
   II Thessalonians 3:10 - For even when we were with you, this we commanded you, that if any would (G2309 thelei;
   is willing) not work, neither should he eat. (KJV)
+
+I refuse to work a job which would be sinful for me to work. It would be wrong to tell a former prostitute to be
+willing to go back to prostitution lest they not eat. Acceptable work must come from faith or it is working
+lawlessness. I do not want to work lawlessness. I'm not unwilling to work. But I am unwilling to work lawlessness.
+
+  II Thessalonians 3:1-14 - Finally, brothers, pray for us, that the word of the Lord may speed ahead and be
+  honored, as happened among you, and that we may be delivered from wicked and evil men. For not all have faith.
+  But the Lord is faithful. He will establish you and guard you against the evil one. And we have confidence in
+  the Lord about you, that you are doing and will do the things that we command. May the Lord direct your hearts
+  to the love of God and to the steadfastness of Christ. Now we command you, brothers, in the name of our Lord
+  Jesus Christ, that you keep away from any brother who is walking in idleness and not in accord with the
+  tradition that you received from us. For you yourselves know how you ought to imitate us, because we were not
+  idle when we were with you, nor did we eat anyone's bread without paying for it, but with toil and labor we
+  worked night and day, that we might not be a burden to any of you. It was not because we do not have that right,
+  but to give you in ourselves an example to imitate. For even when we were with you, we would give you this
+  command: If anyone is not willing to work, let him not eat. For we hear that some among you walk in idleness,
+  not busy at work, but busybodies. Now such persons we command and encourage in the Lord Jesus Christ to do their
+  work quietly and to earn their own living. As for you, brothers, do not grow weary in doing good. If anyone does
+  not obey what we say in this letter, take note of that person, and have nothing to do with him, that he may be
+  ashamed. (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
 
 Without commenting on the Bible translation itself, I'm very concerned about the Recovery version's footnotes and
 echo this person's sentiment:
@@ -144708,11 +144752,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-06 Fri 08:26
+Date: 2026-11-06 Fri 10:21
 
 Author: Shane Mulligan
 
-Created: 2026-11-06 Fri 08:38
+Created: 2026-11-06 Fri 10:26
 
 Validate
 

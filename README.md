@@ -276,7 +276,7 @@ This "faith apart from works" is what so-called "justification by faith 'alone'"
 
 Also, this "faith apart from works" is "obedient" to the gospel of the Lord Jesus Christ. It's obedient to God (**[Acts 5:32](https://www.biblegateway.com/passage/?search=Acts%205%3A32&version=ESV)**), and abiding by the law of faith  (**[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**) by faith in Christ Jesus, and is obeying God's gospel (**[Romans 10:14-21](https://www.biblegateway.com/passage/?search=Romans%2010%3A14-21&version=ESV)**).
 
-If someone were to command another to "go to sleep" or to "rest", and they obeyed, then in obeying they have not "worked", yet they have still obeyed. So "working" and "obeying" are different words meaning different things and should not be confused:
+If someone were to command another to "go to sleep" or to "rest", and they obeyed, then in obeying they have not "worked", yet they have still obeyed. So "working" and "obeying" are different words meaning different things and should not be confused. After all, Jesus was always walking by faith and obedience, but by the looks of **[John 9:4](https://www.biblegateway.com/passage/?search=John%209%3A4&version=ESV)** He must have also rested:
 
 > **[John 9:4](https://www.biblegateway.com/passage/?search=John%209%3A4&version=ESV)** - We must work the works of him who sent me while it is day; night is coming, when no one can work. (ESV)
 
@@ -835,7 +835,7 @@ It's imperative, no matter how much we've been attempting to work for God, that 
 
 
 <tr>
-<td class="org-left">Faith without working <a href="https://www.blueletterbible.org/lexicon/g2038/kjv/tr/0-1/">(G2038 ergazomenō; working)</a> (<b><a href="https://www.biblegateway.com/passage/?search=Romans%204%3A5&amp;version=ESV">Romans 4:5</a></b>, <b><a href="https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&amp;version=NASB">Romans 6:22-23; i.e. the free gift</a></b>). We all must receive this (<b><a href="https://www.biblegateway.com/passage/?search=Romans%2011%3A29-33&amp;version=ESV">Romans 11:29-33</a></b>, <b><a href="https://www.biblegateway.com/passage/?search=Proverbs%2012%3A3&amp;version=ESV">Proverbs 12:3</a></b>), even the one who works has to have received this (i.e. have ceased trusting in themselves that they are in themselves righteous <b>apart from</b> <a href="https://www.blueletterbible.org/lexicon/g5565/kjv/tr/0-1/">(G5565 chōris)</a> Jesus Christ and to have refrained from working in order to received the gift), because we must not be establishing a righteousness of our own which is apart from <a href="https://www.blueletterbible.org/lexicon/g5565/kjv/tr/0-1/">(G5565 chōris)</a> Christ (<b><a href="https://www.biblegateway.com/passage/?search=Romans%2010%3A3-11&amp;version=ESV">Romans 10:3-11</a></b>, <b><a href="https://www.biblegateway.com/passage/?search=John%2015%3A1-6&amp;version=ESV">John 15:1-6</a></b>). So there must be a point at which God affirms that we have recognised our own deeds have been evil, and we need His mercy, and we need forgiveness and atonement for the sin incurred due to our history of evil deeds, and had faith in Jesus Christ while resting/abstaining from working so as to not commit sin.</td>
+<td class="org-left">Faith without working <a href="https://www.blueletterbible.org/lexicon/g2038/kjv/tr/0-1/">(G2038 ergazomenō; working)</a> (<b><a href="https://www.biblegateway.com/passage/?search=Romans%204%3A5&amp;version=ESV">Romans 4:5</a></b>, <b><a href="https://www.biblegateway.com/passage/?search=Romans%206%3A22-23&amp;version=NASB">Romans 6:22-23; i.e. the free gift</a></b>, <b><a href="https://www.biblegateway.com/passage/?search=John%209%3A4&amp;version=ESV">John 9:4</a></b>). We all must receive this (<b><a href="https://www.biblegateway.com/passage/?search=Romans%2011%3A29-33&amp;version=ESV">Romans 11:29-33</a></b>, <b><a href="https://www.biblegateway.com/passage/?search=Proverbs%2012%3A3&amp;version=ESV">Proverbs 12:3</a></b>), even the one who works has to have received this (i.e. have ceased trusting in themselves that they are in themselves righteous <b>apart from</b> <a href="https://www.blueletterbible.org/lexicon/g5565/kjv/tr/0-1/">(G5565 chōris)</a> Jesus Christ and to have refrained from working in order to received the gift), because we must not be establishing a righteousness of our own which is apart from <a href="https://www.blueletterbible.org/lexicon/g5565/kjv/tr/0-1/">(G5565 chōris)</a> Christ (<b><a href="https://www.biblegateway.com/passage/?search=Romans%2010%3A3-11&amp;version=ESV">Romans 10:3-11</a></b>, <b><a href="https://www.biblegateway.com/passage/?search=John%2015%3A1-6&amp;version=ESV">John 15:1-6</a></b>). So there must be a point at which God affirms that we have recognised our own deeds have been evil, and we need His mercy, and we need forgiveness and atonement for the sin incurred due to our history of evil deeds, and had faith in Jesus Christ while resting/abstaining from working so as to not commit sin.</td>
 <td class="org-left">&#xa0;</td>
 </tr>
 </tbody>
@@ -5325,6 +5325,14 @@ The true gospel saves people from committing sin. The true gospel involves comin
 > **[Hebrews 11:7](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A7&version=ESV)** - By faith Noah, being warned by God concerning events as yet unseen, in reverent fear constructed an ark for **the saving of his household**. By this he condemned the world and became an heir of the righteousness that comes by faith. (ESV)
 
 > **[I Peter 3:18-22](https://www.biblegateway.com/passage/?search=1%20Peter%203%3A18-22&version=ESV)** - For Christ also suffered once for sins, the righteous for the unrighteous, that he might bring us to God, being put to death in the flesh but made alive in the spirit, in which he went and proclaimed to the spirits in prison, because they formerly did not obey, when God's patience waited in the days of Noah, while the ark was being prepared, in which a few, that is, **eight persons, were brought safely through water**. Baptism, which corresponds to this, now saves you, not as a removal of dirt from the body but as an appeal to God for a good conscience, through the resurrection of Jesus Christ, who has gone into heaven and is at the right hand of God, with angels, authorities, and powers having been subjected to him. (ESV)
+
+-   **<https://www.reddit.com/r/redeemedzoomer/comments/1xoo9kj/do_you_guys_consider_catholics_to_be_christians/>:** I commented:
+
+<ins>`u/mullikine` (Non-Denominational)</ins>
+
+What matters isn't the "User Flair" (the denomination a person affirms), but rather if a person is walking by faith or not. What matters is that a person is a doer of God's word in reality at the personal level. Jesus Christ living in a person mediates their relationship with God. While my own theological understanding has undergone a lot of changes as I endeavour to be corrected by God's word, I choose not to align myself with a denomination and endorse all their extraneous and often faulty theology, but rather to in practice try to affirm the truth of God in reality at the personal relationship level and opportunistically as God would have a person do it, endeavouring to keep a good conscience with God. Denominational theology and many of those who preach from the pulpit of varying denominations keep letting me down with their divisive theology. I think this is one reason why Jesus has said, "you have one teacher, the Christ".
+
+> **[John 3:19-21](https://www.biblegateway.com/passage/?search=John%203%3A19-21&version=ESV)** - And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
 
 If God would consider me to be a scribe in the Kingdom of God then I could "potentially" (only if God-willing) consider the Roman catholic church or the SSPX, for example, to be a "neighbour household" / "neighbour households" that I'm not myself a part of because in following Jesus I certainly would not be referring to the pope as my father.
 
@@ -20075,7 +20083,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org402ae8c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orge8b1812) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -23101,6 +23109,15 @@ It's evident that in the KJV, the word "would" at the time of writing the KJV is
 
 > **[II Thessalonians 3:10](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A10&version=KJV)** - For even when we were with you, this we commanded you, that if any **would** [(G2309 thelei; is willing)](G2309) not work, neither should he eat. (KJV)
 
+I refuse to work a job which would be sinful for me to work.
+It would be wrong to tell a former prostitute to be willing to go back to prostitution lest they not eat.
+Acceptable work must come from faith or it is working lawlessness.
+I do not want to work lawlessness. I'm not unwilling to work. But I am unwilling to work lawlessness.
+
+> **[II Thessalonians 3:1-14](https://www.biblegateway.com/passage/?search=2%20Thessalonians%203%3A1-14&version=ESV)** - Finally, brothers, pray for us, that the word of the Lord may speed ahead and be honored, as happened among you, and that we may be delivered from wicked and evil men. For not all have faith. But the Lord is faithful. He will establish you and guard you against the evil one. And we have confidence in the Lord about you, that you are doing and will do the things that we command. May the Lord direct your hearts to the love of God and to the steadfastness of Christ. Now we command you, brothers, in the name of our Lord Jesus Christ, that you **keep away from any brother who is walking in idleness and not in accord with the tradition that you received from us.** For you yourselves know how **you ought to imitate us**, because we were not idle when we were with you, nor did we eat anyone's bread without paying for it, but **with toil and labor we worked night and day, that we might not be a burden to any of you.** It was not because we do not have that right, but to give you in ourselves an example to imitate. For even when we were with you, we would give you this command: If anyone is not <ins>willing</ins> to work, let him not eat. For we hear that some among you walk in idleness, not busy at work, but busybodies. Now such persons we command and encourage in the Lord Jesus Christ to do their work quietly and to earn their own living. As for you, brothers, do not grow weary in doing good. If anyone does not obey what we say in this letter, take note of that person, and have nothing to do with him, that he may be ashamed. (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For whatever does not proceed from faith is sin. (ESV)
+
 Without commenting on the Bible translation itself, I'm very concerned about the Recovery version's footnotes and echo this person's sentiment:
 
 -   **[bible-researcher.com recovery-version.html: Recovery Version (Reviewed by Murray Grindlay, February 2009)](https://www.bible-researcher.com/recovery-version.html):** Conclusion:
@@ -25919,7 +25936,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgc9fe292).
+I didn't know but it turned out to be the last day of my [sentence](#org2d3db03).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -50966,7 +50983,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org7c506ac)
+See: [33.4.1](#org3b6dcdd)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -72849,7 +72866,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org7c506ac)
+See: [33.4.1](#org3b6dcdd)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -75505,7 +75522,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgd3df15f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgdb434ba) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -83850,7 +83867,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgd3df15f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgdb434ba) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -85188,7 +85205,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orge5fe1ea)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org3a3847e)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
