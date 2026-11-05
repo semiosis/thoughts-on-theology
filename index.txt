@@ -2397,13 +2397,25 @@ The promises are to those who love God, so we have to love God rather than sin:
   whiter than snow. (NHEBJE)
 
 So I'll attempt to articulate this clearly in one sentence: While a person is not condemned 'presently' by Jesus
-if they are 'presently' holding faith in Him, and while Jesus did not 'judge' those who heard but did not do what
-He said, the same word that they rejected will judge later and there is still a day of wrath coming for those who
-are not sanctified into loving their neighbour the way God has commanded them to. Continuing on in the faith
-soundly involves abiding in the sound doctrine of Jesus Christ (II John 1:1-11) which includes walking according
-to Jesus' commandments (I John 3:23-24). Though God will have mercy on those He has mercy. But we want to have
-confidence for the day of judgement so we should be walking in godliness holding our faith in Jesus so that the
-deeds that we do, coming from faith, are good deeds (John 14:12, John 3:17-21, I John 2:3-6):
+if they are 'presently' holding faith in Him (John 3:17-21), and while Jesus did not 'judge' those who heard but
+did not do what He said, the same word that they rejected will judge later (John 12:44-50) and there is still a
+day of wrath coming for those who are not sanctified into loving their neighbour the way God has commanded them to
+(Matthew 25:31-46).
+
+• Polycarp 3:3 [3:2 the faith given to you] which is the mother of us all, while hope followeth after and love
+goeth before – love toward God and Christ and toward our neighbor. For if any man be occupied with these, he
+hath fulfilled the commandment of righteousness; for he that hath love is far from all sin.
+
+  John 3:19-21 - And this is the judgment: the light has come into the world, and people loved the darkness rather
+  than the light because their deeds were evil. For everyone who does wicked things hates the light and does not
+  come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that
+  it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+Continuing on in the faith soundly involves abiding in the sound doctrine of Jesus Christ (II John 1:1-11) which
+includes walking according to Jesus' commandments (I John 3:23-24). Though God will have mercy on those He has
+mercy. But we want to have confidence for the day of judgement so we should be walking in godliness holding our
+faith in Jesus so that the deeds that we do, coming from faith, are good deeds (John 14:12, John 3:17-21, I John
+2:3-6):
 
   Colossians 3:1-10 - If then you have been raised with Christ, seek the things that are above, where Christ is,
   seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For
@@ -4349,16 +4361,13 @@ faith:
   him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing
   of the one to whom God counts righteousness apart from (G5565 chōris) works (G2041 ergōn): (ESV)
 
-We must not be those who work ((G2038 ergazomenoi)) lawlessness:
+We must not be those who work (G2038 ergazomenoi) lawlessness:
 
 Matthew 7:23 (Interlinear)
 
-And (G2532 kai) then (G5119 tote) I will declare (G3670 homologēsō) to them (G846 autois)
-
-• (G3754 hoti)
-
-Never (G3763 Oudepote) knew I (G1097 egnōn) you (G4771 hymas) depart you (G672 apochōreite) from (G575 ap’) me
-(G1473 emou) those (G3588 hoi) working (G2038 ergazomenoi)
+And (G2532 kai) then (G5119 tote) I will declare (G3670 homologēsō) to them (G846 autois) - (G3754 hoti) Never
+(G3763 Oudepote) knew I (G1097 egnōn) you (G4771 hymas) depart you (G672 apochōreite) from (G575 ap’) me (G1473
+emou) those (G3588 hoi) working (G2038 ergazomenoi)
 
 • (G3588 tēn)
 
@@ -4367,24 +4376,12 @@ lawlessness (G458 anomian)
 We must be those who do (G4160 poiōn) righteousness:
 
 I John 3:10 (Interlinear)
-
 Through (G1722 en) this (G3778 toutō) manifest (G5318 phanera) are (G1510 estin) the (G3588 ta) children (G5043
-tekna)
-
-• (G3588 tou)
-
-of God (G2316 Theou) and (G2532 kai) the (G3588 ta) children (G5043 tekna) of the (G3588 tou) devil (G1228
-diabolou) Anyone (G3956 pas)
-
-• (G3588 ho)
-
-not (G3361 mē) practicing (G4160 poiōn) righteousness (G1343 dikaiosynēn) not (G3756 ouk) is (G1510 estin) of
-(G1537 ek)
-
-• (G3588 tou)
-
-God (G2316 Theou) and also (G2532 kai) the [one] (G3588 ho) not (G3361 mē) loving (G25 agapōn) the (G3588 ton)
-brother (G80 adelphon) of him (G846 autou)
+tekna) - (G3588 tou) of God (G2316 Theou) and (G2532 kai) the (G3588 ta) children (G5043 tekna) of the (G3588 tou)
+devil (G1228 diabolou) Anyone (G3956 pas) - (G3588 ho) not (G3361 mē) practicing (G4160 poiōn) righteousness
+(G1343 dikaiosynēn) not (G3756 ouk) is (G1510 estin) of (G1537 ek) - (G3588 tou) God (G2316 Theou) and also (G2532
+kai) the [one] (G3588 ho) not (G3361 mē) loving (G25 agapōn) the (G3588 ton) brother (G80 adelphon) of him (G846
+autou)
 
   Psalms 51:1-4 - Have mercy on me, O God, according to your steadfast love; according to your abundant mercy blot
   out my transgressions. To the choirmaster. A Psalm of David, when Nathan the prophet went to him, after he had
@@ -6595,6 +6592,8 @@ So it's absolutely key to have a loving faith in Jesus Christ:
   (ESV)
 
   I Corinthians 8:3 - But if anyone loves God, he is known by God. (ESV)
+
+  Ephesians 6:24 - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
 
 It's also absolutely key to have "stopped working" at some point, but the rest is entered into by faith and by
 obedience, so not entered by sinning, say though a sin of omission (James 4:17). If somebody knew that they should
@@ -9003,6 +9002,10 @@ limited understanding of what the human truly appreciates.
 Now let's say the human believes in actuality that the slaying of native birds is "evil". And so the cat still
 conducts itself in the "fear of the human", in caution, knowing that there are things that the human hates, and
 endeavouring to understand their human better, and learn to love their human better.
+
+  Genesis 9:2 - The fear of you and the dread of you shall be upon every beast of the earth and upon every bird of
+  the heavens, upon everything that creeps on the ground and all the fish of the sea. Into your hand they are
+  delivered. (ESV)
 
 Now let's say the city council has a rule that for any cat that slays this particular native bird, either the
 owner pays a fine or the cat has to be "put down". But let's say that paying the fine means that the human cannot
@@ -18592,6 +18595,8 @@ as commanded):
 
   I Corinthians 8:3 - But if anyone loves God, he is known by God. (ESV)
 
+  Ephesians 6:24 - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
+
   I John 4:7 - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and
   knows God. (ESV)
 
@@ -24063,6 +24068,8 @@ So we kinda "gravitate" (in a sanctifying way) towards Jesus who we hold faith i
   you have heard from the beginning, that we should love one another. (ESV)
 
   I Corinthians 8:3 - But if anyone loves God, he is known by God. (ESV)
+
+  Ephesians 6:24 - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
 
 "Kairós" is qualitative (i.e. a special occasion) and "xrónos" is quantitative (i.e. a length of time):
 
@@ -31783,6 +31790,8 @@ I truly believe that God tests all people to see if they are law-abiding:
   rock. (ESV)
 
   I Corinthians 8:3 - But if anyone loves God, he is known by God. (ESV)
+
+  Ephesians 6:24 - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
 
   Matthew 22:36-40 - Teacher, which is the great commandment in the Law? And he said to him, You shall love the
   Lord your God with all your heart and with all your soul and with all your mind. This is the great and first
@@ -59101,6 +59110,14 @@ for humans (rather than humans eating animals), and that the animals would also 
   and to every bird of the heavens and to everything that creeps on the earth, everything that has the breath of
   life, I have given every green plant for food. And it was so. (ESV)
 
+But later on God has given approval to Noah and his sons to eat animals for food albeit not with their blood:
+
+  Genesis 9:1-4 - And God blessed Noah and his sons and said to them, Be fruitful and multiply and fill the earth.
+  The fear of you and the dread of you shall be upon every beast of the earth and upon every bird of the heavens,
+  upon everything that creeps on the ground and all the fish of the sea. Into your hand they are delivered. Every
+  moving thing that lives shall be food for you. And as I gave you the green plants, I give you everything. But
+  you shall not eat flesh with its life, that is, its blood. (ESV)
+
 I definitely think that "killing animals" for no good reason, say for sport, is not good:
 
   Isaiah 11:6-9 - The wolf shall dwell with the lamb, and the leopard shall lie down with the young goat, and the
@@ -59892,6 +59909,14 @@ for humans (rather than humans eating animals), and that the animals would also 
   the earth, and every tree with seed in its fruit. You shall have them for food. And to every beast of the earth
   and to every bird of the heavens and to everything that creeps on the earth, everything that has the breath of
   life, I have given every green plant for food. And it was so. (ESV)
+
+But later on God has given approval to Noah and his sons to eat animals for food albeit not with their blood:
+
+  Genesis 9:1-4 - And God blessed Noah and his sons and said to them, Be fruitful and multiply and fill the earth.
+  The fear of you and the dread of you shall be upon every beast of the earth and upon every bird of the heavens,
+  upon everything that creeps on the ground and all the fish of the sea. Into your hand they are delivered. Every
+  moving thing that lives shall be food for you. And as I gave you the green plants, I give you everything. But
+  you shall not eat flesh with its life, that is, its blood. (ESV)
 
 4.2.8. Honesty in pleasing God with works
 
@@ -79370,6 +79395,8 @@ which treasures Jesus and His teachings, God's words and treasures their family 
   rock. (ESV)
 
   I Corinthians 8:3 - But if anyone loves God, he is known by God. (ESV)
+
+  Ephesians 6:24 - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
 
   I John 4:20 - If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his
   brother whom he has seen cannot love God whom he has not seen. (ESV)
@@ -138126,6 +138153,8 @@ Commandments:
 
   I Corinthians 8:3 - But if anyone loves God, he is known by God. (ESV)
 
+  Ephesians 6:24 - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
+
   Matthew 22:36-40 - Teacher, which is the great commandment in the Law? And he said to him, You shall love the
   Lord your God with all your heart and with all your soul and with all your mind. This is the great and first
   commandment. And a second is like it: You shall love your neighbor as yourself. On these two commandments depend
@@ -144679,11 +144708,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-04 Wed 20:12
+Date: 2026-11-06 Fri 08:26
 
 Author: Shane Mulligan
 
-Created: 2026-11-04 Wed 20:21
+Created: 2026-11-06 Fri 08:38
 
 Validate
 

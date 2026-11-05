@@ -1156,7 +1156,16 @@ The promises are to those who love God, so we have to love God rather than sin:
 
 > **[Psalms 51:1-7](https://www.biblegateway.com/passage/?search=Psalms%2051%3A1-7&version=ESV)** - For the Chief Musician. A Psalm by David, when Nathan the prophet came to him, after he had gone in to Bathsheba. Have mercy on me, God, according to your loving kindness. According to the multitude of your tender mercies, blot out my transgressions. Wash me thoroughly from my iniquity. Cleanse me from my sin. For I know my transgressions. My sin is constantly before me. Against you, and you only, have I sinned, and done that which is evil in your sight; that you may be proved right when you speak, and justified when you judge. Behold, I was brought forth in iniquity. In sin my mother conceived me. Behold, you desire truth in the inward parts. You teach me wisdom in the inmost place. Purify me with hyssop, and I will be clean. Wash me, and I will be whiter than snow. (NHEBJE)
 
-So I'll attempt to articulate this clearly in one sentence: While a person is not condemned 'presently' by Jesus if they are 'presently' holding faith in Him, and while Jesus did not 'judge' those who heard but did not do what He said, the same word that they rejected will judge later and there is still a day of wrath coming for those who are not sanctified into loving their neighbour the way God has commanded them to. Continuing on in the faith soundly involves abiding in the sound doctrine of Jesus Christ (**[II John 1:1-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A1-11&version=ESV)**) which includes walking according to Jesus' commandments (**[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)**). Though God will have mercy on those He has mercy. But we want to have confidence for the day of judgement so we should be walking in godliness holding our faith in Jesus so that the deeds that we do, coming from faith, are good deeds (**[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)**, **[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)**, **[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)**):
+So I'll attempt to articulate this clearly in one sentence: While a person is not condemned 'presently' by Jesus if they are 'presently' holding faith in Him (**[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)**), and while Jesus did not 'judge' those who heard but did not do what He said, the same word that they rejected will judge later (**[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)**) and there is still a day of wrath coming for those who are not sanctified into loving their neighbour the way God has commanded them to (**[Matthew 25:31-46](https://www.biblegateway.com/passage/?search=Matthew%2025%3A31-46&version=ESV)**).
+
+-   [Polycarp 3:3](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html) [3:2 the faith given to you] which is the mother of us all, while hope followeth after and
+    **love goeth before** &#x2013; <ins>love toward God and Christ and toward our neighbor.</ins> For
+    if any man be occupied with these, he hath fulfilled the commandment
+    of righteousness; for he that hath love is far from all sin.
+
+> **[John 3:19-21](https://www.biblegateway.com/passage/?search=John%203%3A19-21&version=ESV)** - And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+Continuing on in the faith soundly involves abiding in the sound doctrine of Jesus Christ (**[II John 1:1-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A1-11&version=ESV)**) which includes walking according to Jesus' commandments (**[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)**). Though God will have mercy on those He has mercy. But we want to have confidence for the day of judgement so we should be walking in godliness holding our faith in Jesus so that the deeds that we do, coming from faith, are good deeds (**[John 14:12](https://www.biblegateway.com/passage/?search=John%2014%3A12&version=ESV)**, **[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)**, **[I John 2:3-6](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-6&version=ESV)**):
 
 > **[Colossians 3:1-10](https://www.biblegateway.com/passage/?search=Colossians%203%3A1-10&version=ESV)** - If then you have been raised with Christ, seek the things that are above, where Christ is, seated at the right hand of God. Set your minds on things that are above, not on things that are on earth. For you have died, and your life is hidden with Christ in God. When Christ who is your life appears, then you also will appear with him in glory. Put to death therefore what is earthly in you: sexual immorality, impurity, passion, evil desire, and covetousness, which is idolatry. **On account of these the wrath of God is coming.** In these you too once walked, when you were living in them. But now you must put them all away: anger, wrath, malice, slander, and obscene talk from your mouth. Do not lie to one another, seeing that you have put off the old self with its practices and have put on the new self, which is being renewed in knowledge after the image of its creator. (ESV)
 
@@ -2023,15 +2032,12 @@ But if a sinful person appeals to God for mercy, in faith then God may justify t
 
 > **[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)** - Now to the one who works [(G2038 ergazomenō; is working for payment)](G2038), his wages are not counted as a gift but as his due. And to the one who does not work [(G2038 ergazomenō; is working for payment)](G2038) but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing of the one to whom God counts righteousness apart from [(G5565 chōris)](G5565) works [(G2041 ergōn)](G2041): (ESV)
 
-We must not be those who work ([(G2038 ergazomenoi)](G2038)) lawlessness:
+We must not be those who work [(G2038 ergazomenoi)](G2038) lawlessness:
 
 -   **[Matthew 7:23](https://biblehub.com/interlinear/matthew/7-23.htm) (Interlinear):** And [(G2532 kai)](G2532)
     then [(G5119 tote)](G5119)
     I will declare [(G3670 homologēsō)](G3670)
-    to them [(G846 autois)](G846)
-    
-    -   [(G3754 hoti)](G3754)
-    
+    to them [(G846 autois)](G846) - [(G3754 hoti)](G3754)
     Never [(G3763 Oudepote)](G3763)
     knew I [(G1097 egnōn)](G1097)
     you [(G4771 hymas)](G4771)
@@ -2052,29 +2058,20 @@ We must be those who **do** [(G4160 poiōn)](G4160) righteousness:
     manifest [(G5318 phanera)](G5318)
     are [(G1510 estin)](G1510)
     the [(G3588 ta)](G3588)
-    children [(G5043 tekna)](G5043)
-    
-    -   [(G3588 tou)](G3588)
-    
+    children [(G5043 tekna)](G5043) - [(G3588 tou)](G3588)
     of God [(G2316 Theou)](G2316)
     and [(G2532 kai)](G2532)
     the [(G3588 ta)](G3588)
     children [(G5043 tekna)](G5043)
     of the [(G3588 tou)](G3588)
     devil [(G1228 diabolou)](G1228)
-    Anyone [(G3956 pas)](G3956)
-    
-    -   [(G3588 ho)](G3588)
-    
+    Anyone [(G3956 pas)](G3956) - [(G3588 ho)](G3588)
     not [(G3361 mē)](G3361)
     practicing [(G4160 poiōn)](G4160)
     righteousness [(G1343 dikaiosynēn)](G1343)
     not [(G3756 ouk)](G3756)
     is [(G1510 estin)](G1510)
-    of [(G1537 ek)](G1537)
-    
-    -   [(G3588 tou)](G3588)
-    
+    of [(G1537 ek)](G1537) - [(G3588 tou)](G3588)
     God [(G2316 Theou)](G2316)
     and also [(G2532 kai)](G2532)
     the [one] [(G3588 ho)](G3588)
@@ -3202,6 +3199,8 @@ So it's **absolutely key** to have a loving faith in Jesus Christ:
 > **[Matthew 7:23](https://www.biblegateway.com/passage/?search=Matthew%207%3A23&version=ESV)** - And then will I declare to them, I never knew you; depart from me, you workers of lawlessness. (ESV)
 
 > **[I Corinthians 8:3](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A3&version=ESV)** - But **if anyone loves God, he is known by God**. (ESV)
+
+> **[Ephesians 6:24](https://www.biblegateway.com/passage/?search=Ephesians%206%3A24&version=ESV)** - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
 
 It's also absolutely key to have "stopped working" at some point, but the rest is entered into by faith and by obedience, so not entered by sinning, say though a sin of omission (**[James 4:17](https://www.biblegateway.com/passage/?search=James%204%3A17&version=ESV)**). If somebody knew that they should help their family in Christ, for example, but they closed their heart against them, then they would be unable to enter rest, which is entered through faith and obedience to Jesus Christ (**[Hebrews 3:12-19](https://www.biblegateway.com/passage/?search=Hebrews%203%3A12-19&version=ESV)**):
 
@@ -4332,6 +4331,8 @@ The wicked and slothful servant was "unfaithful" to his master, and was afraid a
         may be considered "falling short of the glory of a human". The cat might, for example, bring "gifts" such as slain native birds to the human's doorstep out of "sincere love" for their human, albeit with a limited understanding of what the human truly appreciates.
         
         Now let's say the human believes in actuality that the slaying of native birds is "evil". And so the cat still conducts itself in the "fear of the human", in caution, knowing that there are things that the human hates, and endeavouring to understand their human better, and learn to love their human better.
+        
+        > **[Genesis 9:2](https://www.biblegateway.com/passage/?search=Genesis%209%3A2&version=ESV)** - The fear of you and the dread of you shall be upon every beast of the earth and upon every bird of the heavens, upon everything that creeps on the ground and all the fish of the sea. Into your hand they are delivered. (ESV)
         
         Now let's say the city council has a rule that for any cat that slays this particular native bird, either the owner pays a fine or the cat has to be "put down". But let's say that paying the fine means that the human cannot afford their medicine and so they will die if they pay the fine. But the human exercises perfect agape love to the cat, and pays the fine so the cat can live, and as a consequence the human dies from lack of medicine.
         In that case the cat can only go on trying to love others in the way their human master loved them, but they'll never be able to repay the debt to their human master and they'll never be able to fully grasp the love their human master had shown them. But the human master left instructions to the cat which is their duty, "Love one another as I have loved you." The cat is only able to do this because their human master paid the price.
@@ -9540,6 +9541,8 @@ We must be law-abiding but that means abide in Jesus' commandments (i.e. with fa
 
 > **[I Corinthians 8:3](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A3&version=ESV)** - But **if anyone loves God, he is known by God**. (ESV)
 
+> **[Ephesians 6:24](https://www.biblegateway.com/passage/?search=Ephesians%206%3A24&version=ESV)** - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
+
 > **[I John 4:7](https://www.biblegateway.com/passage/?search=1%20John%204%3A7&version=ESV)** - Beloved, let us love one another, for love is from God, and whoever loves has been born of God and knows God. (ESV)
 
 > **[I John 5:2](https://www.biblegateway.com/passage/?search=1%20John%205%3A2&version=ESV)** - By this we know that we love the children of God, when we love God and obey his commandments. (ESV)
@@ -12488,6 +12491,8 @@ We can have and should have a faith that loves the truth, loves Jesus, even if w
 > **[I John 3:1-11](https://www.biblegateway.com/passage/?search=1%20John%203%3A1-11&version=ESV)** - See what kind of love the Father has given to us, that we should be called children of God; and so we are. The reason why the world does not know us is that it did not know him. Beloved, we are God's children now, and what we will be has not yet appeared; but we know that <ins>when he appears we shall be like him, because we shall see him as he is.</ins> And **everyone who thus hopes in him purifies himself as he is pure**. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; <ins>no one who keeps on sinning has either seen him or *known* him.</ins> Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. (ESV)
 
 > **[I Corinthians 8:3](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A3&version=ESV)** - But **if anyone loves God, he is known by God**. (ESV)
+
+> **[Ephesians 6:24](https://www.biblegateway.com/passage/?search=Ephesians%206%3A24&version=ESV)** - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
 
 "Kairós" is qualitative (i.e. a special occasion) and "xrónos" is quantitative (i.e. a length of time):
 
@@ -16549,6 +16554,8 @@ I truly believe that God tests all people to see if they are law-abiding:
 
 > **[I Corinthians 8:3](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A3&version=ESV)** - But **if anyone loves God, he is known by God**. (ESV)
 
+> **[Ephesians 6:24](https://www.biblegateway.com/passage/?search=Ephesians%206%3A24&version=ESV)** - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
+
 > **[Matthew 22:36-40](https://www.biblegateway.com/passage/?search=Matthew%2022%3A36-40&version=ESV)** - Teacher, which is the great commandment in the Law? And he said to him, **You shall love the Lord your God with all your heart and with all your soul and with all your mind.** This is the great and first commandment. And a second is like it: **You shall love your neighbor as yourself.** <ins>On these two commandments **depend** all the Law and the Prophets.</ins> (ESV)
 
 > **[John 14:21](https://www.biblegateway.com/passage/?search=John%2014%3A21&version=ESV)** - Whoever has my commandments and keeps them, he it is who loves me. And he who loves me will be loved by my Father, and I will love him and manifest myself to him. (ESV)
@@ -20068,7 +20075,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd54c67b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org402ae8c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -25912,7 +25919,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org2bf8e2d).
+I didn't know but it turned out to be the last day of my [sentence](#orgc9fe292).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -33950,6 +33957,10 @@ It does seem as though the original design is that every plant yielding seed on 
 
 > **[Genesis 1:29-30](https://www.biblegateway.com/passage/?search=Genesis%201%3A29-30&version=ESV)** - And God said, Behold, <ins>I have given you every plant yielding seed that is on the face of all the earth, and every tree with seed in its fruit. You shall have them for food.</ins> And to every beast of the earth and to every bird of the heavens and to everything that creeps on the earth, everything that has the breath of life, I have given <ins>every green plant for food.</ins> And it was so. (ESV)
 
+But later on God has given approval to Noah and his sons to eat animals for food albeit not with their blood:
+
+> **[Genesis 9:1-4](https://www.biblegateway.com/passage/?search=Genesis%209%3A1-4&version=ESV)** - And God blessed Noah and his sons and said to them, Be fruitful and multiply and fill the earth. The fear of you and the dread of you shall be upon every beast of the earth and upon every bird of the heavens, upon everything that creeps on the ground and all the fish of the sea. Into your hand they are delivered. Every moving thing that lives shall be food for you. And as I gave you the green plants, I give you everything. But you shall not eat flesh with its life, that is, its blood. (ESV)
+
 I definitely think that "killing animals" for no good reason, say for sport, is not good:
 
 > **[Isaiah 11:6-9](https://www.biblegateway.com/passage/?search=Isaiah%2011%3A6-9&version=ESV)** - The wolf shall dwell with the lamb, and the leopard shall lie down with the young goat, and the calf and the lion and the fattened calf together; and a little child shall lead them. The cow and the bear shall graze; their young shall lie down together; and the lion shall eat straw like the ox. The nursing child shall play over the hole of the cobra, and the weaned child shall put his hand on the adder's den. **They shall not hurt or destroy in all my holy mountain; for the earth shall be full of the knowledge of the LORD as the waters cover the sea**. (ESV)
@@ -34413,6 +34424,10 @@ Knowing God definitely involves not being violent, and it involves saving life.
 It does seem as though the original design is that every plant yielding seed on the face of the earth is for food for humans (rather than humans eating animals), and that the animals would also eat green plants:
 
 > **[Genesis 1:29-30](https://www.biblegateway.com/passage/?search=Genesis%201%3A29-30&version=ESV)** - And God said, Behold, <ins>I have given you every plant yielding seed that is on the face of all the earth, and every tree with seed in its fruit. You shall have them for food.</ins> And to every beast of the earth and to every bird of the heavens and to everything that creeps on the earth, everything that has the breath of life, I have given <ins>every green plant for food.</ins> And it was so. (ESV)
+
+But later on God has given approval to Noah and his sons to eat animals for food albeit not with their blood:
+
+> **[Genesis 9:1-4](https://www.biblegateway.com/passage/?search=Genesis%209%3A1-4&version=ESV)** - And God blessed Noah and his sons and said to them, Be fruitful and multiply and fill the earth. The fear of you and the dread of you shall be upon every beast of the earth and upon every bird of the heavens, upon everything that creeps on the ground and all the fish of the sea. Into your hand they are delivered. Every moving thing that lives shall be food for you. And as I gave you the green plants, I give you everything. But you shall not eat flesh with its life, that is, its blood. (ESV)
 
 
 ### Honesty in pleasing God with works
@@ -47409,6 +47424,8 @@ Those who do not agape love God do not agape love God and God doesn't know them.
 
 > **[I Corinthians 8:3](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A3&version=ESV)** - But **if anyone loves God, he is known by God**. (ESV)
 
+> **[Ephesians 6:24](https://www.biblegateway.com/passage/?search=Ephesians%206%3A24&version=ESV)** - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
+
 > **[I John 4:20](https://www.biblegateway.com/passage/?search=1%20John%204%3A20&version=ESV)** - If anyone says, I love God, and hates his brother, he is a liar; for **he who does not love his brother whom he has seen cannot love God whom he has not seen**. (ESV)
 
 > **[I John 5:1-5](https://www.biblegateway.com/passage/?search=1%20John%205%3A1-5&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and **everyone who loves the Father loves whoever has been born of him. By this we know that we love the children of God, when we love God and obey his commandments. For this is the love of God, that we keep his commandments**. And his commandments are not burdensome. For everyone who has been born of God overcomes the world. And this is the victory that has overcome the world—our faith. Who is it that overcomes the world except the one who believes that Jesus is the Son of God? (ESV)
@@ -50949,7 +50966,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgc99442d)
+See: [33.4.1](#org7c506ac)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -72832,7 +72849,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgc99442d)
+See: [33.4.1](#org7c506ac)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -75488,7 +75505,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org9d8c0b3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgd3df15f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -83833,7 +83850,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org9d8c0b3) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgd3df15f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -85171,7 +85188,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orge1e1c0f)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orge5fe1ea)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -86427,6 +86444,8 @@ We must be keepers of Jesus Christ's law and the faith which we have in Him must
 > **[Matthew 7:23-24](https://www.biblegateway.com/passage/?search=Matthew%207%3A23-24&version=ESV)** - And then will I declare to them, **I never knew you**; depart from me, you workers of lawlessness. Everyone then who hears these words of mine and does them will be like a wise man who built his house on the rock. (ESV)
 
 > **[I Corinthians 8:3](https://www.biblegateway.com/passage/?search=1%20Corinthians%208%3A3&version=ESV)** - But **if anyone loves God, he is known by God**. (ESV)
+
+> **[Ephesians 6:24](https://www.biblegateway.com/passage/?search=Ephesians%206%3A24&version=ESV)** - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
 
 > **[Matthew 22:36-40](https://www.biblegateway.com/passage/?search=Matthew%2022%3A36-40&version=ESV)** - Teacher, which is the great commandment in the Law? And he said to him, **You shall love the Lord your God with all your heart and with all your soul and with all your mind.** This is the great and first commandment. And a second is like it: **You shall love your neighbor as yourself.** <ins>On these two commandments **depend** all the Law and the Prophets.</ins> (ESV)
 
