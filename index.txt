@@ -42744,7 +42744,12 @@ lawlessness. I do not want to work lawlessness. I'm not unwilling to work. But I
   Titus 1:15 - To the pure, all things are pure, but to the defiled and unbelieving, nothing is pure; but both
   their minds and their consciences are defiled. (ESV)
 
-If a person is unwilling to eat veges then why? Could there be any excuse? Some scarring memory, perhaps?
+If a person is is asking for food but unwilling to eat veges when offered then why are they unwilling? Is it even
+right for them to be unwilling to eat veges saying "I don't eat veges" while begging for food?
+
+It after all God's original design that the plants are given to humans to eat as food Genesis 1:29-30.
+
+Could there be any excuse? Some scarring memory, perhaps?
 
 Is it abomination to them? Is what is good abomination to them? Do they not have faith in the truth? A person who
 doubts is condemned if they eat. A person who does not believe the truth is not pure. Yet it's still wrong to one
@@ -144767,11 +144772,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-06 Fri 13:48
+Date: 2026-11-06 Fri 08:08
 
 Author: Shane Mulligan
 
-Created: 2026-11-06 Fri 16:03
+Created: 2026-11-06 Fri 20:09
 
 Validate
 
