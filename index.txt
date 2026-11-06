@@ -42741,6 +42741,21 @@ lawlessness. I do not want to work lawlessness. I'm not unwilling to work. But I
   Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
   whatever does not proceed from faith is sin. (ESV)
 
+  Titus 1:15 - To the pure, all things are pure, but to the defiled and unbelieving, nothing is pure; but both
+  their minds and their consciences are defiled. (ESV)
+
+If a person is unwilling to eat veges then why? Could there be any excuse? Some scarring memory, perhaps?
+
+Is it abomination to them? Is what is good abomination to them? Do they not have faith in the truth? A person who
+doubts is condemned if they eat. A person who does not believe the truth is not pure. Yet it's still wrong to one
+human being under God to force someone else into doing something while they doubt, even if that person is unpure
+and doubting the truth.
+
+But what about my issue regarding AI? The truth is that theft is evil. To not endorse or partake in stealing with
+technology is to keep myself from getting defiled in that way.
+
+With people who don't believe the truth it's OK to speak to them what God's word says about it.
+
 Without commenting on the Bible translation itself, I'm very concerned about the Recovery version's footnotes and
 echo this person's sentiment:
 
@@ -144752,11 +144767,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-06 Fri 10:21
+Date: 2026-11-06 Fri 13:48
 
 Author: Shane Mulligan
 
-Created: 2026-11-06 Fri 10:26
+Created: 2026-11-06 Fri 16:03
 
 Validate
 
