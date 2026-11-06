@@ -75979,10 +75979,27 @@ youtube.com: CHRIST IS ENOUGH - HILLSONG LIVE LYRIC VIDEO | GLORIOUS RUINS 2013
 
 6.3. Obedience - A heart of obedience is the start of faith, and belief is the start of continued obedience
 
-Faith which produces love:
+Faith based on love for the truth which produces love for one-another:
 
   Galatians 5:6 - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith
   working through love. (ESV)
+
+  John 14:15 - If you love me, you will keep my commandments. (ESV)
+
+  John 13:34 - A new commandment I give to you, that you love one another: just as I have loved you, you also are
+  to love one another. (ESV)
+
+  I Thessalonians 3:11-13,5:23 - Now may our God and Father himself, and our Lord Jesus, direct our way to you,
+  and may the Lord make you increase and abound in love for one another and for all, as we do for you, so that he
+  may establish your hearts blameless in holiness before our God and Father, at the coming of our Lord Jesus with
+  all his saints. Now may the God of peace himself sanctify you completely, and may your whole spirit and soul and
+  body be kept blameless at the coming of our Lord Jesus Christ. (ESV)
+
+  I Corinthians 13:13 - So now faith, hope, and love abide, these three; but the greatest (G3173 meizōn; [the]
+  greatest, most preceeding) of these is love. (ESV)
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
 Faith that from a good conscience with God produces Christ's love:
 
@@ -144772,11 +144789,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-06 Fri 08:08
+Date: 2026-11-07 Sat 07:48
 
 Author: Shane Mulligan
 
-Created: 2026-11-06 Fri 20:09
+Created: 2026-11-07 Sat 09:22
 
 Validate
 
