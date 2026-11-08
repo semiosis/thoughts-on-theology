@@ -60153,11 +60153,13 @@ excess to those in need.
 Journal <2026-11-08 Sun 16:31>
 
 God bought me with Jesus' blood. If God wants to keep me in the world rather than take me out of it then He'll
-have to pay the student loan off which belonged to my previous self because He bought it when I got born again on
-2 April 2022. He can't expect me to pay of His student loan on my own when I've been made new, and all things are
-new for me. Of course God is not actually indebted to anyone, yet He still rewards people (Matthew 6:1-4), employs
-people (John 4:32-34) and settles accounts ((Matthew 18:21-35)) with His servants and so it can only be by His
-grace that an economy can even function and a person might have some idea of the ownership of property.
+have to pay the student loan off or factor into His settling of accounts that He is responsible for it. The
+student loan belonged to my previous self because He bought it when I got born again on 2 April 2022 but now it
+belongs to God since He bought me. He can't expect me to pay of His student loan on my own when I've been made
+new, and all things are new for me. Of course God is not actually indebted to anyone, yet He still rewards people
+(Matthew 6:1-4), employs people (John 4:32-34) and settles accounts ((Matthew 18:21-35)) with His servants and so
+it can only be by His grace that an economy can even function and a person might have some idea of the ownership
+of property.
 
   Romans 11:32,35 - For God has consigned all to disobedience, that he may have mercy on all. Or who has given a
   gift to him that he might be repaid? (ESV)
@@ -60192,10 +60194,24 @@ because it belonged to my former self and God has ransommed me" is what I feel m
 Biblical truth about it. If God has truly ransommed me but still has me in this world, then I was made right with
 Him and yet He has me in this world with an apparent debt, yet it is actually the debt which belonged to my
 previous self. So if God wants me to stay in this place then it's His responsibility to take care of now that He
-has bought me. The student loan situation is God's responsibility now to resolve however He wants to do it, but if
-He wants me to pay it then I'm willing, but if He doesn't help me in doiong that then it's not my fault. God knows
-if He even wants it paid, but His plan is to let the world hate me for having it, and that I should carry a cross
-regarding it.
+has bought me.
+
+The student loan situation is God's responsibility now to resolve however He wants to do it, but if He wants me to
+pay it then I'm willing, but if He doesn't help me in doing that then that's not my fault. God knows if He even
+wants it paid back; Perhaps His plan is to let the world hate me for having it, and that I should carry a cross
+regarding it, I don't know. That's the reason for my frustiation, that I don't have answers to questions which I
+want answered and God has both promised the testimony of Jesus Christ from Holy Spirit and instructed to test the
+spirits to see if they come from God before trusting them, and the test is a specific confession/agreement to the
+truth about Jesus Christ. And so walking by faith it would be wrong for me to disregard and disbelieve this
+instruction. And I want God's instruction on issues which have arisen on account of His word such as the issue
+with the student loan.
+
+  I John 4:1-3 - Beloved, do not believe every spirit, but test the spirits to see whether they are from God, for
+  many false prophets have gone out into the world. By this you know the Spirit of God: every spirit that
+  confesses (G3670 homologeó, confesses, acknowledges, agrees) that Jesus Christ has come in the (G1722 en; in
+  [the form of]) flesh is from God, and every spirit that does not confess (G3670 homologeó, confess, acknowledge,
+  agree with) Jesus is not from God. This is the spirit of the antichrist, which you heard was coming and now is
+  in the world already. (ESV)
 
 If someone has a grievance about it then I'd say, take up the issue with God and I'm also also taking up the issue
 with Him because quite frankly I'm sick of being ignored and not given the things I ask for in prayer, but rather
@@ -145017,7 +145033,7 @@ Date: 2026-11-09 Mon 00:09
 
 Author: Shane Mulligan
 
-Created: 2026-11-09 Mon 00:12
+Created: 2026-11-09 Mon 00:50
 
 Validate
 
