@@ -60154,19 +60154,86 @@ Journal <2026-11-08 Sun 16:31>
 
 God bought me with Jesus' blood. If God wants to keep me in the world rather than take me out of it then He'll
 have to pay the student loan off which belonged to my previous self because He bought it when I got born again on
-2 April 2022. He can't expect me to pay of His debt on my own when I've been made new, and all things are new for
-me. I'm not against working as the debt is paid off but if God is not supporting me to find work which I can do by
-faith in to pay it off while working for an employer as serving Christ, which involves walking by faith rather
-than committing sin, then He's handing me his debt to pay off and not helping me to do it. No, God has to make a
-way for this debt to be paid off for His own reputation's sake if he wants to keep me here in this world. The
-circumstances and some situations I have been placed in after being born-again are beyond unreasonable.
+2 April 2022. He can't expect me to pay of His student loan on my own when I've been made new, and all things are
+new for me. Of course God is not actually indebted to anyone, yet He still rewards people (Matthew 6:1-4), employs
+people (John 4:32-34) and settles accounts ((Matthew 18:21-35)) with His servants and so it can only be by His
+grace that an economy can even function and a person might have some idea of the ownership of property.
 
-Also, I grieve being in this situation of being pressured by others to affirm a the worldly identity of my past,
-and being pressured with high frequency to reason about things pertaining to the corpse of my old life has been
-distressing beyond belief. I have felt as though demonic pressure has tried to entangle the corpse of my old life
-to me (trying to entwine the dead and decaying flesh with the new man), in an attempt to nullify salvation, all
-the while having been not provided the testimony which Jesus has promised Holy Spirit would provide. May God
-provide this testimony to fulfill His promise I do hope.
+  Romans 11:32,35 - For God has consigned all to disobedience, that he may have mercy on all. Or who has given a
+  gift to him that he might be repaid? (ESV)
+
+  Matthew 18:21-35 - Then Peter came up and said to him, Lord, how often will my brother sin against me, and I
+  forgive him? As many as seven times? Jesus said to him, I do not say to you seven times, but seventy times
+  seven. Therefore the kingdom of heaven may be compared to a king who wished to settle accounts with his
+  servants. When he began to settle, one was brought to him who owed him ten thousand talents. And since he could
+  not pay, his master ordered him to be sold, with his wife and children and all that he had, and payment to be
+  made. So the servant fell on his knees, imploring him, Have patience with me, and I will pay you everything. And
+  out of pity for him, the master of that servant released him and forgave him the debt. But when that same
+  servant went out, he found one of his fellow servants who owed him a hundred denarii, and seizing him, he began
+  to choke him, saying, Pay what you owe. So his fellow servant fell down and pleaded with him, Have patience with
+  me, and I will pay you. He refused and went and put him in prison until he should pay the debt. When his fellow
+  servants saw what had taken place, they were greatly distressed, and they went and reported to their master all
+  that had taken place. Then his master summoned him and said to him, You wicked servant! I forgave you all that
+  debt because you pleaded with me. And should not you have had mercy on your fellow servant, as I had mercy on
+  you? And in anger his master delivered him to the jailers, until he should pay all his debt. So also my heavenly
+  Father will do to every one of you, if you do not forgive your brother from your heart. (ESV)
+
+The very notion that God loaned anything from anyone is nonsense. Yet God still bought me and upon buying me He
+takes on any perceived debt I might have to others who may not even have any knowledge of God, are oblivious, yet
+still recogise me as someone who owes them money. And God is interesting in saving all people. So a perceived debt
+still might be something God in His grace is interested in clearing, for their sake or perhaps He'd do it for the
+sake of His name. Who knows what He wants to do about it. Who knows what all God's plans are? God doesen't tell me
+everying. I think it would have been a kind thing for God to intruct me clearly on this matter. But as it is, not
+receiving the instruction that I feel I need, but being forced to go forward making decisions regardless,
+sometimes even feeling pressured to walk no longer by faith, I feel as though I need to "go by the Scripture's
+instruction" to the best of my ability (work with what I've got), trust in what I've heard so far and try to
+understand, and the conclusion that it's God's responsibility is what I feel makes sense to me and is the Biblical
+truth about it. If God has truly ransommed me but has me in this world, then I was made right with Him and yet He
+has me in this world with an apparent debt yet it is actually the debt which belonged to my previous self. So if
+God wants me to stay in this place then it's His responsibility to take care of now that He has bought me. The
+student loan situation is God's responsibility now to resolve however He wants to do it, but if He wants me to pay
+it then I'm willing, but if He doesn't help me in doiong that then it's not my fault. God knows if He even wants
+it paid, but His plan is to let the world hate me for having it, and that I should carry a cross regarding it.
+
+If someone has a grievance about it then I'd say, take up the issue with God and I'm also also taking up the issue
+with Him because quite frankly I'm sick of being ignored and not given the things I ask for in prayer, but rather
+being harassed and oppressed by demons. I'm very sick and tired of it.
+
+When I am walking by faith trying to do the will of God, God Himself should be taking care of the rest. That is a
+promise which God has made, and God knows which promises I have been trusting Him for. And one of them is the
+testimony of Jesus Christ from Holy Spirit as a direct word to my heart which I have not yet heard. I do not
+believe that the fullness or even the reality of the testimony of Holy Spirit is merely in the writing of the
+Scripture alone, but rather as a perceived word directly from God to a person's heart.
+
+And I believe that God should be taking care of my needs if I am walking by faith and that I just want to state
+here for posterity that I think the way it works and what makes sense theologically to me this that in redeeming a
+person, and in wanting others to be saved, God takes on reponsibility for settling accounts because He has bought
+the person.
+
+And I have been left also to reason about the entire theology relating to the student loan situation which is
+complicated by the fact that I was born again at a point when I had a loan, and I don't feel comfortable using the
+fact that I was born-again as an excuse to "not pay back the loan if possible". Rather I think that it is right to
+"if possible" pay back the loan. But I just truly believe that if God wants to keep me here but forces me to deal
+with it on my own without His help then that would be very unjust.
+
+  I Corinthians 7:19-21 - For neither circumcision counts for anything nor uncircumcision, but keeping the
+  commandments of God. Each one should remain in the condition in which he was called. Were you a slave when
+  called? Do not be concerned about it. But if you can gain your freedom, avail yourself of the opportunity. (ESV)
+
+I'm not against working to pay off the student loan but if God is not supporting me to find work which I can do by
+faith in order to pay it off while working for an employer as serving Christ, which involves walking by faith
+rather than committing sin, then He's handing me his debt to pay off and not helping me to do it. No, if God wants
+me to remain here and won't take me out of the situation I have been forced into which has felt extremely hostile
+to me walking by the spirit, then God has to make a way for this debt to be paid off for His own reputation's sake
+if he wants to keep me here in this world. The circumstances and some situations I have been placed in after being
+born-again are beyond unreasonable.
+
+Also, I grieve being in this situation of being pressured by others to affirm the worldly identity of my past, and
+being pressured with high frequency to reason about things pertaining to the corpse of my old life has been
+distressing beyond belief. I have felt as though demonic pressure has tried to entangle or keep unnaturally yoked
+the corpse of my old life to me (trying to entwine the dead and decaying flesh with the new man), in an attempt to
+nullify salvation, all the while having been not provided the testimony which Jesus has promised Holy Spirit would
+provide. May God provide this testimony to fulfill His promise I do hope.
 
 I believe that Jesus' blood is more valuable than the New Zealand dollar and that when He bought me with His
 blood, He has assumed the responsibility to deal with such things that really do belong to my former life. Why
@@ -144944,11 +145011,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-08 Sun 16:51
+Date: 2026-11-08 Sun 23:02
 
 Author: Shane Mulligan
 
-Created: 2026-11-08 Sun 17:42
+Created: 2026-11-08 Sun 23:45
 
 Validate
 
