@@ -761,6 +761,8 @@ Going forward walking by faith, hoping in Jesus Christ rather than sin, we shoul
 
 > **[Psalms 18:26](https://www.biblegateway.com/passage/?search=Psalms%2018%3A26&version=ESV)** - with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
 
+> **[I Corinthians 1:4-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A4-8&version=ESV)** - I give thanks to my God always for you because of the grace of God that was given you in Christ Jesus, that in every way you were enriched in him in all speech and all knowledge— even as the testimony about Christ was confirmed among you— so that you are not lacking in any spiritual gift, as you wait for the revealing of **our Lord Jesus Christ, who will sustain you to the end, guiltless in the day of our Lord Jesus Christ.** (ESV)
+
 Following Jesus Christ, a person walks in the light and loves their family in Christ:
 
 > **[John 8:12](https://www.biblegateway.com/passage/?search=John%208%3A12&version=ESV)** - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in darkness, but will have the light of life. (ESV)
@@ -1284,7 +1286,34 @@ Someone who used to do evil with their hands should then from the love of the tr
     
     I'll say this, I do presently believe that what I'm currently doing in responding to your question is the right thing to do. I'm trying to help through sharing what I've sincerely come to believe in God's word. You've got my testimony on that.
 
+That a person's desires are good desires, that they have become well placed upon that which is good, is something that matters for salvation because good desires means having the love for the truth:
+
+> **[Psalms 37:4](https://www.biblegateway.com/passage/?search=Psalms%2037%3A4&version=ESV)** - Delight yourself in the LORD, and he will give you the desires of your heart. (ESV)
+
+> **[II Thessalonians 2:9-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-12&version=ESV)** - The coming of the lawless one is by the activity of Satan with all power and false signs and wonders, and with all wicked deception for those who are perishing, because they refused to love the truth and so be saved. Therefore God sends them a strong delusion, so that they may believe what is false, in order that all may be condemned who did not believe the truth but had pleasure in unrighteousness. (ESV)
+
+A person is sanctified by faith in the truth who is Jesus:
+
+> **[Judges 21:25](https://www.biblegateway.com/passage/?search=Judges%2021%3A25&version=ESV)** - In those days there was no king in Israel. Everyone did what was right in his own eyes. (ESV)
+
+> **[John 1:48-49](https://www.biblegateway.com/passage/?search=John%201%3A48-49&version=ESV)** - Nathanael said to him, How do you know me? Jesus answered him, Before Philip called you, when you were under the fig tree, I saw you. Nathanael answered him, Rabbi, you are the Son of God! You are the King of Israel! (ESV)
+
+> **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)** - But whoever has doubts is condemned if he eats, because the eating is not from faith. For <ins>whatever does not proceed from faith is sin.</ins> (ESV)
+
+> **[John 6:48-51](https://www.biblegateway.com/passage/?search=John%206%3A48-51&version=ESV)** - I am the bread of life. Your fathers ate the manna in the wilderness, and they died. This is the bread that comes down from heaven, so that one may eat of it and not die. I am the living bread that came down from heaven. If anyone eats of this bread, he will live forever. And the bread that I will give for the life of the world is my flesh. (ESV)
+
+> **[John 6:52](https://www.biblegateway.com/passage/?search=John%206%3A52&version=ESV)** - The Jews then disputed among themselves, saying, How can this man give us his flesh to eat? (ESV)
+
+> **[John 6:53-58](https://www.biblegateway.com/passage/?search=John%206%3A53-58&version=ESV)** - So Jesus said to them, Truly, truly, I say to you, unless you eat the flesh of the Son of Man and drink his blood, you have no life in you. Whoever feeds on my flesh and drinks my blood has eternal life, and I will raise him up on the last day. For my flesh is true food, and my blood is true drink. **Whoever feeds on my flesh and drinks my blood abides in me, and I in him.** As the living Father sent me, and I live because of the Father, so whoever feeds on me, he also will live because of me. This is the bread that came down from heaven, not as the fathers ate and died. Whoever feeds on this bread will live forever. (ESV)
+
+Jesus Christ's actual words are in a way a part of Him:
+
+> **[John 6:63](https://www.biblegateway.com/passage/?search=John%206%3A63&version=ESV)** - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are spirit and life. (ESV)
+
+> **[I John 5:10-13](https://www.biblegateway.com/passage/?search=1%20John%205%3A10-13&version=ESV)** - Whoever believes ([G4100 pisteuōn](https://biblehub.com/greek/pisteuo_n_4100.htm) - *is believing (verb)*) in the Son of God has the testimony in himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
 The mind of the old self must be "shaken off" (**[Romans 6:11](https://www.biblegateway.com/passage/?search=Romans%206%3A11&version=ESV)**) and we do that by taking every thought captive for obedience to Jesus Christ (**[II Corinthians 10:5-6](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A5-6&version=ESV)**).
+
 We must set our minds on the things of the Spirit, rather than the things of the flesh; We must walk by the spirit, and this will help us to "put to death the deeds of the body [of sin]" (i.e. stop obeying the flesh):
 
 > **[Galatians 5:16-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A16-18&version=ESV)** - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are opposed to each other, to keep you from doing the things you want to do. But if you are led by the Spirit, you are not under the law. (ESV)
@@ -2648,7 +2677,7 @@ A person who has faith in Jesus, even in His name, must some amount of love for 
     if any man be occupied with these, he hath fulfilled the commandment
     of righteousness; for he that hath love is far from all sin.
 
-I think that God gives a new heart that fears him (**[Ezekiel 36:25-28](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A25-28&version=ESV)**, **[Ezekiel 18:31](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A31&version=ESV)**) **then** circumcises it to love Him with our whole heart (**[Deuteronomy 30:6](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A6&version=ESV)**).
+I think that God gives a new heart that fears him (**[Ezekiel 36:25-28](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A25-28&version=ESV)**, **[Ezekiel 18:31](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A31&version=ESV)**) **then** circumcises it to love Him with our whole heart (**[Deuteronomy 30:6](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A6&version=ESV)**). Such a heart is not deceitful desperately sick.
 
 This heart circumcision involves keeping His commandments (**[Romans 2:29](https://www.biblegateway.com/passage/?search=Romans%202%3A29&version=ESV)**, **[I Corinthians 7:19](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A19&version=ESV)**) but the Christian way. Applying the commandment to honor one's father and mother, for example, is applied the 'Christian way' (**[I Peter 2:15-25](https://www.biblegateway.com/passage/?search=1%20Peter%202%3A15-25&version=ESV)**, **[Matthew 23:9](https://www.biblegateway.com/passage/?search=Matthew%2023%3A9&version=ESV)**, **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)**, [John 19:27](https://www.biblegateway.com/passage/?search=John%2019%3A27&version=ESV)), honoring God (**[John 5:17-29](https://www.biblegateway.com/passage/?search=John%205%3A17-29&version=ESV)**) and our family in Christ. Likewise the commandment to rest on the Sabbath (**[Hebrews 4:8-10](https://www.biblegateway.com/passage/?search=Hebrews%204%3A8-10&version=ESV)**) is applied the 'Christian way'.
 
@@ -2897,6 +2926,10 @@ Jesus instructed His disciples to call no man on earth their "father". This inst
 > **[Matthew 23:9](https://www.biblegateway.com/passage/?search=Matthew%2023%3A9&version=ESV)** - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
 
 > **[Matthew 8:21-22](https://www.biblegateway.com/passage/?search=Matthew%208%3A21-22&version=ESV)** - Another of the disciples said to him, Lord, let me first go and bury my father. And Jesus said to him, Follow me, and leave the dead to bury their own dead. (ESV)
+
+Jesus Christ's mother, brothers and sisters have a new life with a new family (their father is God, their family is each other) and they are by the spirit, hearing the word of God and doing it:
+
+> **[Luke 14:26-33](https://www.biblegateway.com/passage/?search=Luke%2014%3A26-33&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
 
 -   **[youtube.com:  The Bible's Hardest Verse Is About Your Family {@ LostArtRanch }](https://www.youtube.com/watch?v=s3MsA5udnME):** I commented,
     
@@ -3686,6 +3719,10 @@ God looks at the faith, the heart posture to Him, rather than His commendation r
     
     If a person is not a good soil believer (the rocky ground, or the path, or among thorns) then they won't continue on in faith to bearing good fruit (**[Luke 8:11-15](https://www.biblegateway.com/passage/?search=Luke%208%3A11-15&version=ESV)**).
     So then, a person can clearly be a believer for a while (**[Luke 8:11-15](https://www.biblegateway.com/passage/?search=Luke%208%3A11-15&version=ESV)**) and stop being a believer (**[John 8:31-47](https://www.biblegateway.com/passage/?search=John%208%3A31-47&version=ESV)**) but Jesus did instruct such people that if they abide (remain) in His word then they would become set free from sin.
+
+Jesus Christ's mother, brothers and sisters have a new life with a new family (their father is God, their family is each other) and they are by the spirit, hearing the word of God and doing it:
+
+> **[Luke 14:26-33](https://www.biblegateway.com/passage/?search=Luke%2014%3A26-33&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
 
 -   ****[youtube.com: Post from **John 14:6**](https://www.youtube.com/post/UgkxZLki3CszXhLeZXho9L6A2RwfJccnB94Y)**:** I replied to a comment,
     
@@ -4988,6 +5025,8 @@ And God justifies even the ungodly if they have faith in Jesus Christ. But I bel
     > **[I John 3:3](https://www.biblegateway.com/passage/?search=1%20John%203%3A3&version=ESV)** - And everyone who thus hopes in him purifies himself as he is pure. (ESV)
     
     > **[Psalms 18:24-26](https://www.biblegateway.com/passage/?search=Psalms%2018%3A24-26&version=ESV)** - So the LORD has rewarded me according to my righteousness, according to the cleanness of my hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
+    
+    > **[I Corinthians 1:4-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%201%3A4-8&version=ESV)** - I give thanks to my God always for you because of the grace of God that was given you in Christ Jesus, that in every way you were enriched in him in all speech and all knowledge— even as the testimony about Christ was confirmed among you— so that you are not lacking in any spiritual gift, as you wait for the revealing of **our Lord Jesus Christ, who will sustain you to the end, guiltless in the day of our Lord Jesus Christ.** (ESV)
     
     I think that a person can be "in Christ" as the believing seed of the word of God in a person's heart before being born-again and before having entered the Kingdom of God. But that certainly the person who has the seed of the word of God in them must treasure that word in their heart:
     
@@ -8350,6 +8389,10 @@ The way these Scriptures talk about "two in one bed, one will be taken and the o
     -   If a person (A) hates someone else (B) then at least one of those people cannot be in Jesus Christ.
     -   If a person (A) hates someone else (B) who definitely abides in Jesus Christ then the person (A) is not in Jesus Christ.
     -   If a born-again believer in Jesus Christ (A) condemns another person (B) then person (A) will not be seeing person (B) in heaven because there is no condemnation for those who are in Christ Jesus.
+
+Jesus Christ's mother, brothers and sisters have a new life with a new family (their father is God, their family is each other) and they are by the spirit, hearing the word of God and doing it:
+
+> **[Luke 14:26-33](https://www.biblegateway.com/passage/?search=Luke%2014%3A26-33&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
 
 -   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-07-04 Sat 17:32&gt;</span></span>:** > **[Matthew 23:9](https://www.biblegateway.com/passage/?search=Matthew%2023%3A9&version=ESV)** - And call no man your father on earth, for you have one Father, who is in heaven. (ESV)
     
@@ -12166,6 +12209,10 @@ It's real truth-trusting, truth-loving faith in the heart which God commends. An
 > **[I John 3:2-4](https://www.biblegateway.com/passage/?search=1%20John%203%3A2-4&version=ESV)** - Beloved, we are God's children now, and what we will be has not yet appeared; but we know that <ins>when he appears we shall be like him, because we shall see him as he is.</ins> And **everyone who thus hopes in him purifies himself as he is pure**. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. (ESV)
 
 > **[Psalms 18:24-26](https://www.biblegateway.com/passage/?search=Psalms%2018%3A24-26&version=ESV)** - So the LORD has rewarded me according to my righteousness, according to the cleanness of my hands in his sight. **With the merciful you show yourself merciful;** with the blameless man you show yourself blameless; **with the purified you show yourself pure;** and with the crooked you make yourself seem tortuous. (ESV)
+
+Jesus Christ's mother, brothers and sisters have a new life with a new family (their father is God, their family is each other) and they are by the spirit, hearing the word of God and doing it:
+
+> **[Luke 14:26-33](https://www.biblegateway.com/passage/?search=Luke%2014%3A26-33&version=ESV)** - If anyone comes to me and does not hate his own father and mother and wife and children and brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not renounce all that he has cannot be my disciple. (ESV)
 
 We want to be overcome by Christ so that we just do the will of God and can't help but do the will of God. To get there we are instructed to keep Jesus' commandments and resist sin:
 
@@ -20083,7 +20130,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgea7bcaa) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org8a0fd71) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -25960,7 +26007,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org2e2d5c3).
+I didn't know but it turned out to be the last day of my [sentence](#org092355d).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -42037,6 +42084,8 @@ Jesus can see it and Jesus can heal the heart - sprinkled clean as [Hebrews 10:2
 
 > **[Jeremiah 17:9-10](https://www.biblegateway.com/passage/?search=Jeremiah%2017%3A9-10&version=ESV)** - The heart is deceitful above all things, and desperately sick; who can understand it? I the LORD search the heart and test the mind, to give every man according to his ways, according to the fruit of his deeds. (ESV)
 
+think that God gives a new heart that fears him (**[Ezekiel 36:25-28](https://www.biblegateway.com/passage/?search=Ezekiel%2036%3A25-28&version=ESV)**, **[Ezekiel 18:31](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A31&version=ESV)**) **then** circumcises it to love Him with our whole heart (**[Deuteronomy 30:6](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A6&version=ESV)**). Such a heart is not deceitful desperately sick.
+
 When I read [Jeremiah 17:9](https://www.biblegateway.com/passage/?search=Jeremiah%2017%3A9&version=ESV) or [Romans 3:3-20](https://www.biblegateway.com/passage/?search=Romans%203%3A3-20&version=ESV), I only think of it as "falling short", not as "total depravity". I believe people can do good and evil. But without the atonement we can't be made perfect. This is the way I believe that Paul the Apostle also viewed it:
 
 > **[Romans 3:21-26](https://www.biblegateway.com/passage/?search=Romans%203%3A21-26&version=ESV)** - But now the righteousness of God has been manifested apart from [(G5565 chōris)](G5565) the law [(G3551 nomou)](G3551), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus Christ for all who believe. For there is no distinction: for **all have sinned and fall short** of the glory of God, and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that he might be just and the justifier of the one who has faith in Jesus. (ESV)
@@ -51017,7 +51066,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgff7c406)
+See: [33.4.1](#orge4176e5)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -72900,7 +72949,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgff7c406)
+See: [33.4.1](#orge4176e5)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -75556,7 +75605,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org252020e) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org951738d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -83901,7 +83950,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org252020e) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org951738d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -85239,7 +85288,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org8135589)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org2728020)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -90238,7 +90287,7 @@ In this dream a young man came up to me and asked me, "You do believe that we ar
 I said, "Yes."
 Then another young man came up to me, someone seemingly new in the faith.
 And I explained to them,
-"Repentance is turning away from sin. Faith is turning towards God. It's like a sunflower turning away from sin and towards God.
+"Repentance is turning away from sin. Faith is turning towards God. It's like a sunflower turning away from sin and towards God (**[John 6:40](https://www.biblegateway.com/passage/?search=John%206%3A40&version=ESV)**).
 Are you OK with that?" They said yes.
 And in this dream I then called the other first guy a "bud" ("buddy"),
 and he handed me a knife and fork in a paper napkin.

@@ -1512,6 +1512,12 @@ should be producers of good deeds:
   Psalms 18:26 - with the purified you show yourself pure; and with the crooked you make yourself seem tortuous.
   (ESV)
 
+  I Corinthians 1:4-8 - I give thanks to my God always for you because of the grace of God that was given you in
+  Christ Jesus, that in every way you were enriched in him in all speech and all knowledge— even as the testimony
+  about Christ was confirmed among you— so that you are not lacking in any spiritual gift, as you wait for the
+  revealing of our Lord Jesus Christ, who will sustain you to the end, guiltless in the day of our Lord Jesus
+  Christ. (ESV)
+
 Following Jesus Christ, a person walks in the light and loves their family in Christ:
 
   John 8:12 - Again Jesus spoke to them, saying, I am the light of the world. Whoever follows me will not walk in
@@ -2704,10 +2710,57 @@ I'll say this, I do presently believe that what I'm currently doing in respondin
 thing to do. I'm trying to help through sharing what I've sincerely come to believe in God's word. You've got my
 testimony on that.
 
+That a person's desires are good desires, that they have become well placed upon that which is good, is something
+that matters for salvation because good desires means having the love for the truth:
+
+  Psalms 37:4 - Delight yourself in the LORD, and he will give you the desires of your heart. (ESV)
+
+  II Thessalonians 2:9-12 - The coming of the lawless one is by the activity of Satan with all power and false
+  signs and wonders, and with all wicked deception for those who are perishing, because they refused to love the
+  truth and so be saved. Therefore God sends them a strong delusion, so that they may believe what is false, in
+  order that all may be condemned who did not believe the truth but had pleasure in unrighteousness. (ESV)
+
+A person is sanctified by faith in the truth who is Jesus:
+
+  Judges 21:25 - In those days there was no king in Israel. Everyone did what was right in his own eyes. (ESV)
+
+  John 1:48-49 - Nathanael said to him, How do you know me? Jesus answered him, Before Philip called you, when you
+  were under the fig tree, I saw you. Nathanael answered him, Rabbi, you are the Son of God! You are the King of
+  Israel! (ESV)
+
+  Romans 14:23 - But whoever has doubts is condemned if he eats, because the eating is not from faith. For
+  whatever does not proceed from faith is sin. (ESV)
+
+  John 6:48-51 - I am the bread of life. Your fathers ate the manna in the wilderness, and they died. This is the
+  bread that comes down from heaven, so that one may eat of it and not die. I am the living bread that came down
+  from heaven. If anyone eats of this bread, he will live forever. And the bread that I will give for the life of
+  the world is my flesh. (ESV)
+
+  John 6:52 - The Jews then disputed among themselves, saying, How can this man give us his flesh to eat? (ESV)
+
+  John 6:53-58 - So Jesus said to them, Truly, truly, I say to you, unless you eat the flesh of the Son of Man and
+  drink his blood, you have no life in you. Whoever feeds on my flesh and drinks my blood has eternal life, and I
+  will raise him up on the last day. For my flesh is true food, and my blood is true drink. Whoever feeds on my
+  flesh and drinks my blood abides in me, and I in him. As the living Father sent me, and I live because of the
+  Father, so whoever feeds on me, he also will live because of me. This is the bread that came down from heaven,
+  not as the fathers ate and died. Whoever feeds on this bread will live forever. (ESV)
+
+Jesus Christ's actual words are in a way a part of Him:
+
+  John 6:63 - It is the Spirit who gives life; the flesh is of no avail. The words that I have spoken to you are
+  spirit and life. (ESV)
+
+  I John 5:10-13 - Whoever believes (G4100 pisteuōn - is believing (verb)) in the Son of God has the testimony in
+  himself. Whoever does not believe God has made him a liar, because he has not believed in the testimony that God
+  has borne concerning his Son. And this is the testimony, that God gave us eternal life, and this life is in his
+  Son. Whoever has the Son has life; whoever does not have the Son of God does not have life. I write these things
+  to you who believe in the name of the Son of God that you may know that you have eternal life. (ESV)
+
 The mind of the old self must be "shaken off" (Romans 6:11) and we do that by taking every thought captive for
-obedience to Jesus Christ (II Corinthians 10:5-6). We must set our minds on the things of the Spirit, rather than
-the things of the flesh; We must walk by the spirit, and this will help us to "put to death the deeds of the body
-[of sin]" (i.e. stop obeying the flesh):
+obedience to Jesus Christ (II Corinthians 10:5-6).
+
+We must set our minds on the things of the Spirit, rather than the things of the flesh; We must walk by the
+spirit, and this will help us to "put to death the deeds of the body [of sin]" (i.e. stop obeying the flesh):
 
   Galatians 5:16-18 - But I say, walk by the Spirit, and you will not gratify the desires of the flesh. For the
   desires of the flesh are against the Spirit, and the desires of the Spirit are against the flesh, for these are
@@ -5599,7 +5652,7 @@ and toward our neighbor. For if any man be occupied with these, he hath fulfille
 righteousness; for he that hath love is far from all sin.
 
 I think that God gives a new heart that fears him (Ezekiel 36:25-28, Ezekiel 18:31) then circumcises it to love
-Him with our whole heart (Deuteronomy 30:6).
+Him with our whole heart (Deuteronomy 30:6). Such a heart is not deceitful desperately sick.
 
 This heart circumcision involves keeping His commandments (Romans 2:29, I Corinthians 7:19) but the Christian way.
 Applying the commandment to honor one's father and mother, for example, is applied the 'Christian way' (I Peter
@@ -6055,6 +6108,19 @@ God said that Jesus is His Son who He is well pleased with:
 
   Matthew 8:21-22 - Another of the disciples said to him, Lord, let me first go and bury my father. And Jesus said
   to him, Follow me, and leave the dead to bury their own dead. (ESV)
+
+Jesus Christ's mother, brothers and sisters have a new life with a new family (their father is God, their family
+is each other) and they are by the spirit, hearing the word of God and doing it:
+
+  Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
+  and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down
+  and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not
+  able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or
+  what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able
+  with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a
+  great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not
+  renounce all that he has cannot be my disciple. (ESV)
 
 youtube.com: The Bible's Hardest Verse Is About Your Family {@ LostArtRanch }
 
@@ -7529,6 +7595,19 @@ If a person is not a good soil believer (the rocky ground, or the path, or among
 on in faith to bearing good fruit (Luke 8:11-15). So then, a person can clearly be a believer for a while (Luke
 8:11-15) and stop being a believer (John 8:31-47) but Jesus did instruct such people that if they abide (remain)
 in His word then they would become set free from sin.
+
+Jesus Christ's mother, brothers and sisters have a new life with a new family (their father is God, their family
+is each other) and they are by the spirit, hearing the word of God and doing it:
+
+  Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
+  and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down
+  and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not
+  able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or
+  what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able
+  with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a
+  great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not
+  renounce all that he has cannot be my disciple. (ESV)
 
 youtube.com: Post from John 14:6
 
@@ -10335,6 +10414,12 @@ Christ Jesus:
   Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
   hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
   blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
+
+  I Corinthians 1:4-8 - I give thanks to my God always for you because of the grace of God that was given you in
+  Christ Jesus, that in every way you were enriched in him in all speech and all knowledge— even as the testimony
+  about Christ was confirmed among you— so that you are not lacking in any spiritual gift, as you wait for the
+  revealing of our Lord Jesus Christ, who will sustain you to the end, guiltless in the day of our Lord Jesus
+  Christ. (ESV)
 
 I think that a person can be "in Christ" as the believing seed of the word of God in a person's heart before being
 born-again and before having entered the Kingdom of God. But that certainly the person who has the seed of the
@@ -16552,6 +16637,19 @@ but I hope it helps to show that in Christ Jesus, no-one condemns one-another an
 Jesus Christ.
 • If a born-again believer in Jesus Christ (A) condemns another person (B) then person (A) will not be seeing
 person (B) in heaven because there is no condemnation for those who are in Christ Jesus.
+
+Jesus Christ's mother, brothers and sisters have a new life with a new family (their father is God, their family
+is each other) and they are by the spirit, hearing the word of God and doing it:
+
+  Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
+  and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down
+  and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not
+  able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or
+  what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able
+  with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a
+  great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not
+  renounce all that he has cannot be my disciple. (ESV)
 
 Journal <2026-07-04 Sat 17:32>
 
@@ -23379,6 +23477,19 @@ ourselves as He is pure:
   Psalms 18:24-26 - So the LORD has rewarded me according to my righteousness, according to the cleanness of my
   hands in his sight. With the merciful you show yourself merciful; with the blameless man you show yourself
   blameless; with the purified you show yourself pure; and with the crooked you make yourself seem tortuous. (ESV)
+
+Jesus Christ's mother, brothers and sisters have a new life with a new family (their father is God, their family
+is each other) and they are by the spirit, hearing the word of God and doing it:
+
+  Luke 14:26-33 - If anyone comes to me and does not hate his own father and mother and wife and children and
+  brothers and sisters, yes, and even his own life, he cannot be my disciple. Whoever does not bear his own cross
+  and come after me cannot be my disciple. For which of you, desiring to build a tower, does not first sit down
+  and count the cost, whether he has enough to complete it? Otherwise, when he has laid a foundation and is not
+  able to finish, all who see it begin to mock him, saying, This man began to build and was not able to finish. Or
+  what king, going out to encounter another king in war, will not sit down first and deliberate whether he is able
+  with ten thousand to meet him who comes against him with twenty thousand? And if not, while the other is yet a
+  great way off, he sends a delegation and asks for terms of peace. So therefore, any one of you who does not
+  renounce all that he has cannot be my disciple. (ESV)
 
 We want to be overcome by Christ so that we just do the will of God and can't help but do the will of God. To get
 there we are instructed to keep Jesus' commandments and resist sin:
@@ -71356,6 +71467,9 @@ Jesus can see it and Jesus can heal the heart - sprinkled clean as Hebrews 10:22
   Jeremiah 17:9-10 - The heart is deceitful above all things, and desperately sick; who can understand it? I the
   LORD search the heart and test the mind, to give every man according to his ways, according to the fruit of his
   deeds. (ESV)
+
+think that God gives a new heart that fears him (Ezekiel 36:25-28, Ezekiel 18:31) then circumcises it to love Him
+with our whole heart (Deuteronomy 30:6). Such a heart is not deceitful desperately sick.
 
 When I read Jeremiah 17:9 or Romans 3:3-20, I only think of it as "falling short", not as "total depravity". I
 believe people can do good and evil. But without the atonement we can't be made perfect. This is the way I believe
@@ -144498,9 +144612,9 @@ today.
 Here's a dream worth recording which I had this morning. In this dream a young man came up to me and asked me,
 "You do believe that we are saved not by works, right?" (worded along these lines) I said, "Yes." Then another
 young man came up to me, someone seemingly new in the faith. And I explained to them, "Repentance is turning away
-from sin. Faith is turning towards God. It's like a sunflower turning away from sin and towards God. Are you OK
-with that?" They said yes. And in this dream I then called the other first guy a "bud" ("buddy"), and he handed me
-a knife and fork in a paper napkin.
+from sin. Faith is turning towards God. It's like a sunflower turning away from sin and towards God (John 6:40).
+Are you OK with that?" They said yes. And in this dream I then called the other first guy a "bud" ("buddy"), and
+he handed me a knife and fork in a paper napkin.
 
 And I woke up and I thought, what could this mean? Perhaps it's something to do with the marriage supper of the
 Lamb. However, later in the day today, I am still wondering if this dream is really from God, and I'm still
@@ -144789,11 +144903,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-07 Sat 07:48
+Date: 2026-11-08 Sun 12:47
 
 Author: Shane Mulligan
 
-Created: 2026-11-07 Sat 09:22
+Created: 2026-11-08 Sun 12:50
 
 Validate
 
