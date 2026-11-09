@@ -8549,6 +8549,243 @@ Christ. If we live by the spirit, then let us walk by the spirit:
   other; as the Lord has forgiven you, so you also must forgive. And above all these put on love, which binds
   everything together in perfect harmony. (ESV)
 
+Journal <2026-11-09 Mon 12:44>
+
+Being been born-again, it's important to not hold others accountable for debt particularly for deeds done up to
+that point. What about going forward? As a person who's debt has been cancelled, it's important to not bear
+grudges and hold people accountable to perceived debts with others had owed up to that point. Also, as Polycarp
+advises, we should not be hasty in judgement.
+
+To forgive others as have been forgiven by God does not mean that its OK for others to continue practicing sin and
+the person who is born-again (person A) must accept/tolerate it, but I do believe that for someone who's debt has
+been cancelled (person A), then they cannot hold anyone else (person b), even the vilest sinner, accountable for
+deeds they (person B) has done before the person (person A) was born-again because all things are new from person
+A's perspective and person A believes their debt has been wiped out. Also, just because a mere human (person A)
+bears no grudge another mere human (person B), that does not mean that God has necessarily forgiven person B
+although for some debts I think it works that way (John 20:22-23).
+
+  Mark 11:25-26 - And whenever you stand praying, forgive, if you have anything against anyone, so that your
+  Father also who is in heaven may forgive you your trespasses. (ESV)
+
+  John 20:22-23 - And when he had said this, he breathed on them and said to them, Receive the Holy Spirit. If you
+  forgive the sins of anyone, they are forgiven; if you withhold forgiveness from anyone, it is withheld. (ESV)
+
+Also, God's forgiveness goes to those who repent.
+
+Mark 1:4 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek      Translation    Grammar
+─────────────────────────────────────────────────────────────────────
+G1096         egeneto          ἐγένετο     came           V-AIM-3S
+G2491         Iōannēs          Ἰωάννης* ,  John           N-NMS
+G3588         ho               ὁ           -              Art-NMS
+G907          baptizōn         βαπτίζων    baptizing      V-PPA-NMS
+G1722         en               ἐν          in             Prep
+G3588         tē               τῇ          the            Art-DFS
+G2048         erēmō            ἐρήμῳ ,     wilderness     Adj-DFS
+G2532         kai              [καὶ]       and            Conj
+G2784         kēryssōn         κηρύσσων    proclaiming    V-PPA-NMS
+G908          baptisma         βάπτισμα    [a] baptism    N-ANS
+G3341         metanoias        μετανοίας   of repentance  N-GFS
+G1519         eis              εἰς         for            Prep
+G859          aphesin          ἄφεσιν      forgiveness    N-AFS
+G266          hamartiōn        ἁμαρτιῶν .  of sins        N-GFP
+─────────────────────────────────────────────────────────────────────
+
+Luke 3:3 (Interlinear)
+
+──────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek        Translation       Grammar
+──────────────────────────────────────────────────────────────────────────
+G2532         kai              καὶ         And                 Conj
+G2064         ēlthen           ἦλθεν       he went             V-AIA-3S
+G1519         eis              εἰς         into                Prep
+G3956         pasan            πᾶσαν       all                 Adj-AFS
+G3588         tēn              τὴν         the                 Art-AFS
+G4066         perichōron       περίχωρον   surrounding region  Adj-AFS
+G3588         tou              τοῦ         the                 Art-GMS
+G2446         Iordanou         Ἰορδάνου ,  Jordan              N-GMS
+G2784         kēryssōn         κηρύσσων    proclaiming         V-PPA-NMS
+G908          baptisma         βάπτισμα    a baptism           N-ANS
+G3341         metanoias        μετανοίας   of repentance       N-GFS
+G1519         eis              εἰς         for                 Prep
+G859          aphesin          ἄφεσιν      forgiveness         N-AFS
+G266          hamartiōn        ἁμαρτιῶν ;  of sins             N-GFP
+──────────────────────────────────────────────────────────────────────────
+
+Luke 17:3 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek       Translation       Grammar
+───────────────────────────────────────────────────────────────────────────
+G4337         prosechete       προσέχετε    Take heed         V-PMA-2P
+G1438         heautois         ἑαυτοῖς :    to yourselves     RefPro-DM3P
+G1437         ean              ἐὰν          if                Conj
+G264          hamartē          ἁμάρτῃ       should sin        V-ASA-3S
+G3588         ho               ὁ            the               Art-NMS
+G80           adelphos         ἀδελφός      brother           N-NMS
+G4771         sou              σου ,        of you            PPro-G2S
+G2008         epitimēson       ἐπιτίμησον   rebuke            V-AMA-2S
+G846          autō             αὐτῷ ;       him               PPro-DM3S
+G2532         kai              καὶ          and               Conj
+G1437         ean              ἐὰν          if                Conj
+G3340         metanoēsē        μετανοήσῃ ,  he should repent  V-ASA-3S
+G863          aphes            ἄφες         forgive           V-AMA-2S
+G846          autō             αὐτῷ .       him               PPro-DM3S
+───────────────────────────────────────────────────────────────────────────
+
+Luke 17:4 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek      Translation      Grammar
+───────────────────────────────────────────────────────────────────────
+G2532         kai              καὶ        And               Conj
+G1437         ean              ἐὰν        if                Conj
+G2034         heptakis         ἑπτάκις    seven times       Adv
+G3588         tēs              τῆς        in the            Art-GFS
+G2250         hēmeras          ἡμέρας     day               N-GFS
+G264          hamartēsē        ἁμαρτήσῃ   he should sin     V-ASA-3S
+G1519         eis              εἰς        against           Prep
+G4771         se               σὲ ,       you               PPro-A2S
+G2532         kai              καὶ        and               Conj
+G2034         heptakis         ἑπτάκις    seven times       Adv
+G1994         epistrepsē       ἐπιστρέψῃ  should return     V-ASA-3S
+G4314         pros             πρὸς       to                Prep
+G4771         se               σὲ ,       you               PPro-A2S
+G3004         legōn            λέγων      saying            V-PPA-NMS
+G3340         Metanoō          Μετανοῶ ,  I repent          V-PIA-1S
+G863          aphēseis         ἀφήσεις    you will forgive  V-FIA-2S
+G846          autō             αὐτῷ .     him               PPro-DM3S
+───────────────────────────────────────────────────────────────────────
+
+Luke 24:47 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration      Greek        Translation      Grammar
+───────────────────────────────────────────────────────────────────────────
+G2532         kai              καὶ            and               Conj
+G2784         kērychthēnai     κηρυχθῆναι     to be proclaimed  V-ANP
+G1909         epi              ἐπὶ            in                Prep
+G3588         tō               τῷ             the               Art-DNS
+G3686         onomati          ὀνόματι        name              N-DNS
+G846          autou            αὐτοῦ          of him            PPro-GM3S
+G3341         metanoian        μετάνοιαν      repentance        N-AFS
+G1519         eis              εἰς            and               Prep
+G859          aphesin          ἄφεσιν         forgiveness       N-AFS
+G266          hamartiōn        ἁμαρτιῶν ,     of sins           N-GFP
+G1519         eis              εἰς            to                Prep
+G3956         panta            πάντα          all               Adj-ANP
+G3588         ta               τὰ             -                 Art-ANP
+G1484         ethnē            ἔθνη ,         nations           N-ANP
+G756          arxamenoi        ἀρξάμενοι      having begun      V-APM-NMP
+G575          apo              ἀπὸ            at                Prep
+G2419         Ierousalēm       Ἰερουσαλήμ* .  Jerusalem         N-GFS
+───────────────────────────────────────────────────────────────────────────
+
+Acts 2:38 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration      Greek        Translation      Grammar
+───────────────────────────────────────────────────────────────────────────
+G4074         Petros           Πέτρος         Peter             N-NMS
+G1161         de               δὲ             moreover          Conj
+G4314         pros             πρὸς           to                Prep
+G846          autous           αὐτούς ,       them              PPro-AM3P
+G3340         Metanoēsate      Μετανοήσατε ,  Repent            V-AMA-2P
+G5346         phēsin           [φησίν] ,      says              V-PIA-3S
+G2532         kai              καὶ            and               Conj
+G907          baptisthētō      βαπτισθήτω ,   be baptized       V-AMP-3S
+G1538         hekastos         ἕκαστος        every one         Adj-NMS
+G4771         hymōn            ὑμῶν ,         of you            PPro-G2P
+G1909         epi              ἐπὶ            in                Prep
+G3588         tō               τῷ             the               Art-DNS
+G3686         onomati          ὀνόματι        name              N-DNS
+G2424         Iēsou            Ἰησοῦ          of Jesus          N-GMS
+G5547         Christou         Χριστοῦ ,      Christ            N-GMS
+G1519         eis              εἰς            for the           Prep
+G859          aphesin          ἄφεσιν         forgiveness       N-AFS
+G3588         tōn              τῶν            -                 Art-GFP
+G266          hamartiōn        ἁμαρτιῶν       of sins           N-GFP
+G4771         hymōn            ὑμῶν ,         your              PPro-G2P
+G2532         kai              καὶ            and               Conj
+G2983         lēmpsesthe       λήμψεσθε       you will receive  V-FIM-2P
+G3588         tēn              τὴν            the               Art-AFS
+G1431         dōrean           δωρεὰν         gift              N-AFS
+G3588         tou              τοῦ            of the            Art-GNS
+G40           Hagiou           Ἁγίου          Holy              Adj-GNS
+G4151         Pneumatos        Πνεύματος .    Spirit            N-GNS
+───────────────────────────────────────────────────────────────────────────
+
+Acts 5:31 (Interlinear)
+
+───────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek     Translation   Grammar
+───────────────────────────────────────────────────────────────────
+G3778         touton           τοῦτον      Him          DPro-AMS
+G3588         ho               ὁ           -            Art-NMS
+G2316         Theos            Θεὸς ,      God          N-NMS
+G747          Archēgon         Ἀρχηγὸν     Prince       N-AMS
+G2532         kai              καὶ         and          Conj
+G4990         Sōtēra           Σωτῆρα ,    Savior       N-AMS
+G5312         hypsōsen         ὕψωσεν ,    exalted      V-AIA-3S
+G3588         tē               τῇ          by the       Art-DFS
+G1188         dexia            δεξιᾷ       right hand   Adj-DFS
+G846          autou            αὐτοῦ ,     of him       PPro-GM3S
+G3588         tou              τοῦ         -            Art-GNS
+G1325         dounai           δοῦναι      to give      V-ANA
+G3341         metanoian        μετάνοιαν   repentance   N-AFS
+G3588         tō               τῷ          -            Art-DMS
+G2474         Israēl           Ἰσραὴλ ,    to Israel    N-DMS
+G2532         kai              καὶ         and          Conj
+G859          aphesin          ἄφεσιν      forgiveness  N-AFS
+G266          hamartiōn        ἁμαρτιῶν .  of sins      N-GFP
+───────────────────────────────────────────────────────────────────
+
+Acts 8:22 (Interlinear)
+
+────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek        Translation     Grammar
+────────────────────────────────────────────────────────────────────────
+G3340         metanoēson       μετανόησον  Repent             V-AMA-2S
+G3767         oun              οὖν         therefore          Conj
+G575          apo              ἀπὸ         of                 Prep
+G3588         tēs              τῆς         the                Art-GFS
+G2549         kakias           κακίας      wickedness         N-GFS
+G4771         sou              σου         of yours           PPro-G2S
+G3778         tautēs           ταύτης ,    this               DPro-GFS
+G2532         kai              καὶ         and                Conj
+G1189         deēthēti         δεήθητι     pray earnestly to  V-AMP-2S
+G3588         tou              τοῦ         the                Art-GMS
+G2962         Kyriou           Κυρίου ,    Lord               N-GMS
+G1487         ei               εἰ          if                 Conj
+G687          ara              ἄρα         indeed             Conj
+G863          aphethēsetai     ἀφεθήσεταί  will be forgiven   V-FIP-3S
+G4771         soi              σοι         you                PPro-D2S
+G3588         hē               ἡ           the                Art-NFS
+G1963         epinoia          ἐπίνοια     intent             N-NFS
+G3588         tēs              τῆς         of the             Art-GFS
+G2588         kardias          καρδίας     heart              N-GFS
+G4771         sou              σου ;       of you             PPro-G2S
+────────────────────────────────────────────────────────────────────────
+
+  Matthew 18:15 - If your brother sins against you, go and tell him his fault, between you and him alone. If he
+  listens to you, you have gained your brother. (ESV)
+
+  Luke 17:3-4 - Pay attention to yourselves! If your brother sins, rebuke him, and if he repents, forgive him, and
+  if he sins against you seven times in the day, and turns to you seven times, saying, I repent, you must forgive
+  him. (ESV)
+
+The Lord Jesus Christ forgives those who are believing on Him from a love for the truth (i.e. they have repented
+from a love of evil and towards the love of the truth), and that is the way we need to forgive others:
+
+  Colossians 3:13 - bearing with one another and, if one has a complaint against another, forgiving each other; as
+  the Lord has forgiven you, so you also must forgive. (ESV)
+
+  Mark 11:24-25 - Therefore I tell you, whatever you ask in prayer, believe that you have received it, and it will
+  be yours. And whenever you stand praying, forgive, if you have anything against anyone, so that your Father also
+  who is in heaven may forgive you your trespasses. (ESV)
+
 I still think that to say, "When I got born-again, I was born of God," or even to say of myself right now that
 "I'm born of God" would be at worst "self-commending" and at best "testifying of myself" (John 5:31) and not a
 credible witness if I testify alone of myself (as what really matters is what God thinks). Though I do believe
@@ -145029,11 +145266,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-09 Mon 00:09
+Date: 2026-11-09 Mon 01:53
 
 Author: Shane Mulligan
 
-Created: 2026-11-09 Mon 00:50
+Created: 2026-11-09 Mon 14:20
 
 Validate
 
