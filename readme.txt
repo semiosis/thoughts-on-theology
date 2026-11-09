@@ -8553,7 +8553,7 @@ Journal <2026-11-09 Mon 12:44>
 
 Being been born-again, it's important to not hold others accountable for debt particularly for deeds done up to
 that point. What about going forward? As a person who's debt has been cancelled, it's important to not bear
-grudges and hold people accountable to perceived debts with others had owed up to that point. Also, as Polycarp
+grudges and hold people accountable to perlceived debts with others had owed up to that point. Also, as Polycarp
 advises, we should not be hasty in judgement.
 
 To forgive others as have been forgiven by God does not mean that its OK for others to continue practicing sin and
@@ -145270,7 +145270,7 @@ Date: 2026-11-09 Mon 01:53
 
 Author: Shane Mulligan
 
-Created: 2026-11-09 Mon 14:20
+Created: 2026-11-09 Mon 15:43
 
 Validate
 
