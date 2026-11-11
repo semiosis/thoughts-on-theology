@@ -1227,6 +1227,30 @@ from His Father "do" what He commands. So there is a knowing that comes not just
   I John 2:3-4 - And by this we know that we have come to know him, if we keep his commandments. Whoever says I
   know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
+To properly understand God's word (which is important) I think involves actually heeding, applying, doing the word
+and not merely hearing:
+
+  Luke 8:18 - Take care then how you hear, for to the one who has, more will be given, and from the one who has
+  not, even what he thinks that he has will be taken away. (ESV) l#+END[QUOTE]
+
+  #+BEGIN[QUOTE] Matthew 13:23 - As for what was sown on good soil, this is the one who hears the word and
+  understands it. He indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another
+  thirty. (ESV)
+
+  James 1:22-24 - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer
+  of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at
+  himself and goes away and at once forgets what he was like. (ESV)
+
+  Matthew 13:9-15 - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to
+  them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven,
+  but to them it has not been given. For to the one who has, more will be given, and he will have an abundance,
+  but from the one who has not, even what he has will be taken away. This is why I speak to them in parables,
+  because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the
+  prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see
+  but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their
+  eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their
+  heart and turn, and I would heal them. (ESV)
+
 A person who has been forgiven much, loves much. So somebody who is forgiven by Jesus will love Jesus, and a
 person who loves Jesus will be "law of faith"-abiding (John 14:15, Romans 3:27, I Corinthians 9:21, Matthew
 13:41):
@@ -1379,6 +1403,14 @@ God disciplines us in advance so that we will not be condemned along with the wo
 I Corinthians 11:32 (Interlinear)
 Being judged (G2919 krinomenoi) however by the Lord we are disciplined (G3811 paideuometha) that not with the
 world we should be condemned (G2632 katakrithōmen)
+
+It's important to receive correction from God's discipline:
+
+  Leviticus 26:23-24 - And if by this discipline you are not turned to me but walk contrary to me, then I also
+  will walk contrary to you, and I myself will strike you sevenfold for your sins. (ESV)
+
+  Proverbs 10:17 - Whoever heeds instruction is on the path to life, but he who rejects reproof leads others
+  astray. (ESV)
 
 So it's faith in Jesus that produces the fruit of the Spirit which there is no law against. This faith frees us
 from committing sin and thus also from condemnation by the law:
@@ -7147,7 +7179,7 @@ because they're holding fast to the actual truth:
 
   Proverbs 12:3 - No one is established by wickedness, but the root of the righteous will never be moved. (ESV)
 
-So as we go on as believers, we must hold fast to what is true as we learn from God:
+So as we go on as believers, we must hold fast to what is true (retaining the word) as we learn from God:
 
   Philippians 3:12-21 - Not that I have already obtained this or am already perfect, but I press on to make it my
   own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one
@@ -7169,6 +7201,9 @@ So as we go on as believers, we must hold fast to what is true as we learn from 
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
 
+  Luke 8:18 - Take care then how you hear, for to the one who has, more will be given, and from the one who has
+  not, even what he thinks that he has will be taken away. (ESV)
+
   Matthew 13:9-15 - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to
   them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven,
   but to them it has not been given. For to the one who has, more will be given, and he will have an abundance,
@@ -7181,6 +7216,29 @@ So as we go on as believers, we must hold fast to what is true as we learn from 
 
   Hebrews 2:1 - Therefore we must pay much closer attention to what we have heard, lest we drift away from it.
   (ESV)
+
+To properly understand God's word (which is important) I think involves actually heeding, applying, doing the word
+and not merely hearing:
+
+  Luke 8:18 - Take care then how you hear, for to the one who has, more will be given, and from the one who has
+  not, even what he thinks that he has will be taken away. (ESV)
+
+  Matthew 13:23 - As for what was sown on good soil, this is the one who hears the word and understands it. He
+  indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
+
+  James 1:22-24 - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer
+  of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at
+  himself and goes away and at once forgets what he was like. (ESV)
+
+  Matthew 13:9-15 - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to
+  them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven,
+  but to them it has not been given. For to the one who has, more will be given, and he will have an abundance,
+  but from the one who has not, even what he has will be taken away. This is why I speak to them in parables,
+  because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the
+  prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see
+  but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their
+  eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their
+  heart and turn, and I would heal them. (ESV)
 
 Jesus has died for our sins. Receiving this salvation is a matter of having faith in Jesus Christ, abiding in His
 commandments:
@@ -24582,8 +24640,8 @@ put His word into action:
   God. (ESV)
 
 The disciples here could understand Jesus' parables, but those people of the crowd who could not understand the
-parables could not understand. The more we believe and understand, the more will be able to believe and
-understand. So we need to hold fast God's word, retain it, and persevere with it and rebuke and refute those who
+parables could not understand. The more we believe and understand, the more will be able to believe and understand
+(Luke 8:18). So we need to hold fast God's word, retain it, and persevere with it and rebuke and refute those who
 contradict it:
 
   Matthew 13:9-15 - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to
@@ -57992,7 +58050,7 @@ And following Jesus' commandments we will love one another:
 
 3.25. Assurance of salvation
 
-For full assurance, do all the will of God for you (I Thessalonians 5:18).
+For full assurance, do all the will of God for you (Colossians 4:12).
 
 The will of God:
 
@@ -145266,11 +145324,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-09 Mon 01:53
+Date: <2026-11-09 Mon 23:10
 
 Author: Shane Mulligan
 
-Created: 2026-11-09 Mon 15:43
+Created: 2026-11-11 Wed 23:13
 
 Validate
 

@@ -611,6 +611,18 @@ When Jesus says that He has made "known", it's implied that the people that Jesu
 
 > **[I John 2:3-4](https://www.biblegateway.com/passage/?search=1%20John%202%3A3-4&version=ESV)** - And <ins>by this we know that we have come to</ins> **know him**, <ins>if we</ins> **keep his commandments**. Whoever says I know him but does not keep his commandments is a liar, and the truth is not in him, (ESV)
 
+To properly understand God's word (which is important) I think involves actually heeding, applying, doing the word and not merely hearing:
+
+>   **[Luke 8:18](https://www.biblegateway.com/passage/?search=Luke%208%3A18&version=ESV)** - Take care then how you hear, for to the one who has, more will be given, and from the one who has not, even what he thinks that he has will be taken away. (ESV)
+> l#+END<sub>QUOTE</sub>
+> 
+> \#+BEGIN<sub>QUOTE</sub>
+>   **[Matthew 13:23](https://www.biblegateway.com/passage/?search=Matthew%2013%3A23&version=ESV)** - As for what was sown on good soil, this is the one who hears the word and understands it. He indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
+
+> **[James 1:22-24](https://www.biblegateway.com/passage/?search=James%201%3A22-24&version=ESV)** - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. (ESV)
+
+> **[Matthew 13:9-15](https://www.biblegateway.com/passage/?search=Matthew%2013%3A9-15&version=ESV)** - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven, but to them it has not been given. For **to the one who has, more will be given, and he will have an abundance, but from the one who has not, even what he has will be taken away.** This is why I speak to them in parables, because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their heart and turn, and I would heal them. (ESV)
+
 A person who has been forgiven much, loves much. So somebody who is forgiven by Jesus will love Jesus, and a person who loves Jesus will be "law of faith"-abiding (**[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)**, **[Romans 3:27](https://www.biblegateway.com/passage/?search=Romans%203%3A27&version=ESV)**, **[I Corinthians 9:21](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A21&version=ESV)**, **[Matthew 13:41](https://www.biblegateway.com/passage/?search=Matthew%2013%3A41&version=ESV)**):
 
 > **[Luke 7:40-50](https://www.biblegateway.com/passage/?search=Luke%207%3A40-50&version=ESV)** - And Jesus answering said to him, Simon, I have something to say to you. And he answered, Say it, Teacher. A certain moneylender had two debtors. One owed five hundred denarii, and the other fifty. When they could not pay, he cancelled the debt of both. Now which of them will love him more? Simon answered, The one, I suppose, for whom he cancelled the larger debt. And he said to him, You have judged rightly. Then turning toward the woman he said to Simon, Do you see this woman? I entered your house; you gave me no water for my feet, but she has wet my feet with her tears and wiped them with her hair. You gave me no kiss, but from the time I came in she has not ceased to kiss my feet. You did not anoint my head with oil, but she has anointed my feet with ointment. Therefore I tell you, her sins, which are many, are forgiven—for she loved much. But he who is forgiven little, loves little. And he said to her, Your sins are forgiven. Then those who were at table with him began to say among themselves, Who is this, who even forgives sins? And he said to the woman, Your faith has saved you; go in peace. (ESV)
@@ -693,6 +705,12 @@ God disciplines every son He receives:
 God disciplines us in advance so that we will not be condemned along with the world:
 
 -   **[I Corinthians 11:32 (Interlinear)](https://biblehub.com/interlinear/1_corinthians/11-32.htm):** Being judged [(G2919 krinomenoi)](G2919) however by the Lord we are disciplined [(G3811 paideuometha)](G3811) that not with the world we should be condemned [(G2632 katakrithōmen)](G2632)
+
+It's important to receive correction from God's discipline:
+
+> **[Leviticus 26:23-24](https://www.biblegateway.com/passage/?search=Leviticus%2026%3A23-24&version=ESV)** - And if by this discipline you are not turned to me but walk contrary to me, then I also will walk contrary to you, and I myself will strike you sevenfold for your sins. (ESV)
+
+> **[Proverbs 10:17](https://www.biblegateway.com/passage/?search=Proverbs%2010%3A17&version=ESV)** - Whoever heeds instruction is on the path to life, but he who rejects reproof leads others astray. (ESV)
 
 So it's faith in Jesus that produces the fruit of the Spirit which there is no law against. This faith frees us from committing sin and thus also from condemnation by the law:
 
@@ -3469,7 +3487,7 @@ We need to continue to hold fast to the truth of the Gospel. It's important to c
 
 > **[Proverbs 12:3](https://www.biblegateway.com/passage/?search=Proverbs%2012%3A3&version=ESV)** - No one is established by wickedness, but the root of the righteous will never be moved. (ESV)
 
-So as we go on as believers, we must hold fast to what is true as we learn from God:
+So as we go on as believers, we must hold fast to what is true (retaining the word) as we learn from God:
 
 > **[Philippians 3:12-21](https://www.biblegateway.com/passage/?search=Philippians%203%3A12-21&version=ESV)** - Not that I have already obtained this or am already perfect, but I press on to make it my own, because Christ Jesus has made me his own. Brothers, I do not consider that I have made it my own. But one thing I do: forgetting what lies behind and straining forward to what lies ahead, I press on toward the goal for the prize of the upward call of God in Christ Jesus. Let those of us who are mature think this way, and if in anything you think otherwise, God will reveal that also to you. Only **let us hold true to what we have attained.** Brothers, join in imitating me, and keep your eyes on those who walk according to the example you have in us. For many, of whom I have often told you and now tell you even with tears, walk as enemies of the cross of Christ. Their end is destruction, their god is their belly, and they glory in their shame, with **minds set on earthly things**. But our citizenship is in heaven, and from it we await a Savior, the Lord Jesus Christ, who will transform our lowly body to be like his glorious body, by the power that enables him even to subject all things to himself. (ESV)
 
@@ -3479,9 +3497,21 @@ So as we go on as believers, we must hold fast to what is true as we learn from 
 
 > **[II John 1:9](https://www.biblegateway.com/passage/?search=2%20John%201%3A9&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. (ESV)
 
+> **[Luke 8:18](https://www.biblegateway.com/passage/?search=Luke%208%3A18&version=ESV)** - Take care then how you hear, for to the one who has, more will be given, and from the one who has not, even what he thinks that he has will be taken away. (ESV)
+
 > **[Matthew 13:9-15](https://www.biblegateway.com/passage/?search=Matthew%2013%3A9-15&version=ESV)** - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven, but to them it has not been given. For **to the one who has, more will be given, and he will have an abundance, but from the one who has not, even what he has will be taken away.** This is why I speak to them in parables, because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their heart and turn, and I would heal them. (ESV)
 
 > **[Hebrews 2:1](https://www.biblegateway.com/passage/?search=Hebrews%202%3A1&version=ESV)** - Therefore we must pay much closer attention to what we have heard, lest we drift away from it. (ESV)
+
+To properly understand God's word (which is important) I think involves actually heeding, applying, doing the word and not merely hearing:
+
+> **[Luke 8:18](https://www.biblegateway.com/passage/?search=Luke%208%3A18&version=ESV)** - Take care then how you hear, for to the one who has, more will be given, and from the one who has not, even what he thinks that he has will be taken away. (ESV)
+
+> **[Matthew 13:23](https://www.biblegateway.com/passage/?search=Matthew%2013%3A23&version=ESV)** - As for what was sown on good soil, this is the one who hears the word and understands it. He indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
+
+> **[James 1:22-24](https://www.biblegateway.com/passage/?search=James%201%3A22-24&version=ESV)** - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at himself and goes away and at once forgets what he was like. (ESV)
+
+> **[Matthew 13:9-15](https://www.biblegateway.com/passage/?search=Matthew%2013%3A9-15&version=ESV)** - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven, but to them it has not been given. For **to the one who has, more will be given, and he will have an abundance, but from the one who has not, even what he has will be taken away.** This is why I speak to them in parables, because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their heart and turn, and I would heal them. (ESV)
 
 Jesus has died for our sins. Receiving this salvation is a matter of having faith in Jesus Christ, abiding in His commandments:
 
@@ -14110,7 +14140,7 @@ Jesus does use "figures of speech". Not everything should be taken literally but
 
 > **[John 3:3](https://www.biblegateway.com/passage/?search=John%203%3A3&version=ESV)** - Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God. (ESV)
 
-The disciples here could understand Jesus' parables, but those people of the crowd who could not understand the parables could not understand. The more we believe and understand, the more will be able to believe and understand. So we need to hold fast God's word, retain it, and persevere with it and rebuke and refute those who contradict it:
+The disciples here could understand Jesus' parables, but those people of the crowd who could not understand the parables could not understand. The more we believe and understand, the more will be able to believe and understand (**[Luke 8:18](https://www.biblegateway.com/passage/?search=Luke%208%3A18&version=ESV)**). So we need to hold fast God's word, retain it, and persevere with it and rebuke and refute those who contradict it:
 
 > **[Matthew 13:9-15](https://www.biblegateway.com/passage/?search=Matthew%2013%3A9-15&version=ESV)** - He who has ears, let him hear. Then the disciples came and said to him, Why do you speak to them in parables? And he answered them, To you it has been given to know the secrets of the kingdom of heaven, but to them it has not been given. For **to the one who has, more will be given, and he will have an abundance, but from the one who has not, even what he has will be taken away.** This is why I speak to them in parables, because seeing they do not see, and hearing they do not hear, nor do they understand. Indeed, in their case the prophecy of Isaiah is fulfilled that says: You will indeed hear but never understand, and you will indeed see but never perceive. For this people's heart has grown dull, and with their ears they can barely hear, and their eyes they have closed, lest they should see with their eyes and hear with their ears and understand with their heart and turn, and I would heal them. (ESV)
 
@@ -21629,7 +21659,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org3414137) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgace1693) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -27506,7 +27536,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orga87802e).
+I didn't know but it turned out to be the last day of my [sentence](#orgf0062fd).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -34637,7 +34667,7 @@ And following Jesus' commandments we will love one another:
 
 ## Assurance of salvation
 
-For full assurance, do all the will of God for you (**[I Thessalonians 5:18](https://www.biblegateway.com/passage/?search=1%20Thessalonians%205%3A18&version=ESV)**).
+For full assurance, do all the will of God for you (**[Colossians 4:12](https://www.biblegateway.com/passage/?search=Colossians%204%3A12&version=ESV)**).
 
 The will of God:
 
@@ -52641,7 +52671,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org6e23913)
+See: [33.4.1](#org4c49cdb)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -74524,7 +74554,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org6e23913)
+See: [33.4.1](#org4c49cdb)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -77180,7 +77210,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org6ce5ed8) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgacd489d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -85525,7 +85555,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org6ce5ed8) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgacd489d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -86863,7 +86893,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org9c722e2)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org06d0511)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
