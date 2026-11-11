@@ -1231,11 +1231,10 @@ To properly understand God's word (which is important) I think involves actually
 and not merely hearing:
 
   Luke 8:18 - Take care then how you hear, for to the one who has, more will be given, and from the one who has
-  not, even what he thinks that he has will be taken away. (ESV) l#+END[QUOTE]
+  not, even what he thinks that he has will be taken away. (ESV)
 
-  #+BEGIN[QUOTE] Matthew 13:23 - As for what was sown on good soil, this is the one who hears the word and
-  understands it. He indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another
-  thirty. (ESV)
+  Matthew 13:23 - As for what was sown on good soil, this is the one who hears the word and understands it. He
+  indeed bears fruit and yields, in one case a hundredfold, in another sixty, and in another thirty. (ESV)
 
   James 1:22-24 - But be doers of the word, and not hearers only, deceiving yourselves. For if anyone is a hearer
   of the word and not a doer, he is like a man who looks intently at his natural face in a mirror. For he looks at
@@ -67574,6 +67573,12 @@ We put our trust in Jehovah God. We put our trust in Jesus:
 
   Isaiah 12:2 - Behold, God is my salvation; I will trust, and will not be afraid; for the LORD GOD is my strength
   and my song, and he has become my salvation. (ESV)
+
+  Psalms 125:1 - A Song of the Ascents. Those trusting in Jehovah are as Mount Zion, It is not moved–to the age it
+  abideth. (YLT)
+
+  I John 2:17 - And the world is passing away along with its desires, but whoever does the will of God abides
+  forever. (ESV)
 
 People fall away if they are not freed from sin. We're seeking to be freed from sin:
 
@@ -145324,11 +145329,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: <2026-11-09 Mon 23:10
+Date: 2026-11-11 Wed 23:51
 
 Author: Shane Mulligan
 
-Created: 2026-11-11 Wed 23:13
+Created: 2026-11-11 Wed 23:53
 
 Validate
 
