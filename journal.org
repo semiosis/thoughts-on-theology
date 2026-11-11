@@ -34938,7 +34938,7 @@ Concordance (102 entries)
     - If something was presented as for sale then to get at the value someone wants out of it, they should really buy it as offered otherwise it's immoral.
     - Whatever license accompanied the data should be propagated with with model which trained on it, not merely the data be propagated with the model, but also the model should carry the conditions of usage that the data it trained on carried.
 
-** Jounal 
+** Journal <2026-11-11 Wed>
 #+BEGIN_QUOTE
   *[[https://www.biblegateway.com/passage/?search=Psalms%20125%3A1&version=YLT][Psalms 125:1]]* - A Song of the Ascents. Those trusting in Jehovah are as Mount Zion, It is not moved--to the age it abideth. (YLT)
 #+END_QUOTE
