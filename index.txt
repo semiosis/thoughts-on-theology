@@ -65189,7 +65189,7 @@ sin and loving our family in Christ, etc. and practice righteousness:
 If we start claiming that we are ourselves "fit", saying we can make "Beginner time", and we actually are not fit
 enough then people might start pointing that out saying, "You're not fit enough, etc. Do some working out at the
 gym to get fitter. Likewise, if we start calling ourselves children of God, then God will chastise us to get us
-into shape. He doesn't want us to be disobedient like the second son (in Matt 21:38-31), but He wants us to walk
+into shape. He doesn't want us to be disobedient like the second son (in Matt 21:28-31), but He wants us to walk
 in His ways, not just make a claim to walk in His ways:
 
   I Peter 1:14-19 - As obedient children, do not be conformed to the passions of your former ignorance, but as he
@@ -145412,11 +145412,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-12 Thu 19:32
+Date: 2026-11-13 Fri 10:06
 
 Author: Shane Mulligan
 
-Created: 2026-11-12 Thu 23:35
+Created: 2026-11-13 Fri 10:08
 
 Validate
 
