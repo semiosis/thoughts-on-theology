@@ -3405,15 +3405,49 @@ saves. Just keep holding faith in Jesus Christ:
   Ephesians 4:30 - And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption.
   (ESV)
 
-  II Corinthians 1:21-22 - And it is God who establishes us with you in Christ, and has anointed us, and who has
-  also put his seal on us and given us his Spirit in our hearts as a guarantee. (ESV)
-
   John 4:41-42 - And many more believed because of his word. They said to the woman, It is no longer because of
   what you said that we believe, for we have heard for ourselves, and we know that this is indeed the Savior of
   the world. (ESV)
 
   Ephesians 4:30 - And do not grieve the Holy Spirit of God, by whom you were sealed for the day of redemption.
   (ESV)
+
+Those who have been anointed by God, abiding in Jesus do not keep on sinning:
+
+  Jeremiah 31:33-34 - But this is the covenant that I will make with the house of Israel after those days,
+  declares the LORD: I will put my law within them, and I will write it on their hearts. And I will be their God,
+  and they shall be my people. And no longer shall each one teach his neighbor and each his brother, saying, Know
+  the LORD, for they shall all know me, from the least of them to the greatest, declares the LORD. For I will
+  forgive their iniquity, and I will remember their sin no more. (ESV)
+
+  I Corinthians 15:34 - Wake up from your drunken stupor, as is right, and do not go on sinning. For some have no
+  knowledge of God. I say this to your shame. (ESV)
+
+  Hosea 4:1 - Hear the word of the Lord, O children of Israel, for the Lord has a controversy with the inhabitants
+  of the land.There is no faithfulness or steadfast love, and no knowledge of God in the land; (ESV)
+
+  II Corinthians 10:5 - We destroy arguments and every lofty opinion raised against the knowledge of God, and take
+  every thought captive to obey Christ, (ESV)
+
+  I John 2:19-20 - They went out from us, but they were not of us; for if they had been of us, they would have
+  continued with us. But they went out, that it might become plain that they all are not of us. But you have been
+  anointed by the Holy One, and you all have knowledge. (ESV)
+
+  I John 3:6 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known
+  him. (ESV)
+
+  II Corinthians 1:21-22 - And it is God who establishes us with you in Christ, and has anointed us, and who has
+  also put his seal on us and given us his Spirit in our hearts as a guarantee. (ESV)
+
+  I John 4:11-19 - Beloved, if God so loved us, we also ought to love one another. No one has ever seen God; if we
+  love one another, God abides in us and his love is perfected in us. By this we know that we abide in him and he
+  in us, because he has given us of his Spirit. And we have seen and testify that the Father has sent his Son to
+  be the Savior of the world. Whoever confesses that Jesus is the Son of God, God abides in him, and he in God. So
+  we have come to know and to believe the love that God has for us. God is love, and whoever abides in love abides
+  in God, and God abides in him. By this is love perfected with us, so that we may have confidence for the day of
+  judgment, because as he is so also are we in this world. There is no fear in love, but perfect love casts out
+  fear. For fear has to do with punishment, and whoever fears has not been perfected in love. We love because he
+  first loved us. (ESV)
 
 We believe the gospel into loving one-another as commanded, and into producing good deeds that God works through
 us:
@@ -6832,8 +6866,7 @@ world hates us as we hold Jesus Christ as the topmost love in our heart:
   woman is anxious about worldly things, how to please her husband. I say this for your own benefit, not to lay
   any restraint upon you, but to promote good order and to secure your undivided devotion to the Lord. (ESV)
 
-To abide in Jesus means not only to be in Jesus but also it means to have not departed (See:
-https://github.com/semiosis/thoughts-on-theology/blob/master/abiding.org).
+To abide in Jesus means not only to be in Jesus but also it means to have not departed (See: abiding.org).
 
 • https://billmounce.com/greek-dictionary/meno
 
@@ -145383,7 +145416,7 @@ Date: 2026-11-12 Thu 19:32
 
 Author: Shane Mulligan
 
-Created: 2026-11-12 Thu 19:51
+Created: 2026-11-12 Thu 20:45
 
 Validate
 
