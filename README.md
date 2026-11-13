@@ -1824,6 +1824,8 @@ The Lord Jesus Christ's words have not passed away. Jesus prayed that Father God
 
 > **[Matthew 24:35](https://www.biblegateway.com/passage/?search=Matthew%2024%3A35&version=ESV)** - Heaven and earth will pass away, but my words will not pass away. (ESV)
 
+> **[Isaiah 51:6](https://www.biblegateway.com/passage/?search=Isaiah%2051%3A6&version=ESV)** - Lift up your eyes to the heavens, and look at the earth beneath;for the heavens vanish like smoke, the earth will wear out like a garment, and they who dwell in it will die in like manner;but my salvation will be forever, and my righteousness will never be dismayed. (ESV)
+
 When they are born-again, they may know what has been freely given to them. A person needs to be born-again to be able to see the Kingdom of God:
 
 > **[I Corinthians 2:7-14](https://www.biblegateway.com/passage/?search=1%20Corinthians%202%3A7-14&version=ESV)** - But we impart a secret and hidden wisdom of God, which God decreed before the ages for our glory. None of the rulers of this age understood this, for if they had, they would not have crucified the Lord of glory. But, as it is written, What no eye has seen, nor ear heard, nor the heart of man imagined, what God has prepared for those who love him— these things God has revealed to us through the Spirit. For the Spirit searches everything, even the depths of God. For who knows a person's thoughts except the spirit of that person, which is in him? So also no one comprehends the thoughts of God except the Spirit of God. **Now we have received not the spirit of the world, but the Spirit who is from God, that we might understand the things freely given us by God.** And we impart this in words not taught by human wisdom but taught by the Spirit, interpreting spiritual truths to those who are spiritual. The natural person does not accept the things of the Spirit of God, for they are folly to him, and he is not able to understand them because they are spiritually discerned. (ESV)
@@ -2734,6 +2736,26 @@ God gives the grace to be saved while we were sinners, but the salvation which i
 > **[Ephesians 2:4-10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A4-10&version=ESV)** - But God, being rich in mercy, because of the great love with which he loved us, **even when we were dead in our trespasses, made us alive together with Christ—by grace you have been saved—** and raised us up with him and seated us with him in the heavenly places in Christ Jesus, so that in the coming ages he might show the immeasurable riches of his grace in kindness toward us in Christ Jesus. For by grace you have been saved through faith. And this is not your own doing; it is the gift of God, not a result of works, so that no one may boast. For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them. (ESV)
 
 > **[Philippians 2:12-16](https://www.biblegateway.com/passage/?search=Philippians%202%3A12-16&version=ESV)** - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you, both to will and to work for his good pleasure. Do all things without grumbling or questioning, that you may be blameless and innocent, children of God without blemish in the midst of a crooked and twisted generation, among whom you shine as lights in the world, holding fast to the word of life, so that in the day of Christ I may be proud that I did not run in vain or labor in vain. (ESV)
+
+We must love God and His family. The love of Jesus and the love of God and practicing righteousness and not practicing wickedness all go hand-in hand:
+
+> **[John 3:1-15](https://www.biblegateway.com/passage/?search=John%203%3A1-15&version=ESV)** - Now there was a man of the Pharisees named Nicodemus, a ruler of the Jews. This man came to Jesus by night and said to him, Rabbi, we know that you are a teacher come from God, for no one can do these signs that you do unless God is with him. Jesus answered him, Truly, truly, I say to you, unless one is born again he cannot see the kingdom of God. Nicodemus said to him, How can a man be born when he is old? Can he enter a second time into his mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born of water and the Spirit, he cannot enter the kingdom of God. That which is born of the flesh is flesh, and that which is born of the Spirit is spirit. Do not marvel that I said to you, You must be born again. The wind blows where it wishes, and you hear its sound, but you do not know where it comes from or where it goes. So it is with everyone who is born of the Spirit. Nicodemus said to him, How can these things be? Jesus answered him, Are you the teacher of Israel and yet you do not understand these things? Truly, truly, I say to you, we speak of what we know, and bear witness to what we have seen, but you do not receive our testimony. If I have told you earthly things and you do not believe, how can you believe if I tell you heavenly things? No one has ascended into heaven except he who descended from heaven, the Son of Man. And as Moses lifted up the serpent in the wilderness, so must the Son of Man be lifted up, that whoever believes in him may have eternal life. (ESV)
+
+> **[John 3:16-21](https://www.biblegateway.com/passage/?search=John%203%3A16-21&version=ESV)** - For God so loved the world, that he gave his only Son, that whoever believes in him should not perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+> **[John 19:38-39](https://www.biblegateway.com/passage/?search=John%2019%3A38-39&version=ESV)** - After these things Joseph of Arimathea, who was a disciple of Jesus, but secretly for fear of the Jews, asked Pilate that he might take away the body of Jesus, and Pilate gave him permission. So he came and took away his body. Nicodemus also, who earlier had come to Jesus by night, came bringing a mixture of myrrh and aloes, about seventy-five pounds in weight. (ESV)
+
+> **[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)** - The good person out of the good treasure of his heart produces good, and the evil person out of his evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+> **[John 15:23-24](https://www.biblegateway.com/passage/?search=John%2015%3A23-24&version=ESV)** - Whoever hates me hates my Father also. If I had not done among them the works that no one else did, they would not be guilty of sin, but now they have seen and hated both me and my Father. (ESV)
+
+> **[John 16:27](https://www.biblegateway.com/passage/?search=John%2016%3A27&version=ESV)** - for the Father himself loves you, because you have loved me and have believed that I came from God. (ESV)
+
+> **[I Corinthians 16:22](https://www.biblegateway.com/passage/?search=1%20Corinthians%2016%3A22&version=ESV)** - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
+
+> **[Ephesians 6:24](https://www.biblegateway.com/passage/?search=Ephesians%206%3A24&version=ESV)** - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
+
+> **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
 
 Jesus is Yahweh, the Son of God, and all the commandments of God, even the ones given by Jesus Christ, even His commandment to have faith in Him (**[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=NASB)**) depend on the two Great Commandments (**[Matthew 22:36-40](https://www.biblegateway.com/passage/?search=Matthew%2022%3A36-40&version=ESV)**).
 
@@ -21705,7 +21727,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd525945) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgb8c9d85) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -25801,6 +25823,10 @@ However it works, there is no escaping the fact that we must stand before the ju
 
 > **[Matthew 24:31](https://www.biblegateway.com/passage/?search=Matthew%2024%3A31&version=ESV)** - And he will send out his angels with a loud trumpet call, and they will gather his elect from the four winds, from one end of heaven to the other. (ESV)
 
+> **[Matthew 24:35](https://www.biblegateway.com/passage/?search=Matthew%2024%3A35&version=ESV)** - Heaven and earth will pass away, but my words will not pass away. (ESV)
+
+> **[Isaiah 51:6](https://www.biblegateway.com/passage/?search=Isaiah%2051%3A6&version=ESV)** - Lift up your eyes to the heavens, and look at the earth beneath;for the heavens vanish like smoke, the earth will wear out like a garment, and they who dwell in it will die in like manner;but my salvation will be forever, and my righteousness will never be dismayed. (ESV)
+
 As children of promise, walking by faith rather than by sight, we should be desiring a heavenly country, not an earthly one:
 
 > **[Hebrews 11:12-19](https://www.biblegateway.com/passage/?search=Hebrews%2011%3A12-19&version=ESV)** - Therefore from one man, and him as good as dead, were born descendants as many as the stars of heaven and as many as the innumerable grains of sand by the seashore. These all died in faith, not having received the things promised, but having seen them and greeted them from afar, and having acknowledged that they were strangers and exiles on the earth. For people who speak thus make it clear that they are seeking a homeland. If they had been thinking of that land from which they had gone out, they would have had opportunity to return. But as it is, they desire a better country, that is, a heavenly one. Therefore God is not ashamed to be called their God, for he has prepared for them a city. By faith Abraham, when he was tested, offered up Isaac, and he who had received the promises was in the act of offering up his only son, of whom it was said, Through Isaac shall your offspring be named. He considered that God was able even to raise him from the dead, from which, figuratively speaking, he did receive him back. (ESV)
@@ -25809,11 +25835,13 @@ As children of promise, walking by faith rather than by sight, we should be desi
 
 > **[II Corinthians 5:1-7](https://www.biblegateway.com/passage/?search=2%20Corinthians%205%3A1-7&version=ESV)** - For we know that if the tent, which is our earthly home, is destroyed, we have a building from God, a house not made with hands, eternal in the heavens. For in this tent we groan, longing to put on our heavenly dwelling, if indeed by putting it on we may not be found naked. For while we are still in this tent, we groan, being burdened—not that we would be unclothed, but that we would be further clothed, so that what is mortal may be swallowed up by life. He who has prepared us for this very thing is God, who has given us the Spirit as a guarantee. So we are always of good courage. We know that while we are at home in the body we are away from the Lord, for we walk by faith, not by sight. (ESV)
 
-I do not believe in "reincarnation" into the same 'kosmos' (G2889 kosmos: world). At the close of the age the bad people get sent to the bad place (**[Luke 12:5](https://www.biblegateway.com/passage/?search=Luke%2012%3A5&version=ESV)**) and the good people go to a distinct 'kosmos' where righteousness dwells. I believe that the righteousness go to heaven with incorruptible bodies, rather than back to Earth:
+I do not believe in "reincarnation" into the same 'kosmos' [(G2889 kosmos: world)](G2889). At the close of the age the bad people get sent to the bad place (**[Luke 12:5](https://www.biblegateway.com/passage/?search=Luke%2012%3A5&version=ESV)**) and the good people go to a distinct 'kosmos' where righteousness dwells. I believe that the righteous go to heaven with incorruptible bodies, rather than back to Earth:
 
 > **[Matthew 13:45-52](https://www.biblegateway.com/passage/?search=Matthew%2013%3A45-52&version=ESV)** - Again, the kingdom of heaven is like a merchant in search of fine pearls, who, on finding one pearl of great value, went and sold all that he had and bought it. Again, the kingdom of heaven is like a net that was thrown into the sea and gathered fish of every kind. When it was full, men drew it ashore and sat down and sorted the good into containers but threw away the bad. So it will be at the close of the age. <ins>The angels will come out and separate the evil from the righteous and throw them into the fiery furnace.</ins> In that place there will be weeping and gnashing of teeth. Have you understood all these things? They said to him, Yes. And he said to them, Therefore every scribe who has been trained for the kingdom of heaven is like a master of a house, who brings out of his treasure what is new and what is old.
 
 > **[II Peter 3:1-8](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A1-8&version=ESV)** - This is now the second letter that I am writing to you, beloved. In both of them I am stirring up your sincere mind by way of reminder, that you should remember the predictions of the holy prophets and the commandment of the Lord and Savior through your apostles, knowing this first of all, that scoffers will come in the last days with scoffing, following their own sinful desires. <ins>They will say, Where is the promise of his coming? For ever since the fathers fell asleep, all things are continuing as they were from the beginning of creation.</ins> For they deliberately overlook this fact, that the heavens existed long ago, and the earth was formed out of water and through water by the word of God, and that by means of these the world that then existed was deluged with water and perished. But by the same word the heavens and earth that now exist are stored up for fire, being kept until the day of judgment and destruction of the ungodly. But do not overlook this one fact, beloved, that **with the Lord one day is as a thousand years, and a thousand years as one day.** (ESV)
+
+> **[Isaiah 51:6](https://www.biblegateway.com/passage/?search=Isaiah%2051%3A6&version=ESV)** - Lift up your eyes to the heavens, and look at the earth beneath;for the heavens vanish like smoke, the earth will wear out like a garment, and they who dwell in it will die in like manner;but my salvation will be forever, and my righteousness will never be dismayed. (ESV)
 
 I do not believe that with the bodily resurrection that we will return to an Earth with corruption in it:
 
@@ -27582,7 +27610,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org1ab7872).
+I didn't know but it turned out to be the last day of my [sentence](#org221b001).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -52721,7 +52749,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org093419b)
+See: [33.4.1](#org855f463)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -74604,7 +74632,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org093419b)
+See: [33.4.1](#org855f463)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -77260,7 +77288,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org940368e) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgabe919d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -85605,7 +85633,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org940368e) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgabe919d) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -86943,7 +86971,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org353dc61)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgbe5e68e)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

@@ -3894,6 +3894,10 @@ evil one while they are in the world:
 
   Matthew 24:35 - Heaven and earth will pass away, but my words will not pass away. (ESV)
 
+  Isaiah 51:6 - Lift up your eyes to the heavens, and look at the earth beneath;for the heavens vanish like smoke,
+  the earth will wear out like a garment, and they who dwell in it will die in like manner;but my salvation will
+  be forever, and my righteousness will never be dismayed. (ESV)
+
 When they are born-again, they may know what has been freely given to them. A person needs to be born-again to be
 able to see the Kingdom of God:
 
@@ -5767,6 +5771,53 @@ deeds in obedience to Jesus Christ:
   blameless and innocent, children of God without blemish in the midst of a crooked and twisted generation, among
   whom you shine as lights in the world, holding fast to the word of life, so that in the day of Christ I may be
   proud that I did not run in vain or labor in vain. (ESV)
+
+We must love God and His family. The love of Jesus and the love of God and practicing righteousness and not
+practicing wickedness all go hand-in hand:
+
+  John 3:1-15 - Now there was a man of the Pharisees named Nicodemus, a ruler of the Jews. This man came to Jesus
+  by night and said to him, Rabbi, we know that you are a teacher come from God, for no one can do these signs
+  that you do unless God is with him. Jesus answered him, Truly, truly, I say to you, unless one is born again he
+  cannot see the kingdom of God. Nicodemus said to him, How can a man be born when he is old? Can he enter a
+  second time into his mother's womb and be born? Jesus answered, Truly, truly, I say to you, unless one is born
+  of water and the Spirit, he cannot enter the kingdom of God. That which is born of the flesh is flesh, and that
+  which is born of the Spirit is spirit. Do not marvel that I said to you, You must be born again. The wind blows
+  where it wishes, and you hear its sound, but you do not know where it comes from or where it goes. So it is with
+  everyone who is born of the Spirit. Nicodemus said to him, How can these things be? Jesus answered him, Are you
+  the teacher of Israel and yet you do not understand these things? Truly, truly, I say to you, we speak of what
+  we know, and bear witness to what we have seen, but you do not receive our testimony. If I have told you earthly
+  things and you do not believe, how can you believe if I tell you heavenly things? No one has ascended into
+  heaven except he who descended from heaven, the Son of Man. And as Moses lifted up the serpent in the
+  wilderness, so must the Son of Man be lifted up, that whoever believes in him may have eternal life. (ESV)
+
+  John 3:16-21 - For God so loved the world, that he gave his only Son, that whoever believes in him should not
+  perish but have eternal life. For God did not send his Son into the world to condemn the world, but in order
+  that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not
+  believe is condemned already, because he has not believed in the name of the only Son of God. And this is the
+  judgment: the light has come into the world, and people loved the darkness rather than the light because their
+  deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his
+  deeds should be exposed. But whoever does what is true comes to the light, so that it may be clearly seen that
+  his deeds have been carried out in God. (ESV)
+
+  John 19:38-39 - After these things Joseph of Arimathea, who was a disciple of Jesus, but secretly for fear of
+  the Jews, asked Pilate that he might take away the body of Jesus, and Pilate gave him permission. So he came and
+  took away his body. Nicodemus also, who earlier had come to Jesus by night, came bringing a mixture of myrrh and
+  aloes, about seventy-five pounds in weight. (ESV)
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  John 15:23-24 - Whoever hates me hates my Father also. If I had not done among them the works that no one else
+  did, they would not be guilty of sin, but now they have seen and hated both me and my Father. (ESV)
+
+  John 16:27 - for the Father himself loves you, because you have loved me and have believed that I came from God.
+  (ESV)
+
+  I Corinthians 16:22 - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
+
+  Ephesians 6:24 - Grace be with all who love our Lord Jesus Christ with love incorruptible. (ESV)
+
+  John 14:15 - If you love me, you will keep my commandments. (ESV)
 
 Jesus is Yahweh, the Son of God, and all the commandments of God, even the ones given by Jesus Christ, even His
 commandment to have faith in Him (John 14:1) depend on the two Great Commandments (Matthew 22:36-40).
@@ -45029,6 +45080,12 @@ Christ, and there is certainly a separation that happens:
   Matthew 24:31 - And he will send out his angels with a loud trumpet call, and they will gather his elect from
   the four winds, from one end of heaven to the other. (ESV)
 
+  Matthew 24:35 - Heaven and earth will pass away, but my words will not pass away. (ESV)
+
+  Isaiah 51:6 - Lift up your eyes to the heavens, and look at the earth beneath;for the heavens vanish like smoke,
+  the earth will wear out like a garment, and they who dwell in it will die in like manner;but my salvation will
+  be forever, and my righteousness will never be dismayed. (ESV)
+
 As children of promise, walking by faith rather than by sight, we should be desiring a heavenly country, not an
 earthly one:
 
@@ -45056,7 +45113,7 @@ earthly one:
 
 I do not believe in "reincarnation" into the same 'kosmos' (G2889 kosmos: world). At the close of the age the bad
 people get sent to the bad place (Luke 12:5) and the good people go to a distinct 'kosmos' where righteousness
-dwells. I believe that the righteousness go to heaven with incorruptible bodies, rather than back to Earth:
+dwells. I believe that the righteous go to heaven with incorruptible bodies, rather than back to Earth:
 
   Matthew 13:45-52 - Again, the kingdom of heaven is like a merchant in search of fine pearls, who, on finding one
   pearl of great value, went and sold all that he had and bought it. Again, the kingdom of heaven is like a net
@@ -45077,6 +45134,10 @@ dwells. I believe that the righteousness go to heaven with incorruptible bodies,
   deluged with water and perished. But by the same word the heavens and earth that now exist are stored up for
   fire, being kept until the day of judgment and destruction of the ungodly. But do not overlook this one fact,
   beloved, that with the Lord one day is as a thousand years, and a thousand years as one day. (ESV)
+
+  Isaiah 51:6 - Lift up your eyes to the heavens, and look at the earth beneath;for the heavens vanish like smoke,
+  the earth will wear out like a garment, and they who dwell in it will die in like manner;but my salvation will
+  be forever, and my righteousness will never be dismayed. (ESV)
 
 I do not believe that with the bodily resurrection that we will return to an Earth with corruption in it:
 
@@ -145412,11 +145473,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-13 Fri 10:06
+Date: 2026-11-13 Fri 21:28
 
 Author: Shane Mulligan
 
-Created: 2026-11-13 Fri 10:08
+Created: 2026-11-13 Fri 21:43
 
 Validate
 
