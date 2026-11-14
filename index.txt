@@ -6943,6 +6943,36 @@ To abide in Jesus means not only to be in Jesus but also it means to have not de
 
 • https://billmounce.com/greek-dictionary/meno
 
+The Apostle John instructs his disciples to abide (remain) in Christ [so] that when He appears we might have
+bldness and not be ashamed before Him:
+
+  I John 2:28 (Interlinear)
+
+  ────────────────────────────────────────────────────────────────────────
+   Strongs Code  Transliteration     Greek       Translation     Grammar
+  ────────────────────────────────────────────────────────────────────────
+   G2532         Kai              Καὶ          And              Conj
+   G3568         nyn              νῦν ,        now              Adv
+   G5040         teknia           τεκνία ,     little children  N-VNP
+   G3306         menete           μένετε       abide            V-PMA-2P
+   G1722         en               ἐν           in               Prep
+   G846          autō             αὐτῷ ,       him              PPro-DM3S
+   G2443         hina             ἵνα          that             Conj
+   G1437         ean              ἐὰν          when             Conj
+   G5319         phanerōthē       φανερωθῇ     he appears       V-ASP-3S
+   G2192         schōmen          σχῶμεν       we might have    V-ASA-1P
+   G3954         parrēsian        παρρησίαν ,  boldness         N-AFS
+   G2532         kai              καὶ          and              Conj
+   G3361         mē               μὴ           not              Adv
+   G153          aischynthōmen    αἰσχυνθῶμεν  be ashamed       V-ASP-1P
+   G575          ap’              ἀπ’          before           Prep
+   G846          autou            αὐτοῦ ,      him              PPro-GM3S
+   G1722         en               ἐν           at               Prep
+   G3588         tē               τῇ           the              Art-DFS
+   G3952         parousia         παρουσίᾳ     coming           N-DFS
+   G846          autou            αὐτοῦ .      of him           PPro-GM3S
+  ────────────────────────────────────────────────────────────────────────
+
 And a person who loves Jesus Christ will be law-abiding by the law of Christ Jesus meaning that they will be
 sanctified, and that's a promise:
 
@@ -14192,6 +14222,11 @@ instructs to sin no more (John 5:14), we can see that Jesus is friend to those w
   John 7:7 - The world cannot hate you, but it hates me because I testify about it that its works are evil. (ESV)
 
   John 15:14 - You are my friends if you do what I command you. (ESV)
+
+  Matthew 11:18-20 - For John came neither eating nor drinking, and they say, He has a demon. The Son of Man came
+  eating and drinking, and they say, Look at him! A glutton and a drunkard, a friend of tax collectors and
+  sinners! Yet wisdom is justified by her deeds. Then he began to denounce the cities where most of his mighty
+  works had been done, because they did not repent. (ESV)
 
 As someone who is believing, Paul when speaking this is no longer sinning (and a person who is no longer sinning
 is not a sinner but is rather, a believer):
@@ -145495,11 +145530,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-14 Sat 22:34
+Date: 2026-11-15 Sun 08:02
 
 Author: Shane Mulligan
 
-Created: 2026-11-14 Sat 22:55
+Created: 2026-11-15 Sun 08:07
 
 Validate
 
