@@ -5405,6 +5405,28 @@ word, by faith obeying Jesus Christ, is the way in which a person is justified i
   I John 2:5 - but whoever keeps his word, in him truly the love of God is perfected. By this we may be sure that
   we are in him: (ESV)
 
+I think a person's destiny does boil down to whether a person accepts or rejects Jesus but it would be incorrect
+to separate an acceptance of Jesus from practicing righteousness and from the the love for Jesus. Those go hand in
+hand. Learning from God, a person comes to Jesus. And in "doing what is true" (i.e. practicing righteousness, even
+if it's just abstaining from working evil, abstaining from committing sin), a person comes to the light (the 3
+wise men, for example, perhaps, God knows). Even still, I think a person must not stumble over the cornerstone who
+is Jesus. To disbelieve in Jesus, to reject Him would be to stumble over the cornerstone.
+
+  I Peter 2:6-9 - For it stands in Scripture: Behold, I am laying in Zion a stone, a cornerstone chosen and
+  precious, and whoever believes in him will not be put to shame. So the honor is for you who believe, but for
+  those who do not believe, The stone that the builders rejected has become the cornerstone, and A stone of
+  stumbling, and a rock of offense. They stumble because they disobey the word, as they were destined to do. But
+  you are a chosen race, a royal priesthood, a holy nation, a people for his own possession, that you may proclaim
+  the excellencies of him who called you out of darkness into his marvelous light. (ESV)
+
+In loving Jesus with a true faith that loves the truth, a person loves righteousness and receives Him. Loving
+Jesus a person will keep His commandments. Jesus came to save sinners, setting them free from actually committing
+sin which leads to death. And as Jesus instructs, if a person abides in His word then they will be set free. If a
+person is disregarding Jesus' teachings then I don't think they are truly accepting Jesus Christ as their Saviour.
+
+  I John 3:6 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known
+  him. (ESV)
+
 Walking righteously, a person would not be inventing wicked thoughts. Rather, the righteous may, for example, be
 thinking of ways to please God with the willing intention (G2309 ēthelēsan) of maybe doing something hoping to
 please God in their actions out of faith in God's word.
@@ -5772,8 +5794,8 @@ deeds in obedience to Jesus Christ:
   whom you shine as lights in the world, holding fast to the word of life, so that in the day of Christ I may be
   proud that I did not run in vain or labor in vain. (ESV)
 
-We must love God and His family. The love of Jesus and the love of God and practicing righteousness and not
-practicing wickedness all go hand-in hand:
+The love of Jesus and the love of God and practicing righteousness and not practicing wickedness all go hand-in
+hand. We must love God and His family:
 
   John 3:1-15 - Now there was a man of the Pharisees named Nicodemus, a ruler of the Jews. This man came to Jesus
   by night and said to him, Rabbi, we know that you are a teacher come from God, for no one can do these signs
@@ -145473,11 +145495,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-13 Fri 21:28
+Date: 2026-11-14 Sat 22:34
 
 Author: Shane Mulligan
 
-Created: 2026-11-13 Fri 21:43
+Created: 2026-11-14 Sat 22:55
 
 Validate
 
