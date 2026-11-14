@@ -6944,7 +6944,9 @@ To abide in Jesus means not only to be in Jesus but also it means to have not de
 • https://billmounce.com/greek-dictionary/meno
 
 The Apostle John instructs his disciples to abide (remain) in Christ [so] that when He appears we might have
-bldness and not be ashamed before Him:
+boldness and not be ashamed before Him. So instead of forsaking Jesus' teachings including His commandments we
+should endeavour to be abiding soundly in the truth so as to remain in Him God-willing and remaining in Him have
+boldness and not be ashamed before Him:
 
   I John 2:28 (Interlinear)
 
@@ -33548,9 +33550,20 @@ sanctification involves faith and repentance from sin and wanting to be clean:
   said to him, See, you are well! Sin no more, that nothing worse may happen to you. The man went away and told
   the Jews that it was Jesus who had healed him. (ESV)
 
-If we admit we are great sinners in need of a great Saviour with an attitude of love for Jesus, then you'd be
-amongst fellow believers who also know they are great sinners in need of a great Saviour with an attitude of love
-for Jesus:
+When a sinner calls out to God for mercy and they receive forgiveness then they love the one who forgave them.
+
+It's wrong to deceive people who are doing well into believing that they are not. I don't like being gaslit often
+into declaring that I'm a sinner or into affirming that believers are all sinners. I don't think it's a biblical
+idea at all. Jesus came to save people from their sin.
+
+So what do people mean by this word "sinner" is it someone who "has sinned" or is it someone who "is sinning" or
+is it someone who "sins by their nature"?
+
+So long as it is meant to refer to someone who "has sinned", then I'm OK with that. If we admit we are great
+sinners (those who "have sinned", and are in need of a great Saviour with an attitude of love for Jesus, then
+you'd be amongst fellow believers who also know they "have sinned" and are in need of a great Saviour with an
+attitude of love for Jesus. But a regenerate believer is no longer a sinner in the sense that God has set them
+free from sin, from committing sin and it is no longer their nature to sin:
 
   Matthew 10:37 - Whoever loves father or mother more than me is not worthy of me, and whoever loves son or
   daughter more than me is not worthy of me. (ESV)
@@ -145534,7 +145547,7 @@ Date: 2026-11-15 Sun 08:02
 
 Author: Shane Mulligan
 
-Created: 2026-11-15 Sun 08:07
+Created: 2026-11-15 Sun 08:52
 
 Validate
 
