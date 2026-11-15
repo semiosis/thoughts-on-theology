@@ -4283,6 +4283,41 @@ practices righteousness:
   III John 1:11 - Beloved, do not imitate evil but imitate good. Whoever does good is from God; whoever does evil
   has not seen God. (ESV)
 
+Receiving Jesus, we have the 'right', the 'authority' to become children of God, even by receiving Him through the
+knowledge of His name (onoma). But whoever continues on and does not abide (remain) in the teaching of Christ
+doesn't have God:
+
+John 1:12 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek     Translation   Grammar
+─────────────────────────────────────────────────────────────────────
+G3745         hosoi            ὅσοι         as many as   RelPro-NMP
+G1161         de               δὲ           however      Conj
+G2983         elabon           ἔλαβον       received     V-AIA-3P
+G846          auton            αὐτόν ,      him          PPro-AM3S
+G1325         edōken           ἔδωκεν       he gave      V-AIA-3S
+G846          autois           αὐτοῖς       to them      PPro-DM3P
+G1849         exousian         ἐξουσίαν ,   authority    N-AFS
+G5043         tekna            τέκνα        children     N-ANP
+G2316         Theou            Θεοῦ         of God       N-GMS
+G1096         genesthai        γενέσθαι ,   to be        V-ANM
+G3588         tois             τοῖς         to those     Art-DMP
+G4100         pisteuousin      πιστεύουσιν  believing    V-PPA-DMP
+G1519         eis              εἰς          on           Prep
+G3588         to               τὸ           the          Art-ANS
+G3686         onoma            ὄνομα        name         N-ANS
+G846          autou            αὐτοῦ ,      of him       PPro-GM3S
+─────────────────────────────────────────────────────────────────────
+
+  John 13:20 - Truly, truly, I say to you, whoever receives the one I send receives me, and whoever receives me
+  receives the one who sent me. (ESV)
+
+  II John 1:9-11 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his
+  wicked works. (ESV)
+
 Entering the Kingdom of God requires having faith in Jesus Christ, having stopped sinning:
 
   Jeremiah 7:8-11 - Behold, ye trust in lying words, that cannot profit. Will ye steal, murder, and commit
@@ -33559,11 +33594,16 @@ idea at all. Jesus came to save people from their sin.
 So what do people mean by this word "sinner" is it someone who "has sinned" or is it someone who "is sinning" or
 is it someone who "sins by their nature"?
 
-So long as it is meant to refer to someone who "has sinned", then I'm OK with that. If we admit we are great
-sinners (those who "have sinned", and are in need of a great Saviour with an attitude of love for Jesus, then
-you'd be amongst fellow believers who also know they "have sinned" and are in need of a great Saviour with an
-attitude of love for Jesus. But a regenerate believer is no longer a sinner in the sense that God has set them
-free from sin, from committing sin and it is no longer their nature to sin:
+So long as it is meant to mean someone who "has sinned" when talking about blievers, then I'm OK with that. But I
+think there is a problem when people use it to say that a believer is by nature somebody that sins, especially a
+regenerate believer, because a regenerate believer who has received a new heart and spirit from God, born-again of
+the spirit and died to sin and raised to new life through the resurrection of Jesus Christ is not by nature a
+sinner anymore.
+
+If we admit we are great sinners (those who "have sinned", and are in need of a great Saviour with an attitude of
+love for Jesus, then you'd be amongst fellow believers who also know they "have sinned" and are in need of a great
+Saviour with an attitude of love for Jesus. But a regenerate believer is no longer a sinner in the sense that God
+has set them free from sin, from committing sin and it is no longer their nature to sin:
 
   Matthew 10:37 - Whoever loves father or mother more than me is not worthy of me, and whoever loves son or
   daughter more than me is not worthy of me. (ESV)
@@ -36421,10 +36461,39 @@ obedience. I think this is the right way to think about it.
   For what is exalted among men is an abomination in the sight of God. (ESV)
 
 Receiving Jesus, we have the 'right', the 'authority' to become children of God, even by receiving Him through the
-knowledge of His name (onoma):
+knowledge of His name (onoma). But whoever continues on and does not abide (remain) in the teaching of Christ
+doesn't have God:
 
-  John 1:12 - As many as however received Him He gave to them authority children of God to be to those believing
-  in the name of Him (Interlinear)
+John 1:12 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek     Translation   Grammar
+─────────────────────────────────────────────────────────────────────
+G3745         hosoi            ὅσοι         as many as   RelPro-NMP
+G1161         de               δὲ           however      Conj
+G2983         elabon           ἔλαβον       received     V-AIA-3P
+G846          auton            αὐτόν ,      him          PPro-AM3S
+G1325         edōken           ἔδωκεν       he gave      V-AIA-3S
+G846          autois           αὐτοῖς       to them      PPro-DM3P
+G1849         exousian         ἐξουσίαν ,   authority    N-AFS
+G5043         tekna            τέκνα        children     N-ANP
+G2316         Theou            Θεοῦ         of God       N-GMS
+G1096         genesthai        γενέσθαι ,   to be        V-ANM
+G3588         tois             τοῖς         to those     Art-DMP
+G4100         pisteuousin      πιστεύουσιν  believing    V-PPA-DMP
+G1519         eis              εἰς          on           Prep
+G3588         to               τὸ           the          Art-ANS
+G3686         onoma            ὄνομα        name         N-ANS
+G846          autou            αὐτοῦ ,      of him       PPro-GM3S
+─────────────────────────────────────────────────────────────────────
+
+  John 13:20 - Truly, truly, I say to you, whoever receives the one I send receives me, and whoever receives me
+  receives the one who sent me. (ESV)
+
+  II John 1:9-11 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
+  Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this
+  teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his
+  wicked works. (ESV)
 
 OK, so we have the right to call God our Father if believe on Jesus' name. So we should definitely renounce
 ungoliness, and live holy lives:
@@ -145543,11 +145612,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-15 Sun 08:02
+Date: 2026-11-15 Sun 12:58
 
 Author: Shane Mulligan
 
-Created: 2026-11-15 Sun 08:52
+Created: 2026-11-15 Sun 13:07
 
 Validate
 
