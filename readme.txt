@@ -14249,6 +14249,31 @@ from the love of evil:
   greet only your brothers, what more are you doing than others? Do not even the Gentiles do the same? You
   therefore must be perfect, as your heavenly Father is perfect. (ESV)
 
+Jesus taught that He is a friend of those who do what He says (i.e. they have repented and are continuing to abide
+in Him). And even if other people around can't see that this person is now doing what Jesus commands, Jesus still
+sees. So Jesus might seem to be someone's only friend after they have repented.
+
+  Luke 7:39 - Now when the Pharisee who had invited him saw this, he said to himself, If this man were a prophet,
+  he would have known who and what sort of woman this is who is touching him, for she is a sinner. (ESV)
+
+  Revelation of John 21:8 - But as for the cowardly, the faithless, the detestable, as for murderers, the sexually
+  immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur,
+  which is the second death. (ESV)
+
+Jesus isn't a friend to those who reject Him.
+
+  Titus 1:16 - They profess to know God, but they deny him by their works. They are detestable, disobedient, unfit
+  for any good work. (ESV)
+
+  II Timothy 2:11-18 - The saying is trustworthy, for: If we have died with him, we will also live with him; if we
+  endure, we will also reign with him; if we deny him, he also will deny us; if we are faithless, he remains
+  faithful— for he cannot deny himself. Remind them of these things, and charge them before God not to quarrel
+  about words, which does no good, but only ruins the hearers. Do your best to present yourself to God as one
+  approved, a worker who has no need to be ashamed, rightly handling the word of truth. But avoid irreverent
+  babble, for it will lead people into more and more ungodliness, and their talk will spread like gangrene. Among
+  them are Hymenaeus and Philetus, who have swerved from the truth, saying that the resurrection has already
+  happened. They are upsetting the faith of some. (ESV)
+
 Jesus, the friend of sinners? I don't think so. But He is the friend of those who do what He says, and so as Jesus
 instructs to sin no more (John 5:14), we can see that Jesus is friend to those who sin no more as commanded by Him
 (John 15:14):
@@ -122114,6 +122139,14 @@ Spiritually raised with Christ:
 
 OK, so spiritually resurrected and raised. Now we wait for the resurrection of the body.
 
+I have been spiritually resurrected. I say that because I've been born-again of the spirit. But not physically.
+The first resurrection John speaks of is the resurrection of the body:
+
+  Revelation of John 20:5-6 - The rest of the dead did not come to life until the thousand years were ended. This
+  is the first resurrection. Blessed and holy is the one who shares in the first resurrection! Over such the
+  second death has no power, but they will be priests of God and of Christ, and they will reign with him for a
+  thousand years. (ESV)
+
 Things make a bit more sense now:
 
   Matthew 19:16-26 - And behold, a man came up to him, saying, Teacher, what good deed must I do to have eternal
@@ -145612,11 +145645,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-15 Sun 12:58
+Date: 2026-11-16 Mon 12:58
 
 Author: Shane Mulligan
 
-Created: 2026-11-15 Sun 13:07
+Created: 2026-11-16 Mon 12:58
 
 Validate
 
