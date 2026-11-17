@@ -3206,7 +3206,7 @@ defeated the last enemy, death, from His perspective:
 
 A believer at some point dies (John 11:25-27), and it happens when they are baptised into Christ's death (Romans
 6:3-8, Galatians 2:19-21, Romans 7:1-6) and is born of the spirit in order to be able to keep God's commandments
-(Ezekiel 11:19-20). We don't have to be a slave of sin (John 8:34-35,36,42,51). But when does a person get
+(Ezekiel 11:19-20). We don't have to be a slave of sin (John 8:34-35,36,42,51 But when does a person get
 born-again of the spirit? It's mysterious (John 3:6-8) but it's partly not a mystery because a person who turns
 away from sin and has faith in Jesus will get born-again (Ezekiel 18:31, John 11:25-27):
 
@@ -3689,7 +3689,8 @@ taking captive every thought for obedience to Christ Jesus, until one's obedienc
 The one born of God who is seated with Christ in heavenly places (Ephesians 2:6), far from sinners (Hebrews 7:26),
 simultaneously agrees with and speaks the truth about Jesus Christ (I John 4:15, I John 4:3), and they love as
 commanded and they do not sin (I John 5:18). The one born of God is not a sinner by nature (I Peter 4:12-19,
-Ephesians 2:1-3, Ephesians 2:4-9).
+Ephesians 2:1-3, Ephesians 2:4-9). Those who continue sinning do so towards the death of their soul (James
+5:19-20).
 
   Ephesians 2:1-3 - And you were dead in the trespasses and sins in which you once walked, following the course of
   this world, following the prince of the power of the air, the spirit that is now at work in the sons of
@@ -4987,7 +4988,12 @@ We must have changed to walk in the love of the truth rather than in the love of
   This is why I told you that no one can come to me unless it is granted him by the Father. (ESV)
 
 Being a sinner isn't in itself what justifies a person. In fact, quite the opposite. To be a sinner is to be
-someone who acts without faith. What is not done in faith is sin.
+someone who acts without faith. What is not done in faith is sin. Those who continue sinning do so towards the
+death of their soul:
+
+  James 5:19-20 - My brothers, if anyone among you wanders from the truth and someone brings him back, let him
+  know that whoever brings back a sinner from his wandering will save his soul from death and will cover a
+  multitude of sins. (ESV)
 
 And God justifies those who have faith, even ungodly people who have faith (i.e. people who have not yet brought
 holiness to completion in the fear of God).
@@ -11444,14 +11450,14 @@ salvation.
   practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
   you have heard from the beginning, that we should love one another. (ESV)
 
-  I Peter 4:18-19,5:8-10,12 - And If the righteous is scarcely saved, what will become of the ungodly and the
-  sinner? Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while
-  doing good. Be sober-minded; be watchful. Your adversary the devil prowls around like a roaring lion, seeking
-  someone to devour. Resist him, firm in your faith, knowing that the same kinds of suffering are being
-  experienced by your brotherhood throughout the world. And after you have suffered a little while, the God of all
-  grace, who has called you to his eternal glory in Christ, will himself restore, confirm, strengthen, and
-  establish you. By Silvanus, a faithful brother as I regard him, I have written briefly to you, exhorting and
-  declaring that this is the true grace of God. Stand firm in it. (ESV)
+  I Peter 4:18-19;5:8-12 - And If the righteous is scarcely saved, what will become of the ungodly and the sinner?
+  Therefore let those who suffer according to God's will entrust their souls to a faithful Creator while doing
+  good. Be sober-minded; be watchful. Your adversary the devil prowls around like a roaring lion, seeking someone
+  to devour. Resist him, firm in your faith, knowing that the same kinds of suffering are being experienced by
+  your brotherhood throughout the world. And after you have suffered a little while, the God of all grace, who has
+  called you to his eternal glory in Christ, will himself restore, confirm, strengthen, and establish you. By
+  Silvanus, a faithful brother as I regard him, I have written briefly to you, exhorting and declaring that this
+  is the true grace of God. Stand firm in it. (ESV)
 
 The carrying out of sanctification is absolutely a necessary part of salvation and also impacts the quality of a
 person's life before the day of the Lord (I Corinthians 5:1-13).
@@ -21517,8 +21523,8 @@ demonstrated and commanded:
   your most holy faith; pray in the Holy Spirit; keep yourselves in the love of God (G26 agapē: [the] love) (G2316
   Theou: of God), waiting for the mercy of our Lord Jesus Christ that leads to eternal life. (ESV)
 
-Being 'philos with (friends with, allured by, attracted to)', money , self, pleasure, rather than ((G3123 mallon:
-rather [Adv])) being allured by God (wanting to be around God) is bad. But we should avoid those who are attracted
+Being 'philos with (friends with, allured by, attracted to)', money , self, pleasure, rather than (G3123 mallon:
+rather [Adv]) being allured by God (wanting to be around God) is bad. But we should avoid those who are attracted
 to such things rather than/instead of God. We want to be attracted to God, and certainly must be attracted to God
 moreso than by pleasure, money, self, etc. And we are instructed to avoid such people who are drawn to such things
 in preference to God. We are to avoid enemies of God:
@@ -26287,13 +26293,157 @@ There is an entirely new cosmos, and we want to be a part of it:
 
 To use some computer science lingo, by the end/close of the age, we want to be "sorted" (Matthew 13:49) into
 (counted among) the wheat, not sorted into the tares because the tares are the ungodly people (the children of the
-devil, people who prefer sin to God) who are destroyed by fire. Annihilated is not the right word I think because
-the fire is eternal. The children of God go to a new creation (G2537 kainē; new) (G2937 ktisis; creation) where
-righteousness dwells. Until the day of the Lord where the heavens literally melt with heat, I do believe God does
-take care of and renew the earth. But there is an entirely new creation which we hope for. I truly think that
-there is ultimately an entirely new creation which we hope for, not a mere derivative. There is no good future
-without God. We want to have "forked" off with the wheat and not with the tares and so not experience the bad
-future. So we must not continue to desire evil (I Corinthians 10:6-12):
+devil, people who prefer sin to God) who are destroyed by fire.
+
+  Psalms 145:20 - The LORD preserves all who love him, but all the wicked he will destroy. (ESV)
+
+  Deuteronomy 7:9-10 - Know therefore that the LORD your God is God, the faithful God who keeps covenant and
+  steadfast love with those who love him and keep his commandments, to a thousand generations, and repays to their
+  face those who hate him, by destroying them. He will not be slack with one who hates him. He will repay him to
+  his face. (ESV)
+
+  I Corinthians 10:5-11 - Nevertheless, with most of them God was not pleased, for they were overthrown in the
+  wilderness. Now these things took place as examples for us, that we might not desire evil as they did. Do not be
+  idolaters as some of them were; as it is written, The people sat down to eat and drink and rose up to play. We
+  must not indulge in sexual immorality as some of them did, and twenty-three thousand fell in a single day. We
+  must not put Christ to the test, as some of them did and were destroyed by serpents, nor grumble, as some of
+  them did and were destroyed by the Destroyer. Now these things happened to them as an example, but they were
+  written down for our instruction, on whom the end (G5056 telē) of the ages has come. (ESV)
+
+  II Thessalonians 1:9 (Interlinear)
+  who (G3748 hoitines) [the] penalty (G1349 dikēn) will suffer (G5099 tisousin) of destruction (G3639 olethron)
+  eternal (G166 aiōnion) away from (G575 apo) [the] presence (G4383 prosōpou) of the (G3588 tou) Lord (G2962
+  Kyriou) and (G2532 kai) from (G575 apo) the (G3588 tēs) of the (G3588 tēs) power (G2479 ischyos) of him (G846
+  autou)
+
+Annihilated is not the right word I think because the fire is eternal, and there is real evidence of eternal
+torment. I mean Satan, the beast and the false prophet will most surely experience eternal torment, but there is
+also indication of a similar fate. The Lake of Fire is where eternal torment happens, and it is away (II
+Thessalonians 1:9) from the presence of God unlike what this video tried to affirm. Hades/Sheol would not be "away
+from the presence of God" (Psalms 139:8) and so taking Colossians 1:17 to mean God's presence is in the Lake of
+Fire I think is an overstep. When the Son of Man separates the sheep from the goats, the goats are then sent to
+the Lake eof Fire (Matthew 25:41). And also, part of why I'm reluctant to take Colossians 1:17 as indicating the
+presence of God in the Lake of Fire is that the Greek root word pertaining to "all" (G3956 panti/pantōn/panta)
+that is used by Colossians 1:17 is also used to say "love believes all" in I Corinthians 13:7 yet the Apostle John
+instructs "do not believe all spirit" (I John 4:1), and so a question for me is, "Is it truly loving to believe
+others even when they lie to you?" because that's seems like the logical implication of saying "love believes
+all". And if true agape love does not believe lies (Proverbs 13:5, Proverbs 17:4) then the word for "all" might be
+taken somewhat differently or in a different way. True agape love believes all of what? I John 3:9. That's just
+another reason why I don't immediately accept (especially without being a Berean myself) someone's claim that God
+also presides in the Lake of Fire the same way He might in Hades / Sheol:
+
+  Psalms 139:8 - If I ascend to heaven, you are there! If I make my bed in Sheol, you are there! (ESV)
+
+  Revelation of John 20:7-10 - And when the thousand years are ended, Satan will be released from his prison and
+  will come out to deceive the nations that are at the four corners of the earth, Gog and Magog, to gather them
+  for battle; their number is like the sand of the sea. And they marched up over the broad plain of the earth and
+  surrounded the camp of the saints and the beloved city, but fire came down from heaven and consumed them, and
+  the devil who had deceived them was thrown into the lake of fire and sulfur where the beast and the false
+  prophet were, and they will be tormented day and night forever and ever. (ESV)
+
+  Mark 9:47-50 - And if your eye causes you to sin, tear it out. It is better for you to enter the kingdom of God
+  with one eye than with two eyes to be thrown into hell, where their worm does not die and the fire is not
+  quenched. For everyone will be salted with fire. Salt is good, but if the salt has lost its saltiness, how will
+  you make it salty again? Have salt in yourselves, and be at peace with one another. (ESV)
+
+  Revelation of John 20:13-14 - And the sea gave up the dead who were in it, Death and Hades (86. hadés) gave up
+  the dead who were in them, and they were judged, each one of them, according to what they had done. Then Death
+  and Hades were thrown into the lake of fire. This is the second death, the lake of fire. (ESV)
+
+Matthew 25:41 (Interlinear)
+Then (G5119 tote) will He say (G2046 erei) also (G2532 kai) to those (G3588 tois) on (G1537 ex) [the] left (G2176
+euōnymōn) Depart (G4198 Poreuesthe) from (G575 ap’) Me (G1473 emou) those (G3588 hoi) being cursed (G2672
+katēramenoi) into (G1519 eis) the (G3588 to) fire (G4442 pyr) - (G3588 to) eternal (G166 aiōnion) - (G3588 to)
+having been prepared (G2090 hētoimasmenon) for the (G3588 tō) devil (G1228 diabolō) and (G2532 kai) the (G3588
+tois) angels (G32 angelois) of him (G846 autou)
+
+  I Corinthians 13:7 (Interlinear)
+
+  ──────────────────────────────────────────────────────────────────
+   Strongs Code  Transliteration    Greek     Translation  Grammar
+  ──────────────────────────────────────────────────────────────────
+   G3956         panta            πάντα       All things   Adj-ANP
+   G4722         stegei           στέγει ,    it bears     V-PIA-3S
+   G3956         panta            πάντα       all things   Adj-ANP
+   G4100         pisteuei         πιστεύει ,  believes     V-PIA-3S
+   G3956         panta            πάντα       all things   Adj-ANP
+   G1679         elpizei          ἐλπίζει ,   hopes        V-PIA-3S
+   G3956         panta            πάντα       all things   Adj-ANP
+   G5278         hypomenei        ὑπομένει .  endures      V-PIA-3S
+  ──────────────────────────────────────────────────────────────────
+
+  Colossians 1:17 (Interlinear)
+
+  ───────────────────────────────────────────────────────────────────────
+   Strongs Code  Transliteration     Greek       Translation    Grammar
+  ───────────────────────────────────────────────────────────────────────
+   G2532         kai              καὶ           And            Conj
+   G846          autos            αὐτός         he             PPro-NM3S
+   G1510         estin            ἐστιν         is             V-PIA-3S
+   G4253         pro              πρὸ           before         Prep
+   G3956         pantōn           πάντων ,      all things     Adj-GNP
+   G2532         kai              καὶ           and            Conj
+   G3588         ta               τὰ            -              Art-NNP
+   G3956         panta            πάντα         all things     Adj-NNP
+   G1722         en               ἐν            in             Prep
+   G846          autō             αὐτῷ          him            PPro-DM3S
+   G4921         synestēken       συνέστηκεν .  hold together  V-RIA-3S
+  ───────────────────────────────────────────────────────────────────────
+
+  I John 4:1 (Interlinear)
+  Beloved (G27 Agapētoi) not (G3361 mē) every (G3956 panti) spirit (G4151 pneumati) believe (G4100 pisteuete) but
+  (G235 alla) test (G1381 dokimazete) the (G3588 ta) spirits (G4151 pneumata) whether (G1487 ei) of (G1537 ek) -
+  (G3588 tou) God (G2316 Theou) they are (G1510 estin) because (G3754 hoti) many (G4183 polloi) false prophets
+  (G5578 pseudoprophētai) have gone out (G1831 exelēlythasin) into (G1519 eis) the (G3588 ton) world (G2889
+  kosmon)
+
+  I John 4:2 (Interlinear)
+  By (G1722 En) this (G3778 toutō) you know (G1097 ginōskete) the (G3588 to) Spirit (G4151 Pneuma) - (G3588 tou)
+  of God (G2316 Theou) Every (G3956 pan) spirit (G4151 pneuma) that (G3739 ho) confesses (G3670 homologei) Jesus
+  (G2424 Iēsoun) Christ (G5547 Christon) in (G1722 en) [the] flesh (G4561 sarki) having come (G2064 elēlythota) of
+  (G1537 ek) - (G3588 tou) God (G2316 Theou) is (G1510 estin)
+
+  I John 4:3 (Interlinear)
+  and (G2532 kai) any (G3956 pan) spirit (G4151 pneuma) that (G3739 ho) not (G3361 mē) confesses (G3670 homologei)
+  - (G3588 ton) Jesus (G2424 Iēsoun) Christ (G5547 christon) in the (G1722 en) flesh (G4561 sarki) has come (G2064
+  elēlythota) of (G1537 ek) - (G3588 tou) God (G2316 Theou) not (G3756 ouk) is (G1510 estin) and (G2532 kai) this
+  (G3778 touto) is (G1510 estin) that (G3588 to) of the (G3588 tou) antichrist (G500 antichristou) which (G3739
+  ho) you heard (G191 akēkoate) that (G3754 hoti) is coming (G2064 erchetai) and (G2532 kai) now (G3568 nyn) in
+  (G1722 en) the (G3588 tō) world (G2889 kosmō) is (G1510 estin) already (G2235 ēdē)
+
+Someone not abiding in Jesus does not abide in God.
+
+  John 15:1-6 - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear
+  fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you
+  are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear
+  fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are
+  the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do
+  nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are
+  gathered, thrown into the fire, and burned. (ESV)
+
+(I John 3:9) (I John 2:15-17) Then you have abiding in Jesus. People who have God's seed in them God doesen't pass
+away:
+
+  I John 3:9 - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on
+  sinning because he has been born of God. (ESV)
+
+  I John 3:23-24 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
+  another, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this
+  we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+  I John 2:15-17 - Do not love the world or the things in the world. If anyone loves the world, the love of the
+  Father is not in him. For all that is in the world—the desires of the flesh and the desires of the eyes and
+  pride in possessions—is not from the Father but is from the world. And the world is passing away along with its
+  desires, but whoever does the will of God abides forever. (ESV)
+
+Nevertheless, God is the judge and if so happened that God willed to save a person in ways beyond my understanding
+so be it. But my current understanding on the issue remains unchanged even after watching this video. The children
+of God go to a new creation (G2537 kainē; new) (G2937 ktisis; creation) where righteousness dwells. Until the day
+of the Lord where the heavens literally melt with heat, I do believe God does take care of and renew the earth.
+But there is an entirely new creation which we hope for. I truly think that there is ultimately an entirely new
+creation which we hope for, not a mere derivative. There is no good future without God. We want to have "forked"
+off with the wheat and not with the tares and so not experience the bad future. So we must not continue to desire
+evil (I Corinthians 10:6-12):
 
   II Peter 3:5-7 - For they deliberately overlook this fact, that the heavens existed long ago, and the earth was
   formed out of water and through water by the word of God, and that by means of these the world that then existed
@@ -29927,8 +30077,8 @@ the world. We should have agape love for people (treasuring people) and no agape
   James 1:27 - Religion that is pure and undefiled (283. amiantos) before God, the Father, is this: to visit
   orphans and widows in their affliction, and to keep oneself unstained from the world. (ESV)
 
-Being 'philos with (friends with, allured by, attracted to)', money , self, pleasure, rather than ((G3123 mallon:
-rather [Adv])) being allured by God (wanting to be around God) is bad. But we should avoid those who are attracted
+Being 'philos with (friends with, allured by, attracted to)', money , self, pleasure, rather than (G3123 mallon:
+rather [Adv]) being allured by God (wanting to be around God) is bad. But we should avoid those who are attracted
 to such things rather than/instead of God. We want to be attracted to God, and certainly must be attracted to God
 moreso than by pleasure, money, self, etc. And we are instructed to avoid such people who are drawn to such things
 in preference to God. We are to avoid enemies of God:
@@ -37018,8 +37168,8 @@ Forsaking sin is important for salvation:
   having laid aside (G659 apothemenoi) every (G3956 panta) and the easily entangling (G2139 euperistaton) sin
   (G266 hamartian) with endurance should run the lying before us race (Interlinear)
 
-  I John 3:14:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he
-  abides in us, by the Spirit whom he has given us. (ESV)
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
 
   James 1:12 - Blessed is the man who remains steadfast under trial, for when he has stood the test he will
   receive the crown of life, which God has promised to those who love him. (ESV)
@@ -49238,8 +49388,8 @@ Mark 9 is one passage there's others. the ones I really go to a lot are Matthew 
 commandment from Christ himself to measure the tree by its fruit. That's with respect to prophets in Matthew 7 and
 with respect to an exorcism in Matthew 12. There's the doctrinal test of I Corinthians 12:3.
 
-I Corinthians 12:3 - Therefore I want you to understand that no one speaking in the Spirit of God ever says Jesus
-is accursed! and no one can say Jesus is Lord except in the Holy Spirit. (ESV)
+  I Corinthians 12:3 - Therefore I want you to understand that no one speaking in the Spirit of God ever says
+  Jesus is accursed! and no one can say Jesus is Lord except in the Holy Spirit. (ESV)
 
 So you've got this sense of, you know, you realize Paul is trying to give us a criterion here, and he expects us
 to use that.
@@ -79981,8 +80131,8 @@ the Son. The way to get to the Father is to go through the Son.
   to you, before Abraham was, I am. So they picked up stones to throw at him, but Jesus hid himself and went out
   of the temple. (ESV)
 
-Obedience to God is an act of faith: (Hebrews 11). On the flip side, disobedience flows from
-unbelief/faithlessness:
+True obedience to God is of faith, and acts done in true obedience are done in faith: (Hebrews 11). On the flip
+side, disobedient action flows from unbelief/faithlessness:
 
   I Timothy 1:13 - though formerly I was a blasphemer, persecutor, and insolent opponent. But I received mercy
   because I had acted ignorantly in unbelief, (ESV)
@@ -96652,8 +96802,8 @@ to thunderclap, as bubble to ocean. All that we see, all that you are amazed by 
 all the world, all the galaxies is compared to God as nothing. If you put God on one side of the scales and the
 universe on the other side of the scales the universe goes up like air or dust on the scale.
 
-Isaiah 40:17 - All the nations are as nothing before him, they are accounted by him as less than nothing and
-emptiness. (ESV)
+  Isaiah 40:17 - All the nations are as nothing before him, they are accounted by him as less than nothing and
+  emptiness. (ESV)
 
 By faith Abraham trusted God, was faithful to God, believed God and obeyed God. So the faith has the fruit of
 walking in the footsteps of the faith that our father Abraham had before he was circumcised. I think it is
@@ -128871,19 +129021,21 @@ The "image of God" having dominion over the earth and I believe it also involves
   multiply and fill the earth and subdue it and have dominion over the fish of the sea and over the birds of the
   heavens and over every living thing that moves on the earth. (ESV)
 
-Isaiah 66:13 - As one whom his mother comforts, so I will comfort you; you shall be comforted in Jerusalem. (ESV)
+  Isaiah 66:13 - As one whom his mother comforts, so I will comfort you; you shall be comforted in Jerusalem.
+  (ESV)
 
-Isaiah 49:15 - Can a woman forget her nursing child, that she should have no compassion on the son of her womb?
-Even these may forget, yet I will not forget you. (ESV)
+  Isaiah 49:15 - Can a woman forget her nursing child, that she should have no compassion on the son of her womb?
+  Even these may forget, yet I will not forget you. (ESV)
 
-Hosea 11:3-4 - Yet it was I who taught Ephraim to walk; I took them up by their arms, but they did not know that I
-healed them. I led them with cords of kindness, with the bands of love, and I became to them as one who eases the
-yoke on their jaws, and I bent down to them and fed them. (ESV)
+  Hosea 11:3-4 - Yet it was I who taught Ephraim to walk; I took them up by their arms, but they did not know that
+  I healed them. I led them with cords of kindness, with the bands of love, and I became to them as one who eases
+  the yoke on their jaws, and I bent down to them and fed them. (ESV)
 
-Deuteronomy 32:18 - You were unmindful of the Rock that bore you, and you forgot the God who gave you birth. (ESV)
+  Deuteronomy 32:18 - You were unmindful of the Rock that bore you, and you forgot the God who gave you birth.
+  (ESV)
 
-I Corinthians 8:6 - yet for us there is one God, the Father, from whom are all things and for whom we exist, and
-one Lord, Jesus Christ, through whom are all things and through whom we exist. (ESV)
+  I Corinthians 8:6 - yet for us there is one God, the Father, from whom are all things and for whom we exist, and
+  one Lord, Jesus Christ, through whom are all things and through whom we exist. (ESV)
 
 We want to walk in a way that is pleasing to God:
 
@@ -129825,15 +129977,45 @@ like this glorifies money, not Jesus.
 
 The glory we seek must come from Father God rather from anyone else:
 
-John 5:41 (Interlinear)
-Glory (G1391 Doxan) from (G3844 para) men (G444 anthrōpōn) not (G3756 ou) I take (G2983 lambanō)
+  John 5:41 (Interlinear)
+
+  ─────────────────────────────────────────────────────────────────
+   Strongs Code  Transliteration    Greek    Translation  Grammar
+  ─────────────────────────────────────────────────────────────────
+   G1391         Doxan            Δόξαν      Glory        N-AFS
+   G3844         para             παρὰ       from         Prep
+   G444          anthrōpōn        ἀνθρώπων   men          N-GMP
+   G3756         ou               οὐ         not          Adv
+   G2983         lambanō          λαμβάνω ;  I take       V-PIA-1S
+  ─────────────────────────────────────────────────────────────────
 
   John 5:44 - How can you believe, when you receive glory from one another and do not seek the glory that comes
   from the only God? (ESV)
 
-I Thessalonians 2:6 (Interlinear)
-nor seeking from men (G444 anthrōpōn) glory nor from you (G4771 hymōn) nor from others (G243 allōn) [though]
-having authority in [it] burden to be as Christ's apostles
+  I Thessalonians 2:6 (Interlinear)
+
+  ────────────────────────────────────────────────────────────────────────────────────
+   Strongs Code  Transliteration     Greek            Translation           Grammar
+  ────────────────────────────────────────────────────────────────────────────────────
+   G3777         oute             οὔτε         nor                        Conj
+   G2212         zētountes        ζητοῦντες    seeking                    V-PPA-NMP
+   G1537         ex               ἐξ           from                       Prep
+   G444          anthrōpōn        ἀνθρώπων     men                        N-GMP
+   G1391         doxan            δόξαν ,      glory                      N-AFS
+   G3777         oute             οὔτε         nor                        Conj
+   G575          aph’             ἀφ’          from                       Prep
+   G4771         hymōn            ὑμῶν ,       you                        PPro-G2P
+   G3777         oute             οὔτε         nor                        Conj
+   G575          ap’              ἀπ’          from                       Prep
+   G243          allōn            ἄλλων ,      others                     Adj-GMP
+   G1410         dynamenoi        δυνάμενοι    [though] having authority  V-PPM/P-NMP
+   G1722         en               ἐν           in [it]                    Prep
+   G922          barei            βάρει        burden                     N-DNS
+   G1510         einai            εἶναι ,      to be                      V-PNA
+   G5613         hōs              ὡς           as                         Adv
+   G5547         Christou         Χριστοῦ      Christ's                   N-GMS
+   G652          apostoloi        ἀπόστολοι .  apostles                   N-NMP
+  ────────────────────────────────────────────────────────────────────────────────────
 
 Glory which comes from Father God to Jesus' disciples comes also through Jesus Christ the Son of God from Father
 God, and this glory glorifies Jesus Christ. Jesus Christ glorifies Father God:
@@ -132067,8 +132249,8 @@ Jesus delivers us from the present evil age, that we may seek to please God as s
 
 youtube.com: Escape From This Evil Age | Derek Prince {@DerekPrinceMinistries}
 
-Galatians 1:4 - who gave himself for our sins to deliver us from the present evil age, according to the will of
-our God and Father, (ESV)
+  Galatians 1:4 - who gave himself for our sins to deliver us from the present evil age, according to the will of
+  our God and Father, (ESV)
 
 Now, I want to point out to you certain simple objective facts revealed in the Bible about this present age.
 
@@ -132079,8 +132261,8 @@ present age to continue. I think it's a mess, and I think it's getting steadily 
 
 Let's look in Matthew chapter 13. This is the great chapter of the parables of the kingdom.
 
-Matthew 13:39 - and the enemy who sowed them is the devil. The harvest is the close of the age, and the reapers
-are angels. (ESV)
+  Matthew 13:39 - and the enemy who sowed them is the devil. The harvest is the close of the age, and the reapers
+  are angels. (ESV)
 
 Interpreting the parable of the wheat and the tears. Jesus says, "The enemy who sowed the tears is the devil. The
 harvest is the end of the age. The reapers of the angels."
@@ -133275,10 +133457,10 @@ not everything is beneficial. All things are lawful for me but I will not be bro
 for the stomach and the stomach for foods, but God will destroy both it and them. Now the body is not for sexual
 immorality but for the Lord, and the Lord for the body.
 
-I Corinthians 6:12-13 - All things are lawful for me, but not all things are helpful. All things are lawful for
-me, but I will not be enslaved by anything. Food is meant for the stomach and the stomach for food-and God will
-destroy both one and the other. The body is not meant for sexual immorality, but for the Lord, and the Lord for
-the body. (ESV)
+  I Corinthians 6:12-13 - All things are lawful for me, but not all things are helpful. All things are lawful for
+  me, but I will not be enslaved by anything. Food is meant for the stomach and the stomach for food-and God will
+  destroy both one and the other. The body is not meant for sexual immorality, but for the Lord, and the Lord for
+  the body. (ESV)
 
 So overeating and sexual immorality are specifically mentioned by Paul as possible examples of addictions. And an
 addict is a slave and I'm sorry to say the church is full of addicts. Not all of them are addicts but there are
@@ -145645,11 +145827,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-16 Mon 12:58
+Date: 2026-11-18 Wed 11:16
 
 Author: Shane Mulligan
 
-Created: 2026-11-16 Mon 12:58
+Created: 2026-11-18 Wed 11:19
 
 Validate
 
