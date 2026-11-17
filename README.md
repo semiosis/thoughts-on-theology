@@ -1748,6 +1748,23 @@ The one born of God who is seated with Christ in heavenly places (**[Ephesians 2
 
 > **[I John 5:18](https://www.biblegateway.com/passage/?search=1%20John%205%3A18&version=ESV)** - We know that everyone who has been born of God does not keep on sinning, but he who was born of God protects him, and the evil one does not touch him. (ESV)
 
+The actual person who is born of God is not a sinner:
+
+> **[I John 3:1-11](https://www.biblegateway.com/passage/?search=1%20John%203%3A1-11&version=ESV)** - See what kind of love the Father has given to us, that we should be called children of God; and so we are. The reason why the world does not know us is that it did not know him. Beloved, we are God's children now, and what we will be has not yet appeared; but we know that <ins>when he appears we shall be like him, because we shall see him as he is.</ins> And **everyone who thus hopes in him purifies himself as he is pure**. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or *known* him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that you have heard from the beginning, that we should love one another. (ESV)
+
+With the Apostle Paul writing that He **is** a sinner, one might say that Paul is making an appeal to God [ I Timothy 1:15](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A15&version=ESV) in similar fashion to the man in **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** who said, "God be merciful to me, a sinner!".
+
+> **[I Timothy 1:15](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A15&version=ESV)** - The saying is trustworthy and deserving of full acceptance, that Christ Jesus came into the world to save sinners, of whom I am the foremost. (ESV)
+
+> **[Luke 18:10-14](https://www.biblegateway.com/passage/?search=Luke%2018%3A10-14&version=ESV)** - Two men went up into the temple to pray, one a Pharisee and the other a tax collector. The Pharisee, standing by himself, prayed thus: God, I thank you that I am not like other men, extortioners, unjust, adulterers, or even like this tax collector. I fast twice a week; I give tithes of all that I get. But the tax collector, standing far off, would not even lift up his eyes to heaven, but **beat his breast, saying, God, be merciful to me, a sinner**! I tell you, this man went down to his house justified, rather than the other. For everyone who exalts himself will be humbled, but the one who humbles himself will be exalted. (ESV)
+
+Yet I believe it's really God's role, and His judgement, rather than one's own role and judgement that determines if a person is truly a sinner by their nature:
+
+> **[II Corinthians 10:18](https://www.biblegateway.com/passage/?search=2%20Corinthians%2010%3A18&version=ESV)** - For it is not the one who commends himself who is approved, but the one whom the Lord commends. (ESV)
+
+Talking about the idealistic born-again Christian who is born of God and practicing righteousness, without commending oneself, it is actually true that the true believer born-of-God, even in their sinful flesh, is not a sinner, because someone who is born-of-God and believing is practicing righteousness and walking by faith.
+One might still call themself a sinner (**[I Timothy 1:15](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A15&version=ESV)**), but God is the Supreme Judge of that.
+
 While in the flesh (**[Romans 7:16-20](https://www.biblegateway.com/passage/?search=Romans%207%3A16-20&version=ESV)**) there is a struggle with the flesh, but we still do need to be/become the one who is born of God, and so we should certainly strive to do this, abstaining from sin, overcomig evil with good, loving as commanded, abiding in the teaching of and about Jesus Christ.
 As a believer is holding their faith in Jesus Christ, coming to Jesus, they are retaining God's word, God's seed, and they will at some point (**[John 11:25-27](https://www.biblegateway.com/passage/?search=John%2011%3A25-27&version=ESV)**) die and be born-again while they are believing and become the new person who has been born of the seed of the word of God. The good seed are the children of the Kingdom of God and the good plants which came from the good seed are the oaks of righteousness (**[Isaiah 61:3](https://biblehub.com/interlinear/isaiah/61-3.htm)**) who have been created in Christ Jesus for good works (**[Ephesians 2:1-10](https://www.biblegateway.com/passage/?search=Ephesians%202%3A1-10&version=ESV)**) and need to be bearers of good fruit. The seed needs to die (**[I Corinthians 15:36](https://www.biblegateway.com/passage/?search=1%20Corinthians%2015%3A36&version=ESV)**), a believer needs to get born-again at some point that they may bear fruit for God:
 
@@ -2898,6 +2915,16 @@ A person is saved by receiving love for the truth (**[II Thessalonians 2:9-14](h
 A person is saved by faith in Jesus Christ's name (**[Acts 16:30-34](https://www.biblegateway.com/passage/?search=Acts%2016%3A30-34&version=ESV)**).
 A person who has faith in Jesus, even in His name, must some amount of love for Jesus, even love for His name, since love is 'more preceeding' [(G3173 meizōn; [the] greatest, most preceeding)](G3173) than faith (**[I Corinthians 13:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A13&version=ESV)**, **[I Corinthians 13:4-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A4-8&version=ESV)**).
 
+If God is a person's father then they would love Jesus Christ, and God is the father of all who believe in Jesus Christ. Therefore, a true believer in Jesus Christ loves Jesus Christ. That means that a true faith in Jesus Christ must have love for the truth:
+
+> **[Romans 4:11](https://www.biblegateway.com/passage/?search=Romans%204%3A11&version=ESV)** - He received the sign of circumcision as a seal of the righteousness that he had by faith while he was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so that righteousness would be counted to them as well, (ESV)
+
+> **[John 8:34-35,36,42,51](https://www.biblegateway.com/passage/?search=John%208%3A34-35%2C36%2C42%2C51&version=ESV)** - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+
+If someone believes that Jesus Christ is God (even God the Son) then that person must love their brother in order to have a genuine faith in Jesus Christ:
+
+> **[I John 4:8,19-21](https://www.biblegateway.com/passage/?search=1%20John%204%3A8%2C19-21&version=ESV)** - Anyone who does not love does not know God, because God is love. We love because he first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever loves God must also love his brother. (ESV)
+
 -   **[Polycarp 3:2](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** For neither am I, nor is any other like unto me, able to follow the
     wisdom of the blessed and glorious Paul, who when he came among you
     taught face to face with the men of that day the word which
@@ -3919,6 +3946,16 @@ A person cannot have justification while they are presently committing willful s
 > **[Romans 1:17-18](https://www.biblegateway.com/passage/?search=Romans%201%3A17-18&version=ESV)** - For the gospel reveals the righteousness of God that comes by faith from start to finish, just as it is written: “The righteous will live by faith.” The wrath of God is being revealed from heaven against all the godlessness and wickedness of men who suppress the truth by their wickedness. (engbsb2020eb)
 
 > **[Hebrews 10:37-39](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A37-39&version=ESV)** - For, Yet a little while, and the coming one will come and will not delay; \_but my righteous one shall live by faith, and if he shrinks back, my soul has no pleasure in him. **But we are not of those who shrink back and are destroyed, but of those who have faith and preserve their souls**. (ESV)
+
+The person who rejects Jesus is condemned already in an **immediate** sense:
+
+> **[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)** - For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does [(G4160 poiōn; doing)](G4160) what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+> **[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)** - For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. **Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God.** And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does [(G4160 poiōn; doing)](G4160) what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+An unbelieving person is not only already condemned but is also storing up wrath for themself for the day of wrath:
+
+> **[Romans 2:5](https://www.biblegateway.com/passage/?search=Romans%202%3A5&version=ESV)** - But because of your hard and impenitent heart you are storing up wrath for yourself on the day of wrath when God's righteous judgment will be revealed. (ESV)
 
 The person must not ultimately remain ungodly if they are to avoid the wrath of God. Someone who is overcome by and enslaved to ungodliness to the suppression of the truth, to the ruin of their faith (**[I Timothy 1:18-19](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A18-19&version=ESV)**), will still receive the wrath of God:
 
@@ -15561,14 +15598,15 @@ Annihilated is not the right word I think because the fire is eternal, and there
 >     is [(G1510 estin)](G1510)
 >     already [(G2235 ēdē)](G2235)
 
-Someone not abiding in Jesus does not abide in God.
+If someone is <ins>rejecting</ins> Jesus ([G2424 Iesous](https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/)) Christ [(G5547 Christou)](G5547) (Yeshua Hamashiach) who is the Son of YHWH (Yahweh/Jehovah) God and who has come in the name of YHWH (Yahweh/Jehovah), then they are not abiding in God:
 
 > **[John 15:1-6](https://www.biblegateway.com/passage/?search=John%2015%3A1-6&version=ESV)** - I am the true vine, and my Father is the vinedresser. Every branch of mine that does not bear fruit he takes away, and every branch that does bear fruit he prunes, that it may bear more fruit. Already you are clean because of the word that I have spoken to you. Abide in me, and I in you. As the branch cannot bear fruit by itself, unless it abides in the vine, neither can you, unless you abide in me. I am the vine; you are the branches. Whoever abides in me and I in him, he it is that bears much fruit, for apart from me you can do nothing. If anyone does not abide in me he is thrown away like a branch and withers; and the branches are gathered, thrown into the fire, and burned. (ESV)
 
-(**[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)**)
-(**[I John 2:15-17](https://www.biblegateway.com/passage/?search=1%20John%202%3A15-17&version=ESV)**)
-Then you have abiding in Jesus.
-People who have God's seed in them  God doesen't pass away:
+> **[II John 1:9-11](https://www.biblegateway.com/passage/?search=2%20John%201%3A9-11&version=ESV)** - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God. Whoever abides in the teaching has both the Father and the Son. If anyone comes to you and does not bring this teaching, do not receive him into your house or give him any greeting, for whoever greets him takes part in his wicked works. (ESV)
+
+> **[I John 2:22-23](https://www.biblegateway.com/passage/?search=1%20John%202%3A22-23&version=ESV)** - Who is the liar but he who denies that Jesus is the Christ? This is the antichrist, he who denies the Father and the Son. No one who denies the Son has the Father. Whoever confesses the Son has the Father also. (ESV)
+
+People who have God's seed in them keep God's commandments and abide in God and God doesen't pass away:
 
 > **[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)** - No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. (ESV)
 
@@ -22692,7 +22730,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org0ba5e43) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9c5f611) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -28575,7 +28613,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org6755df4).
+I didn't know but it turned out to be the last day of my [sentence](#org566c071).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -32465,13 +32503,28 @@ Persevere to lack in nothing. This perseverance is done in faith:
 
 > **[James 1:2-4](https://www.biblegateway.com/passage/?search=James%201%3A2-4&version=ESV)** - Consider it pure joy, my brothers, when you encounter trials of many kinds, because you know that the testing of your faith develops perseverance. Allow perseverance to finish its work, so that you may be mature and complete, not lacking anything. (engbsb2020eb)
 
-To be sanctified by faith in Jesus is an applied process, I think:
+To be sanctified by faith in Jesus is an applied process, I think. There's an initial "being set apart" / consecrated / sanctification which is necessary to have access to continued sanctification, though when reading **[Hebrews 10:10](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A10&version=ESV)** I don't see any explicit evidence that this person may not simply reflecting on their own process of sanctification so I want to be careful to not read into it more than it says. Sanctification is a process. Christ, being the author and finisher of our faith in the one in charge of how long it takes:
 
 > **[Acts 26:18](https://www.biblegateway.com/passage/?search=Acts%2026%3A18&version=ESV)** - to open their eyes, so that they may turn from darkness to light and from the power of Satan to God, that they may receive forgiveness of sins and a place among those who are **sanctified by faith in me**. (ESV)
 
+-   **[Hebrews 10:10](https://biblehub.com/interlinear/hebrews/10-10.htm) (Interlinear):** by [(G1722 en)](G1722)
+    that [(G3739 hō)](G3739)
+    will [(G2307 thelēmati)](G2307)
+    having been sanctified [(G37 hēgiasmenoi)](G37)
+    we are [(G1510 esmen)](G1510)
+    through [(G1223 dia)](G1223)
+    the [(G3588 tēs)](G3588)
+    offering [(G4376 prosphoras)](G4376)
+    of the [(G3588 tou)](G3588)
+    body [(G4983 sōmatos)](G4983)
+    of Jesus [(G2424 Iēsou)](G2424)
+    Christ [(G5547 Christou)](G5547)
+    once for all [(G2178 ephapax)](G2178)
+
+> **[Hebrews 10:10-17](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A10-17&version=ESV)** - And by that will we have been sanctified through the offering of the body of Jesus Christ once for all. And every priest stands daily at his service, offering repeatedly the same sacrifices, which can never take away sins. But when <ins>Christ had offered for all time a single sacrifice for sins,</ins> he sat down at the right hand of God, waiting from that time until his enemies should be made a footstool for his feet. For by a single offering he has perfected for all time those who are being sanctified. And **the Holy Spirit** also bears witness to us; for after saying, This is the covenant that I will make with them after those days, declares the Lord: I will put my laws on their hearts, and write them on their minds, then he adds, I will remember their sins and their lawless deeds no more.
+
 -   Immediately we are reconciled to God by the death of His Son. We are justified,
--   and then we are saved from the wrath of God by His life, repenting from sin and keeping His commandments, being sanctified, not resisting the Holy Spirit's work of sanctifying us to correcct out behaviour and thoughts, and separated from the world, since friendship with the world is emnity with God
-    -   **[Ephesians 2:3](https://www.biblegateway.com/passage/?search=Ephesians%202%3A3&version=ESV)** - among whom we all once lived in the passions of our flesh, carrying out the desires of the body and the mind, and were by nature children of wrath, like the rest of mankind. (ESV)
+-   and then we are saved from the wrath of God by His life, continue to turn away from sin and keeping His commandments, being sanctified, not resisting the Holy Spirit's work of sanctifying us to correct out behaviour and thoughts, and separated from the world, since friendship with the world is emnity with God (**[Ephesians 2:3](https://www.biblegateway.com/passage/?search=Ephesians%202%3A3&version=ESV)**)
 -   also, we meanwhile rejoice in God through our Lord Jesus Christ
 
 > **[Romans 5:8-11](https://www.biblegateway.com/passage/?search=Romans%205%3A8-11&version=ESV)** - but God shows his love for us in that while we were still sinners, Christ died for us. Since, therefore, we have now been justified by his blood, much more shall we be saved by him from the wrath of God. For if while we were enemies we were reconciled to God by the death of his Son, much more, now that we are reconciled, shall we be saved by his life. More than that, we also rejoice in God through our Lord Jesus Christ, through whom we have now received reconciliation. (ESV)
@@ -32482,7 +32535,7 @@ Jesus' act of obedience leads to:
 -   life
     -   I believe that the life of Jesus helps us to stop sinning
         -   [youtube.com: The Effort Needed to Fight Sin: Living Out Identity in Christ, Part 2](https://www.youtube.com/watch?v=eMgX_rQgIvo)
-    -   Even though we are born of the Spirit, we still live the rest of the time on earth in obedience to Jesus to get to know Jesus and become like Him in His death
+    -   Even though we are born of the Spirit, we still live the rest of the time on earth in obedience to Jesus to get to know Jesus better and become like Him, even in His death
 
 > **[Romans 5:18](https://www.biblegateway.com/passage/?search=Romans%205%3A18&version=ESV)** - Therefore, as one trespass led to condemnation for all men, so one act of righteousness leads to justification and life for all men. (ESV)
 
@@ -46718,6 +46771,16 @@ We must obey! This obedience is being led by the Spirit.
     > **[Colossians 2:18-19](https://www.biblegateway.com/passage/?search=Colossians%202%3A18-19&version=ESV)** - Let no one disqualify you, insisting on asceticism and worship of angels, going on in detail about visions, puffed up without reason by his sensuous mind, and not holding fast to the Head, from whom the whole body, nourished and knit together through its joints and ligaments, grows with a growth that is from God.
     
     > **[Revelation of John 2:10](https://www.biblegateway.com/passage/?search=Revelation%202%3A10&version=ESV)** - Do not fear what you are about to suffer. Behold, the devil is about to throw some of you into prison, that you may be tested, and for ten days you will have tribulation. **Be faithful unto death**, and I will give you the crown of life. (ESV)
+    
+    The person who rejects Jesus is condemned already in an **immediate** sense:
+    
+    > **[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)** - For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does [(G4160 poiōn; doing)](G4160) what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+    
+    > **[John 3:17-21](https://www.biblegateway.com/passage/?search=John%203%3A17-21&version=ESV)** - For God did not send his Son into the world to condemn the world, but in order that the world might be saved through him. **Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God.** And this is the judgment: the light has come into the world, and people loved the darkness rather than the light because their deeds were evil. For everyone who does wicked things hates the light and does not come to the light, lest his deeds should be exposed. But whoever does [(G4160 poiōn; doing)](G4160) what is true comes to the light, so that it may be clearly seen that his deeds have been carried out in God. (ESV)
+    
+    An unbelieving person is not only already condemned but is also storing up wrath for themself for the day of wrath:
+    
+    > **[Romans 2:5](https://www.biblegateway.com/passage/?search=Romans%202%3A5&version=ESV)** - But because of your hard and impenitent heart you are storing up wrath for yourself on the day of wrath when God's righteous judgment will be revealed. (ESV)
 
 5.  We must endeavour to live faithfully to our Jesus Christ
 
@@ -53715,7 +53778,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org92add2a)
+See: [33.4.1](#org48a1ac1)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -75598,7 +75661,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org92add2a)
+See: [33.4.1](#org48a1ac1)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -78258,7 +78321,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org7233c07) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgc1810f6) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -80968,7 +81031,7 @@ God is the Creator, our Maker.
 -   For those who are called according to His purpose
 -   All things work together for good
 
-God's ultimately the one in control of us but from our perspective we must submit to His righteousness and His will and be obedient.
+> **[Ezekiel 18:20-24](https://www.biblegateway.com/passage/?search=Ezekiel%2018%3A20-24&version=ESV)** - The soul who sins shall die. The son shall not suffer for the iniquity of the father, nor the father suffer for the iniquity of the son. The righteousness of the righteous shall be upon himself, and the wickedness of the wicked shall be upon himself. But if a wicked person turns away from all his sins that he has committed and keeps all my statutes and does what is just and right, he shall surely live; he shall not die. None of the transgressions that he has committed shall be remembered against him; for the righteousness that he has done he shall live. Have I any pleasure in the death of the wicked, declares the Lord GOD, and not rather that he should turn from his way and live? But when a righteous person turns away from his righteousness and does injustice and does the same abominations that the wicked person does, shall he live? None of the righteous deeds that he has done shall be remembered; for the treachery of which he is guilty and the sin he has committed, for them he shall die. (ESV)
 
 To <ins>make election sure</ins>, and **to not fail**, one must practice personal righteousness and put a stop to sin.
 
@@ -86837,7 +86900,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org7233c07) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgc1810f6) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -88175,7 +88238,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org6faddce)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgc77fa12)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
