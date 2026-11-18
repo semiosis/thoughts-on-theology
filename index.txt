@@ -26377,9 +26377,36 @@ There is an entirely new cosmos, and we want to be a part of it:
   righteousness dwells. Therefore, beloved, since you are waiting for these, be diligent to be found by him
   without spot or blemish, and at peace. (ESV)
 
+youtube.com: Ray Comfort Told Me to Read My Bible . So I Did . {@ createdforapurpose }
+This video challenged me to do another Bible study myself. I commented on it.
+
+There is ultimately a total ending of this present heavens and earth and an entirely new creation, and we have
+hope for a good future in an entirely new heavens and a new hearth and we prepare ourselves for this by walking in
+faith, love and holiness. We're instructed to do the will of God. We trust in God's promises through the eyes of
+faith:
+
+  II Peter 3:10-14 - But the day of the Lord will come like a thief, and then the heavens will pass away with a
+  roar, and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it
+  will be exposed. Since all these things are thus to be dissolved, what sort of people ought you to be in lives
+  of holiness and godliness, waiting for and hastening the coming of the day of God, because of which the heavens
+  will be set on fire and dissolved, and the heavenly bodies will melt as they burn! But according to his promise
+  we are waiting for new heavens and a new earth in which righteousness dwells. Therefore, beloved, since you are
+  waiting for these, be diligent to be found by him without spot or blemish, and at peace. (ESV)
+
+  Genesis 8:22 - While the earth remains, seedtime and harvest, cold and heat, summer and winter, day and night,
+  shall not cease. (ESV)
+
+  Luke 21:33 - Heaven and earth will pass away, but my words will not pass away. (ESV)
+
 To use some computer science lingo, by the end/close of the age, we want to be "sorted" (Matthew 13:49) into
 (counted among) the wheat, not sorted into the tares because the tares are the ungodly people (the children of the
 devil, people who prefer sin to God) who are destroyed by fire.
+
+[[https://biblehub.com/interlinear/2_thessalonians/1-9.htm][II Thessalonians 1:9]]* (Interlinear)
+who (G3748 hoitines) [the] penalty (G1349 dikēn) will suffer (G5099 tisousin) of destruction (G3639 olethron)
+eternal (G166 aiōnion) away from (G575 apo) [the] presence (G4383 prosōpou) of the (G3588 tou) Lord (G2962 Kyriou)
+and (G2532 kai) from (G575 apo) the (G3588 tēs) glory (G1391 doxēs) of the (G3588 tēs) power (G2479 ischyos) of
+him (G846 autou)
 
   Psalms 145:20 - The LORD preserves all who love him, but all the wicked he will destroy. (ESV)
 
@@ -26402,21 +26429,63 @@ devil, people who prefer sin to God) who are destroyed by fire.
   Kyriou) and (G2532 kai) from (G575 apo) the (G3588 tēs) of the (G3588 tēs) power (G2479 ischyos) of him (G846
   autou)
 
-Annihilated is not the right word I think because the fire is eternal, and there is real evidence of eternal
-torment. I mean Satan, the beast and the false prophet will most surely experience eternal torment, but there is
-also indication of a similar fate. The Lake of Fire is where eternal torment happens, and it is away (II
+The Lake of Fire is where eternal torment happens (reading from Revelation, it's explicit that the devil and the
+false prophet and the beast referred to experience eternal torment in the Lake of Fire), and it is away (II
 Thessalonians 1:9) from the presence of God unlike what this video tried to affirm. Hades/Sheol would not be "away
 from the presence of God" (Psalms 139:8) and so taking Colossians 1:17 to mean God's presence is in the Lake of
 Fire I think is an overstep. When the Son of Man separates the sheep from the goats, the goats are then sent to
-the Lake eof Fire (Matthew 25:41). And also, part of why I'm reluctant to take Colossians 1:17 as indicating the
+the Lake of Fire (Matthew 25:41). And also, part of why I'm reluctant to take Colossians 1:17 as indicating the
 presence of God in the Lake of Fire is that the Greek root word pertaining to "all" (G3956 panti/pantōn/panta)
-that is used by Colossians 1:17 is also used to say "love believes all" in I Corinthians 13:7 yet the Apostle John
-instructs "do not believe all spirit" (I John 4:1), and so a question for me is, "Is it truly loving to believe
-others even when they lie to you?" because that's seems like the logical implication of saying "love believes
-all". And if true agape love does not believe lies (Proverbs 13:5, Proverbs 17:4) then the word for "all" might be
-taken somewhat differently or in a different way. True agape love believes all of what? I John 3:9. That's just
-another reason why I don't immediately accept (especially without being a Berean myself) someone's claim that God
-also presides in the Lake of Fire the same way He might in Hades / Sheol:
+that is used by Colossians 1:17 is also used to say "agape love believes all" in I Corinthians 13:7 yet the
+Apostle John instructs "do not believe all spirit" (I John 4:1), and so a question for me is, "Is it truly agape
+loving to believe others even when they are lying?" because deep down I believe that it's not true that
+understanding "agape love believes all" means that "agape love believes everything and anything even what is evil"
+an I'd put a lie into the category of "evil". When I look at the Scripture and I see "love believes all" I'm
+naturally cautious about the scope of that word "all". I'm not fluent in Biblical Greek, and I'm reading it with
+my guard up. And if someone practicing true faith and agape love does not even listen to / receive lies (Proverbs
+13:5, Proverbs 17:4) then the word for "all" in Colossians 1:17 might be taken somewhat differently or in a
+different way rather than "everything and anything" including the Lake of Fire. That's where I'm coming from when
+reading that. True agape love believes all of what and how? I like to think that love gives 'the benefit of the
+doubt", so to speak, giving others opportunity to do the right thing when that principle applies, as Polycarp
+seems to indicate in his writing.
+
+Polycarp 6:1
+And the presbyters also must be compassionate, merciful towards all men, turning back the sheep that are gone
+astray, visiting all the infirm, not neglecting a widow or an orphan or a poor man: but providing always for that
+which is honorable in the sight of God and of men, abstaining from all anger, respect of persons, unrighteous
+judgment, being far from all love of money, not quick to believe anything against any man, not hasty in judgment,
+knowing that we all are debtors of sin.
+
+But back to the main point: The usage of the Greek word used for "all" is just another reason why I don't
+immediately accept (especially without confirming myself as so mentioned Bereans did) someone's claim that God
+also presides in the Lake of Fire as it is established that He does in Hades / Sheol (at least before Hades itself
+is thrown into the Lake of Fire, that is). The way in which God might preside somewhere too is an important
+detail. I am not convinced that the Lake of Fire itself is going to be "reclaimed" at any stage when the Scripture
+says that the devil, beast and false prophet will be tormented there forever. Jesus has defeated death and has the
+keys of death and of Hades, but the Lake of Fire pertains to the second death, and I'm presently of the persuasion
+that there is no coming back from the Lake of Fire. But God knows how it all works better than I do!
+
+And having brought into my comments a verse from I John 4, I may as well state here that I believe that Jesus is
+the Christ the Son of God who has come from God into the world as flesh and He died on tree and He rose from the
+dead and a person is saved by believing in Jesus Christ who is God's Son.
+
+I also believe that God is longsuffering and desiring all people to come to repentance and into saving knowledge
+of the truth which sets a person free from committing sin (John 8:34-35,36,42,51), from committing sin that leads
+to death and into practicing righteousness in faith and in love for the truth in Christ.
+
+And I think that Revelation 21:8 is really talking about people who are ultimately not saved from committing sin
+that leads to death. True salvation is salvation from committing sin. Those who have been saved to walk in faith
+and love for God through faith in Jesus Christ are ultimately set free from committing sin that would land them in
+the lake of fire.
+
+  Revelation of John 20:5-6 - The rest of the dead did not come to life until the thousand years were ended. This
+  is the first resurrection. Blessed and holy is the one who shares in the first resurrection! Over such the
+  second death has no power, but they will be priests of God and of Christ, and they will reign with him for a
+  thousand years. (ESV)
+
+  Revelation of John 21:8 - But as for the cowardly, the faithless, the detestable, as for murderers, the sexually
+  immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur,
+  which is the second death. (ESV)
 
   Psalms 139:8 - If I ascend to heaven, you are there! If I make my bed in Sheol, you are there! (ESV)
 
@@ -81502,7 +81571,7 @@ saved. Also, it seems that the rapture doctrine was made known from a word from 
 
 Ultimately, we are waiting for incorruptible bodies, and I totally believe in rapture and ultimately a completely
 new heavens and earth (not just a renewal, although I do believe God is still taking care of and reigning on the
-earth), so I think that whatever Paul the Apostle is referring to here, well I have my speculatinons, is something
+earth), so I think that whatever Paul the Apostle is referring to here, well I have my speculations, is something
 more imminent, and perhaps more to do with God's kingdom work on the earth, but I still hold the eschatological
 view that there is ultimately an entirely new heavens and earth without any corruption:
 
@@ -145971,11 +146040,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-18 Wed 12:27
+Date: 2026-11-18 Wed 14:36
 
 Author: Shane Mulligan
 
-Created: 2026-11-18 Wed 12:29
+Created: 2026-11-18 Wed 14:54
 
 Validate
 

@@ -15245,7 +15245,34 @@ There is an entirely new cosmos, and we want to be a part of it:
 
 > **[II Peter 3:13-14](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A13-14&version=ESV)** - But according to his promise we are waiting for new heavens and a new earth in which righteousness dwells. Therefore, beloved, since you are waiting for these, be diligent to be found by him without spot or blemish, and at peace. (ESV)
 
+-   ****[youtube.com:  Ray Comfort Told Me to Read My Bible . So I Did . {@ createdforapurpose }](https://www.youtube.com/watch?v=EAOUHqNwVDg)**:** This video challenged me to do another Bible study myself. I commented on it.
+
+There is ultimately a total ending of this present heavens and earth and an entirely new creation, and we have hope for a good future in an entirely new heavens and a new hearth and we prepare ourselves for this by walking in faith, love and holiness. We're instructed to do the will of God. We trust in God's promises through the eyes of faith:
+
+> **[II Peter 3:10-14](https://www.biblegateway.com/passage/?search=2%20Peter%203%3A10-14&version=ESV)** - But the day of the Lord will come like a thief, and then the heavens will pass away with a roar, and the heavenly bodies will be burned up and dissolved, and the earth and the works that are done on it will be exposed. Since all these things are thus to be dissolved, what sort of people ought you to be in lives of holiness and godliness, waiting for and hastening the coming of the day of God, because of which the heavens will be set on fire and dissolved, and the heavenly bodies will melt as they burn! But according to his promise we are waiting for new heavens and a new earth in which righteousness dwells. Therefore, beloved, since you are waiting for these, be diligent to be found by him without spot or blemish, and at peace. (ESV)
+
+> **[Genesis 8:22](https://www.biblegateway.com/passage/?search=Genesis%208%3A22&version=ESV)** - While the earth remains, seedtime and harvest, cold and heat, summer and winter, day and night, shall not cease. (ESV)
+
+> **[Luke 21:33](https://www.biblegateway.com/passage/?search=Luke%2021%3A33&version=ESV)** - Heaven and earth will pass away, but my words will not pass away. (ESV)
+
 To use some computer science lingo, by the end/close of the age, we want to be "sorted" (**[Matthew 13:49](https://www.biblegateway.com/passage/?search=Matthew%2013%3A49&version=ESV)**) into (counted among) the wheat, not sorted into the tares because the tares are the ungodly people (the children of the devil, people who prefer sin to God) who are destroyed by fire.
+
+-   ****[[<https://biblehub.com/interlinear/2_thessalonians/1-9.htm>]**[[II Thessalonians 1:9](https://www.biblegateway.com/passage/?search=2%20Thessalonians%201%3A9&version=ESV)]]\* (Interlinear):** who [(G3748 hoitines)](G3748)
+    [the] penalty [(G1349 dikēn)](G1349)
+    will suffer [(G5099 tisousin)](G5099)
+    of destruction [(G3639 olethron)](G3639)
+    eternal [(G166 aiōnion)](G166)
+    away from [(G575 apo)](G575)
+    [the] presence [(G4383 prosōpou)](G4383)
+    of the [(G3588 tou)](G3588)
+    Lord [(G2962 Kyriou)](G2962)
+    and [(G2532 kai)](G2532)
+    from [(G575 apo)](G575)
+    the [(G3588 tēs)](G3588)
+    glory [(G1391 doxēs)](G1391)
+    of the [(G3588 tēs)](G3588)
+    power [(G2479 ischyos)](G2479)
+    of him [(G846 autou)](G846)
 
 > **[Psalms 145:20](https://www.biblegateway.com/passage/?search=Psalms%20145%3A20&version=ESV)** - The LORD preserves all who love him, but all the wicked he will destroy. (ESV)
 
@@ -15269,7 +15296,28 @@ To use some computer science lingo, by the end/close of the age, we want to be "
 >     power [(G2479 ischyos)](G2479)
 >     of him [(G846 autou)](G846)
 
-Annihilated is not the right word I think because the fire is eternal, and there is real evidence of eternal torment. I mean Satan, the beast and the false prophet will most surely experience eternal torment, but there is also indication of a similar fate. The Lake of Fire is where eternal torment happens, and it is away (**[II Thessalonians 1:9](https://www.biblegateway.com/passage/?search=2%20Thessalonians%201%3A9&version=ESV)**) from the presence of God unlike what [this video](https://www.youtube.com/watch?v=EAOUHqNwVDg) tried to affirm. Hades/Sheol would not be "away from the presence of God" (**[Psalms 139:8](https://www.biblegateway.com/passage/?search=Psalms%20139%3A8&version=ESV)**) and so taking [Colossians 1:17](https://www.biblegateway.com/passage/?search=Colossians%201%3A17&version=ESV) to mean God's presence is in the Lake of Fire I think is an overstep. When the Son of Man separates the sheep from the goats, the goats are then sent to the Lake eof Fire (**[Matthew 25:41](https://www.biblegateway.com/passage/?search=Matthew%2025%3A41&version=ESV)**). And also, part of why I'm reluctant to take [Colossians 1:17](https://biblehub.com/interlinear/colossians/1-17.htm) as indicating the presence of God in the Lake of Fire is that the Greek root word pertaining to "all" [(G3956 panti/pantōn/panta)](G3956) that is used by [Colossians 1:17](https://biblehub.com/interlinear/colossians/1-17.htm) is also used to say "love believes all" in [I Corinthians 13:7](https://biblehub.com/interlinear/1_corinthians/13-7.htm) yet the Apostle John instructs "do not believe all spirit" (**[I John 4:1](https://biblehub.com/interlinear/1_john/4-1.htm)**), and so a question for me is, "Is it truly loving to believe others even when they lie to you?" because that's seems like the logical implication of saying "love believes all". And if true agape love does not believe lies (**[Proverbs 13:5](https://www.biblegateway.com/passage/?search=Proverbs%2013%3A5&version=ESV)**, **[Proverbs 17:4](https://www.biblegateway.com/passage/?search=Proverbs%2017%3A4&version=ESV)**) then the word for "all" might be taken somewhat differently or in a different way. True agape love believes all of *what*? **[I John 3:9](https://www.biblegateway.com/passage/?search=1%20John%203%3A9&version=ESV)**. That's just another reason why I don't immediately accept (especially without being a Berean myself) someone's claim that God also presides in the Lake of Fire the same way He might in Hades / Sheol:
+The Lake of Fire is where eternal torment happens (reading from Revelation, it's explicit that the devil and the false prophet and the beast referred to experience eternal torment in the Lake of Fire), and it is away (**[II Thessalonians 1:9](https://www.biblegateway.com/passage/?search=2%20Thessalonians%201%3A9&version=ESV)**) from the presence of God unlike what this video tried to affirm. Hades/Sheol would not be "away from the presence of God" (**[Psalms 139:8](https://www.biblegateway.com/passage/?search=Psalms%20139%3A8&version=ESV)**) and so taking **[Colossians 1:17](https://www.biblegateway.com/passage/?search=Colossians%201%3A17&version=ESV)** to mean God's presence is in the Lake of Fire I think is an overstep. When the Son of Man separates the sheep from the goats, the goats are then sent to the Lake of Fire (**[Matthew 25:41](https://www.biblegateway.com/passage/?search=Matthew%2025%3A41&version=ESV)**). And also, part of why I'm reluctant to take **[Colossians 1:17](https://www.biblegateway.com/passage/?search=Colossians%201%3A17&version=ESV)** as indicating the presence of God in the Lake of Fire is that the Greek root word pertaining to "all" [(G3956 panti/pantōn/panta)](G3956) that is used by **[Colossians 1:17](https://www.biblegateway.com/passage/?search=Colossians%201%3A17&version=ESV)** is also used to say "agape love believes all" in **[I Corinthians 13:7](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A7&version=ESV)** yet the Apostle John instructs "do not believe all spirit" (**[I John 4:1](https://www.biblegateway.com/passage/?search=1%20John%204%3A1&version=ESV)**), and so a question for me is, "Is it truly agape loving to believe others even when they are lying?" because deep down I believe that it's not true that understanding "agape love believes all" means that "agape love believes everything and anything even what is evil" an I'd put a lie into the category of "evil". When I look at the Scripture and I see "love believes all" I'm naturally cautious about the scope of that word "all". I'm not fluent in Biblical Greek, and I'm reading it with my guard up. And if someone practicing true faith and agape love does not even listen to / receive lies (**[Proverbs 13:5](https://www.biblegateway.com/passage/?search=Proverbs%2013%3A5&version=ESV)**, **[Proverbs 17:4](https://www.biblegateway.com/passage/?search=Proverbs%2017%3A4&version=ESV)**) then the word for "all" in **[Colossians 1:17](https://www.biblegateway.com/passage/?search=Colossians%201%3A17&version=ESV)** might be taken somewhat differently or in a different way rather than "everything and anything" including the Lake of Fire. That's where I'm coming from when reading that.  True agape love believes all of what and how? I like to think that love gives 'the benefit of the doubt", so to speak, giving others opportunity to do the right thing when that principle applies, as Polycarp seems to indicate in his writing. 
+
+-   ****[Polycarp 6:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html)**:** And the presbyters also must be compassionate, merciful towards all
+    men, turning back the sheep that are gone astray, visiting all the
+    infirm, not neglecting a widow or an orphan or a poor man: but
+    providing always for that which is honorable in the sight of God
+    and of men, abstaining from all anger, respect of persons,
+    unrighteous judgment, being far from all love of money, not quick to
+    believe anything against any man, not hasty in judgment, knowing that
+    we all are debtors of sin.
+
+But back to the main point: The usage of the Greek word used for "all" is just another reason why I don't immediately accept (especially without confirming myself as so mentioned Bereans did) someone's claim that God also presides in the Lake of Fire as it is established that He does in Hades / Sheol (at least before Hades itself is thrown into the Lake of Fire, that is). The way in which God might preside somewhere too is an important detail. I am not convinced that the Lake of Fire itself is going to be "reclaimed" at any stage when the Scripture says that the devil, beast and false prophet will be tormented there forever. Jesus has defeated death and has the keys of death and of Hades, but the Lake of Fire pertains to the second death, and I'm presently of the persuasion that there is no coming back from the Lake of Fire. But God knows how it all works better than I do!
+
+And having brought into my comments a verse from **[I John 4](https://www.biblegateway.com/passage/?search=1%20John%204&version=ESV)**, I may as well state here that I believe that Jesus is the Christ the Son of God who has come from God into the world as flesh and He died on tree and He rose from the dead and a person is saved by believing in Jesus Christ who is God's Son.
+
+I also believe that God is longsuffering and desiring all people to come to repentance and into saving knowledge of the truth which sets a person free from committing sin ([John 8:34-35,36,42,51](https://www.biblegateway.com/passage/?search=John%208%3A34-35%2C36%2C42%2C51&version=ESV)), from committing sin that leads to death and into practicing righteousness in faith and in love for the truth in Christ.
+
+And I think that **[Revelation 21:8](https://www.biblegateway.com/passage/?search=Revelation%2021%3A8&version=ESV)** is really talking about people who are ultimately not saved from committing sin that leads to death. True salvation is salvation from committing sin. Those who have been saved to walk in faith and love for God through faith in Jesus Christ are ultimately set free from committing sin that would land them in the lake of fire.
+
+> **[Revelation of John 20:5-6](https://www.biblegateway.com/passage/?search=Revelation%2020%3A5-6&version=ESV)** - The rest of the dead did not come to life until the thousand years were ended. This is the first resurrection. Blessed and holy is the one who shares in the first resurrection! Over such the second death has no power, but they will be priests of God and of Christ, and they will reign with him for a thousand years. (ESV)
+
+> **[Revelation of John 21:8](https://www.biblegateway.com/passage/?search=Revelation%2021%3A8&version=ESV)** - But as for the cowardly, the faithless, the detestable, as for murderers, the sexually immoral, sorcerers, idolaters, and all liars, their portion will be in the lake that burns with fire and sulfur, which is the second death. (ESV) 
 
 > **[Psalms 139:8](https://www.biblegateway.com/passage/?search=Psalms%20139%3A8&version=ESV)** - If I ascend to heaven, you are there! If I make my bed in Sheol, you are there! (ESV)
 
@@ -22730,7 +22778,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9c5f611) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1ed491c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -28613,7 +28661,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org566c071).
+I didn't know but it turned out to be the last day of my [sentence](#orgcd5edd0).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -50726,7 +50774,7 @@ Jesus went to the place of the dead so people who had died (those who Paul is re
 
 > **[I Thessalonians 4:14-17](https://www.biblegateway.com/passage/?search=1%20Thessalonians%204%3A14-17&version=ESV)** - For **since we believe that Jesus died and rose again, even so, through Jesus, God will bring with him those who have fallen asleep.** For this **we declare to you by a word from the Lord,** that <ins>we who are alive, who are left until the coming of the Lord, will not precede those who have fallen asleep. For the Lord himself will descend from heaven with a cry of command, with the voice of an archangel, and with the sound of the trumpet of God. And the dead in Christ will rise first. Then we who are alive, who are left, will be caught up together with them in the clouds to meet the Lord in the air, and so we will always be with the Lord.</ins> (ESV)
 
-Ultimately, we are waiting for incorruptible bodies, and I totally believe in rapture and ultimately a completely new heavens and earth (not just a renewal, although **I do believe God is still taking care of and reigning on the earth**), so I think that whatever Paul the Apostle is referring to here, *well I have my speculatinons*, is something more imminent, and perhaps more to do with **God's kingdom work on the earth**, but I still hold the eschatological view that there is ultimately an entirely new heavens and earth without any corruption:
+Ultimately, we are waiting for incorruptible bodies, and I totally believe in rapture and ultimately a completely new heavens and earth (not just a renewal, although **I do believe God is still taking care of and reigning on the earth**), so I think that whatever Paul the Apostle is referring to here, *well I have my speculations*, is something more imminent, and perhaps more to do with **God's kingdom work on the earth**, but I still hold the eschatological view that there is ultimately an entirely new heavens and earth without any corruption:
 
 > **[I Corinthians 7:29-31](https://www.biblegateway.com/passage/?search=1%20Corinthians%207%3A29-31&version=ESV)** - This is what I mean, brothers: **the appointed time has grown very short**. From now on, let those who have wives live as though they had none, and those who mourn as though they were not mourning, and those who rejoice as though they were not rejoicing, and those who buy as though they had no goods, and those who deal with the world as though they had no dealings with it. For the present form of this world is passing away. (ESV)
 
@@ -53778,7 +53826,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org48a1ac1)
+See: [33.4.1](#org165e3ea)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -75661,7 +75709,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org48a1ac1)
+See: [33.4.1](#org165e3ea)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -78321,7 +78369,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgc1810f6) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org01dda3e) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -86900,7 +86948,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgc1810f6) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org01dda3e) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -88238,7 +88286,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgc77fa12)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org1b121ad)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
@@ -89988,7 +90036,7 @@ Well, actually, Jesus says that heaven and earth will pass away (G3928 pareleuse
 
 > **[Mark 9:47-48](https://www.biblegateway.com/passage/?search=Mark%209%3A47-48&version=ESV)** - And if your eye causes you to sin, tear it out. It is better for you to enter the kingdom of God with one eye than with two eyes to be thrown into hell, where their worm does not die and the fire is not quenched (G4570 sbennytai: To quench, to extinguish, to put out). (ESV)
 
-I do not believe in "reincarnation" into the same 'kosmos' (G2889 kosmos: world). At the close of the age the bad people get sent to the bad place (**[Luke 12:5](https://www.biblegateway.com/passage/?search=Luke%2012%3A5&version=ESV)**) and the good people go to a distinct 'kosmos' where righteousness dwells:
+I do not believe in "reincarnation" into the same 'kosmos' [(G2889 kosmos: world)](G2889). At the close of the age the bad people get sent to the bad place (**[Luke 12:5](https://www.biblegateway.com/passage/?search=Luke%2012%3A5&version=ESV)**) and the good people go to a distinct 'kosmos' where righteousness dwells:
 
 > **[Matthew 13:45-52](https://www.biblegateway.com/passage/?search=Matthew%2013%3A45-52&version=ESV)** - Again, the kingdom of heaven is like a merchant in search of fine pearls, who, on finding one pearl of great value, went and sold all that he had and bought it. Again, the kingdom of heaven is like a net that was thrown into the sea and gathered fish of every kind. When it was full, men drew it ashore and sat down and sorted the good into containers but threw away the bad. So it will be at the close of the age. <ins>The angels will come out and separate the evil from the righteous and throw them into the fiery furnace.</ins> In that place there will be weeping and gnashing of teeth. Have you understood all these things? They said to him, Yes. And he said to them, Therefore every scribe who has been trained for the kingdom of heaven is like a master of a house, who brings out of his treasure what is new and what is old.
 
@@ -90060,7 +90108,7 @@ We endure trials and tribulations, and the world rejoices meanwhile, but in the 
 
 ### Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-11-23 Sun&gt;</span></span>
 
-I do not believe in "reincarnation" into the same 'kosmos' (G2889 kosmos: world). At the close of the age the bad people get sent to the bad place (**[Luke 12:5](https://www.biblegateway.com/passage/?search=Luke%2012%3A5&version=ESV)**) and the good people go to a distinct 'kosmos' where righteousness dwells. I believe that the righteousness go to heaven with incorruptible bodies, rather than back to Earth:
+I do not believe in "reincarnation" into the same 'kosmos' [(G2889 kosmos: world)](G2889). At the close of the age the bad people get sent to the bad place (**[Luke 12:5](https://www.biblegateway.com/passage/?search=Luke%2012%3A5&version=ESV)**) and the good people go to a distinct 'kosmos' where righteousness dwells. I believe that the righteousness go to heaven with incorruptible bodies, rather than back to Earth:
 
 > **[Matthew 13:45-52](https://www.biblegateway.com/passage/?search=Matthew%2013%3A45-52&version=ESV)** - Again, the kingdom of heaven is like a merchant in search of fine pearls, who, on finding one pearl of great value, went and sold all that he had and bought it. Again, the kingdom of heaven is like a net that was thrown into the sea and gathered fish of every kind. When it was full, men drew it ashore and sat down and sorted the good into containers but threw away the bad. So it will be at the close of the age. <ins>The angels will come out and separate the evil from the righteous and throw them into the fiery furnace.</ins> In that place there will be weeping and gnashing of teeth. Have you understood all these things? They said to him, Yes. And he said to them, Therefore every scribe who has been trained for the kingdom of heaven is like a master of a house, who brings out of his treasure what is new and what is old.
 
