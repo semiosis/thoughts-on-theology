@@ -5770,8 +5770,8 @@ We are supposed to hold fast to what is good and truthful (i.e. Christ's teachin
   I Thessalonians 5:20-21 - Do not despise prophecies, but test everything; hold fast what is good. (ESV)
 
 I think of this like getting our "ducks in a row". With regards to the expansive teachings and commandments that
-are instructed of us by Christ, we should be seeking to do His word all of what is God's will for us to do, at the
-same time (Colossians 4:12). Hold fast to what we have attained already (Philippians 3:12-21), and continue
+are instructed of us by Christ, we should be seeking to do His word in all of what is God's will for us to do, and
+at the same time (Colossians 4:12). Hold fast to what we have attained already (Philippians 3:12-21), and continue
 integrating more of the truth, taking captive every thought for obedience to Christ Jesus, until one's obedience
 is complete (II Corinthians 10:5-6, Matthew 5:43-48), but continuing on also. Some people might think that sounds
 like there is no rest to be had, but surely that is not what is being said. Jesus promises rest to those who come
@@ -5798,19 +5798,20 @@ Hearing the word and holding it fast in an honest and good heart, a person loves
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
+youtube.com: The Gospel Before Jesus Died {@ desiringGod } @time: 10 min 31 sec
+And if we ask, "How much did various people understand in order to be saved?" Because people were saved by the
+death of Christ before the death of Christ. We know that from Romans 3:25. The best way to answer that question, I
+think, is to say people generally embraced Christ with very different levels of understanding and whether that
+initial faith was real and saving (with its imperfect understanding), whether or not it was real was proved by
+whether or not a person kept on embracing the gospel as more and more of it was revealed to them. And I think
+that's exactly the way it is today.
+
 The Gospel includes:
 
 • God as Creator, King of the world
 • Jesus' Reign as King
 • God's Kingdom coming through the arrival of God's Son
 • Jesus giving his life as a ransom for sinners
-• youtube.com: The Gospel Before Jesus Died {@ desiringGod } @time: 10 min 31 sec
-">And if we ask, "How much did various people understand in order to be saved?" Because people were saved by the
-death of Christ before the death of Christ. We know that from Romans 3:25. The best way to answer that question, I
-think, is to say people generally embraced Christ with very different levels of understanding and whether that
-initial faith was real and saving (with its imperfect understanding), whether or not it was real was proved by
-whether or not a person kept on embracing the gospel as more and more of it was revealed to them. And I think
-that's exactly the way it is today.
 
   Luke 2:10-11 - And the angel said to them, Fear not, for behold, I bring you good news of a great joy that will
   be for all the people. For unto you is born this day in the city of David a Savior, who is Christ the Lord.
@@ -7688,6 +7689,20 @@ God:
   sexual immorality. We have one Father—even God. Jesus said to them, If God were your Father, you would love me,
   for I came from God and I am here. I came not of my own accord, but he sent me. (ESV)
 
+If God is a person's father then they would love Jesus Christ, and God is the father of all who believe in Jesus
+Christ. Therefore, a true believer in Jesus Christ loves Jesus Christ. That means that a true faith in Jesus
+Christ must have love for the truth:
+
+  Romans 4:11 - He received the sign of circumcision as a seal of the righteousness that he had by faith while he
+  was still uncircumcised. The purpose was to make him the father of all who believe without being circumcised, so
+  that righteousness would be counted to them as well, (ESV)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
 So the faith we need to be found by God having is a loving faith in Jesus Christ. That doesn't mean that there are
 not any works associated with that faith (but God looks at the heart), and it doesn't mean that there are not any
 commandments / law associated with that faith that the person who is commended was trying to abide by (Hebrews
@@ -8897,8 +8912,8 @@ Journal <2026-11-09 Mon 12:44>
 
 Being been born-again, it's important to not hold others accountable for debt particularly for deeds done up to
 that point. What about going forward? As a person who's debt has been cancelled, it's important to not bear
-grudges and hold people accountable to perlceived debts with others had owed up to that point. Also, as Polycarp
-advises, we should not be hasty in judgement.
+grudges and hold people accountable to perceived debts with others had owed up to that point. Also, as Polycarp
+advises (Polycarp 6:1), we should not be hasty in judgement.
 
 To forgive others as have been forgiven by God does not mean that its OK for others to continue practicing sin and
 the person who is born-again (person A) must accept/tolerate it, but I do believe that for someone who's debt has
@@ -26458,8 +26473,8 @@ knowing that we all are debtors of sin.
 
 But back to the main point: The usage of the Greek word used for "all" is just another reason why I don't
 immediately accept (especially without confirming myself as so mentioned Bereans did) someone's claim that God
-also presides in the Lake of Fire as it is established that He does in Hades / Sheol (at least before Hades itself
-is thrown into the Lake of Fire, that is). The way in which God might preside somewhere too is an important
+also is present in the Lake of Fire in the same way He is present in Hades / Sheol (at least before Hades itself
+is thrown into the Lake of Fire, that is). The way in which God might be present somewhere too is an important
 detail. I am not convinced that the Lake of Fire itself is going to be "reclaimed" at any stage when the Scripture
 says that the devil, beast and false prophet will be tormented there forever. Jesus has defeated death and has the
 keys of death and of Hades, but the Lake of Fire pertains to the second death, and I'm presently of the persuasion
@@ -146040,11 +146055,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-18 Wed 14:36
+Date: 2026-11-18 Wed 17:49
 
 Author: Shane Mulligan
 
-Created: 2026-11-18 Wed 15:19
+Created: 2026-11-18 Wed 18:26
 
 Validate
 
