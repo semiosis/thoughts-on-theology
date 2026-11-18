@@ -3257,8 +3257,8 @@ witness; not rendering evil for evil or railing for railing or blow for blow or 
   am pursuing) to make it my own, because Christ Jesus has made me his own. (ESV)
 
 HELPS Word-studies
-G1377 diṓkō – properly, aggressively chase, like a hunter pursuing a catch (prize). G1377 (diṓkō) is used
-positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, G1377 (diṓkō)
+(G1377 diṓkō) – properly, aggressively chase, like a hunter pursuing a catch (prize). (G1377 diṓkō) is used
+positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, (G1377 diṓkō)
 means pursue with all haste ("chasing" after), earnestly desiring to overtake (apprehend)
 
   Philippians 3:13 - Brothers, I do not consider that I have made it my own (G2638 kateilēphenai; to have taken
@@ -4580,14 +4580,9 @@ faith:
 We must not be those who work (G2038 ergazomenoi) lawlessness:
 
 Matthew 7:23 (Interlinear)
-
 And (G2532 kai) then (G5119 tote) I will declare (G3670 homologēsō) to them (G846 autois) - (G3754 hoti) Never
 (G3763 Oudepote) knew I (G1097 egnōn) you (G4771 hymas) depart you (G672 apochōreite) from (G575 ap’) me (G1473
-emou) those (G3588 hoi) working (G2038 ergazomenoi)
-
-• (G3588 tēn)
-
-lawlessness (G458 anomian)
+emou) those (G3588 hoi) working (G2038 ergazomenoi) - (G3588 tēn) lawlessness (G458 anomian)
 
 We must be those who do (G4160 poiōn) righteousness:
 
@@ -56777,10 +56772,33 @@ thing:
   being raised from the dead will never die again; death no longer has dominion over him. For the death he died he
   died to sin, once for all, but the life he lives he lives to God. (ESV)
 
-I think that what the following is saying is that in a real sense a person who has died with Christ has already
-died the death that people typically think of as the death of the body in a real sense. The resurrection body is
-something that we do look forward to receiving. I think these verses are saying that as people who have received
-the Holy Spirit, we expect that later our physical bodies (which are dead) will be made alive again:
+Journal <2026-11-19 Thu 08:45>
+
+So a born-again person who is still in their old flesh has died and been reborn spiritually. But what about
+somebody who has physically died as a believer before they have been born-again? I guess that they would be
+"sleeping" until they are born-again. Those people are who I would refer to as the "dead in Christ" (I
+Thessalonians 4:16) are believers who are dead (in a state of sleep). A believer who is born-again is "alive in
+Christ" (I Thessalonians 4:17). Death still being a part of the mechanism of being born-again of the spirit,
+somebody who has died might be born-again right at that moment that they die or at some point while they are dead
+(while they 'sleep'; The Scripture uses this terminology: 'fallen asleep').
+
+  Daniel 12:1-3 - At that time shall arise Michael, the great prince who has charge of your people. And there
+  shall be a time of trouble, such as never has been since there was a nation till that time. But at that time
+  your people shall be delivered, everyone whose name shall be found written in the book. And many of those who
+  sleep in the dust of the earth shall awake, some to everlasting life, and some to shame and everlasting
+  contempt. And those who are wise shall shine like the brightness of the sky above; and those who turn many to
+  righteousness, like the stars forever and ever. (ESV)
+
+  I Thessalonians 4:14 - For since we believe that Jesus died and rose again, even so, through Jesus, God will
+  bring with him those who have fallen asleep. (ESV)
+
+I think that what the following is saying is that in a real sense a person who has died with Christ and been
+born-again has already died the death that people typically think of as when a person physically dies, but it's
+really primarily a spiritual death and rebirth together with a lingering death of the body. The Adamic flesh is
+condemned because of sin. The spirit is alive because of righteousness. The resurrection body is something that we
+do look forward to receiving. I think these verses are saying that as people who have received the Holy Spirit, we
+expect that later our physical bodies (which are dead) will be made alive again / we will receive a new
+resurrection body:
 
   Romans 8:10-11 - But if Christ is in you, although the body is dead because of sin, the Spirit is life because
   of righteousness. If the Spirit of him who raised Jesus from the dead dwells in you, he who raised Christ Jesus
@@ -146055,11 +146073,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-18 Wed 17:49
+Date: 2026-11-19 Thu 09:03
 
 Author: Shane Mulligan
 
-Created: 2026-11-18 Wed 18:26
+Created: 2026-11-19 Thu 09:07
 
 Validate
 
