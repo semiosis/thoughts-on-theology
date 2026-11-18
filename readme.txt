@@ -26213,7 +26213,7 @@ We must test everything:
   and body be kept blameless at the coming of our Lord Jesus Christ. (ESV)
 
 There is ultimately a total ending of this present heavens and earth and an entirely new creation, and we have
-hope for a good future in an entirely new heavens and a new hearth and we prepare ourselves for this by walking in
+hope for a good future in an entirely new heavens and a new earth and we prepare ourselves for this by walking in
 faith, love and holiness. We're instructed to do the will of God. We trust in God's promises through the eyes of
 faith:
 
@@ -26381,7 +26381,7 @@ youtube.com: Ray Comfort Told Me to Read My Bible . So I Did . {@ createdforapur
 This video challenged me to do another Bible study myself. I commented on it.
 
 There is ultimately a total ending of this present heavens and earth and an entirely new creation, and we have
-hope for a good future in an entirely new heavens and a new hearth and we prepare ourselves for this by walking in
+hope for a good future in an entirely new heavens and a new earth and we prepare ourselves for this by walking in
 faith, love and holiness. We're instructed to do the will of God. We trust in God's promises through the eyes of
 faith:
 
@@ -26402,7 +26402,7 @@ To use some computer science lingo, by the end/close of the age, we want to be "
 (counted among) the wheat, not sorted into the tares because the tares are the ungodly people (the children of the
 devil, people who prefer sin to God) who are destroyed by fire.
 
-[[https://biblehub.com/interlinear/2_thessalonians/1-9.htm][II Thessalonians 1:9]]* (Interlinear)
+II Thessalonians 1:9 (Interlinear)
 who (G3748 hoitines) [the] penalty (G1349 dikēn) will suffer (G5099 tisousin) of destruction (G3639 olethron)
 eternal (G166 aiōnion) away from (G575 apo) [the] presence (G4383 prosōpou) of the (G3588 tou) Lord (G2962 Kyriou)
 and (G2532 kai) from (G575 apo) the (G3588 tēs) glory (G1391 doxēs) of the (G3588 tēs) power (G2479 ischyos) of
@@ -40300,7 +40300,7 @@ We must test everything:
   and body be kept blameless at the coming of our Lord Jesus Christ. (ESV)
 
 There is ultimately a total ending of this present heavens and earth and an entirely new creation, and we have
-hope for a good future in an entirely new heavens and a new hearth and we prepare ourselves for this by walking in
+hope for a good future in an entirely new heavens and a new earth and we prepare ourselves for this by walking in
 faith, love and holiness. We're instructed to do the will of God. We trust in God's promises through the eyes of
 faith:
 
@@ -146044,7 +146044,7 @@ Date: 2026-11-18 Wed 14:36
 
 Author: Shane Mulligan
 
-Created: 2026-11-18 Wed 14:54
+Created: 2026-11-18 Wed 15:19
 
 Validate
 
