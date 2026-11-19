@@ -48327,13 +48327,9 @@ should mean that a person stops damaging themselves by sinning.
   not touch him. (ESV)
 
 I John 5:17-18 (Interlinear)
-
-We know (G1492 oidamen) that (G3754 hoti) of (G1537 ek)
-
-• (G3588 tou)
-
-God (G2316 Theou) we are (G1510 esmen) and (G2532 kai) world (G2889 kosmos) whole (G3650 holos) in (G1722 en) the
-(G3588 tō) evil [one] (G4190 ponērō) lies (G2749 keitai)
+We know (G1492 oidamen) that (G3754 hoti) of (G1537 ek) - (G3588 tou) God (G2316 Theou) we are (G1510 esmen) and
+(G2532 kai) world (G2889 kosmos) whole (G3650 holos) in (G1722 en) the (G3588 tō) evil [one] (G4190 ponērō) lies
+(G2749 keitai)
 
 Interesting the KJV says the same, at least for the 19th verse:
 
@@ -48836,7 +48832,8 @@ Jesus. But the True Holy Spirit bears witness about Jesus
   John 15:26 - But when the Helper comes, whom I will send to you from the Father, the Spirit of truth, who
   proceeds from the Father, he will bear witness about me. (ESV)
 
-• Read ::biblehub.com spirit.htm: The Holy Spirit Bearing Witness to Jesus Christ.
+Read
+biblehub.com spirit.htm: The Holy Spirit Bearing Witness to Jesus Christ.
 
 I believe that among other things I have had to fight against, reject or repent from:
 
@@ -62948,7 +62945,8 @@ I made a job application two days ago to a supermarket.
 
 Their job advertisement included claim:
 
- | We believe that diversity, equity, inclusion and belonging are key to realising our purpose of better together for a better tomorrow.
+  We believe that diversity, equity, inclusion and belonging are key to realising our purpose of better together
+  for a better tomorrow.
 
 I had put in my cover letter the following:
 
@@ -62961,13 +62959,15 @@ I received what appears to be an automated email from a bot.
 
 At the start of the email, there is written:
 
- | We're excited you're interested in the Checkout Operator job (129815)!
+  We're excited you're interested in the Checkout Operator job (129815)!
 
 Is anyone actually excited? But continuing:
 
- | We believe the best way to get to know you is through a simple, interactive chat. It usually takes around 20 minutes. We just ask that you complete this within 48 hours so we can keep your application moving forward.
- |
- | If you've recently completed a Sapia interview with Stores NZ, you might not be required to complete it again.  If you do receive an invitation from Sapia, please complete the interview.
+  We believe the best way to get to know you is through a simple, interactive chat. It usually takes around 20
+  minutes. We just ask that you complete this within 48 hours so we can keep your application moving forward.
+
+  If you've recently completed a Sapia interview with Stores NZ, you might not be required to complete it again.
+  If you do receive an invitation from Sapia, please complete the interview.
 
 I was asked to complete an interview with a chatbot.
 
@@ -65098,8 +65098,8 @@ witness; not rendering evil for evil or railing for railing or blow for blow or 
   am pursuing) to make it my own, because Christ Jesus has made me his own. (ESV)
 
 HELPS Word-studies
-G1377 diṓkō – properly, aggressively chase, like a hunter pursuing a catch (prize). G1377 (diṓkō) is used
-positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, G1377 (diṓkō)
+(G1377 diṓkō) – properly, aggressively chase, like a hunter pursuing a catch (prize). (G1377 diṓkō) is used
+positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, (G1377 diṓkō)
 means pursue with all haste ("chasing" after), earnestly desiring to overtake (apprehend)
 
   Philippians 3:13 - Brothers, I do not consider that I have made it my own (G2638 kateilēphenai; to have taken
@@ -131284,8 +131284,8 @@ witness; not rendering evil for evil or railing for railing or blow for blow or 
   am pursuing) to make it my own, because Christ Jesus has made me his own. (ESV)
 
 HELPS Word-studies
-G1377 diṓkō – properly, aggressively chase, like a hunter pursuing a catch (prize). G1377 (diṓkō) is used
-positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, G1377 (diṓkō)
+(G1377 diṓkō) – properly, aggressively chase, like a hunter pursuing a catch (prize). (G1377 diṓkō) is used
+positively ("earnestly pursue") and negatively ("zealously persecute, hunt down"). In each case, (G1377 diṓkō)
 means pursue with all haste ("chasing" after), earnestly desiring to overtake (apprehend)
 
   Philippians 3:13 - Brothers, I do not consider that I have made it my own (G2638 kateilēphenai; to have taken
@@ -146235,11 +146235,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-19 Thu 16:59
+Date: 2026-11-19 Thu 17:20
 
 Author: Shane Mulligan
 
-Created: 2026-11-19 Thu 17:01
+Created: 2026-11-19 Thu 17:34
 
 Validate
 
