@@ -22781,7 +22781,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#orgd4f29c6) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org331cdc8) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -28664,7 +28664,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org68b380a).
+I didn't know but it turned out to be the last day of my [sentence](#orgcc823cd).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -38454,6 +38454,101 @@ That's the issue. God has to be our only Teacher. Is turning left or right inher
 
 That's why AI should not be used as inspiration for sermons.
 
+-   **Journal <span class="timestamp-wrapper"><span class="timestamp">&lt;2026-11-19 Thu 15:26&gt;</span></span>:** I made a job application two days ago to a supermarket.
+    
+    Their job advertisement included claim:
+    
+        1  We believe that diversity, equity, inclusion and belonging are key to realising our purpose of better together for a better tomorrow.
+    
+    I had put in my cover letter the following:
+    
+    > I'm on the hunt for honest work, not in any particular field, but just something where I get to be interacting face-to-face with people
+    > doing something that I feel like is serving others, making a positive impact for others.
+    > Not all work happens to be like that, but I think this checkout operator role I'd imagine really does fit the bill for me,
+    > and that's why I'm applying.
+    
+    I received what appears to be an automated email from a bot.
+    
+    At the start of the email, there is written:
+    
+        1  We're excited you're interested in the Checkout Operator job (129815)!
+    
+    Is anyone actually excited? But continuing:
+    
+        1  We believe the best way to get to know you is through a simple, interactive chat. It usually takes around 20 minutes. We just ask that you complete this within 48 hours so we can keep your application moving forward.
+        2  
+        3  If you've recently completed a Sapia interview with Stores NZ, you might not be required to complete it again.  If you do receive an invitation from Sapia, please complete the interview.
+    
+    I was asked to complete an interview with a chatbot.
+    
+    I applied for a job where I'd be happy serving people and with the face-to-face interraction, and the initial response I get is an emails asking me to submit to a chatbot interview.
+    
+    And I think it's an abhorrently unethical practice for AI to be used in this way.
+    Rather than, say, commit to some number of face-to-face interviews which the interviewers might reasonably get through (for explanation's sake, let's say 20),
+    a job is advertised where hundreds of people might apply, or thousands perhaps and may not ever have human eyes notice. It seem like an attack on people's personhood and value as human beings when they are pushed into pretending as if this machine is a person, and by this business practice it seems to me as though people are being pressured into embracing a demonic way of thinking just in order to get a job.
+    
+    How is that in any way "inclusive" when immediately people are forced though an obscene test of a person's willingness to compromise their moral values?
+    
+    I walked into the store today because I thought I might be able to talk to somebody if I asked, but I was told that I have to go through the online process and that complaints need to be made via phone to an overseas location.
+    
+    I will complain but I think I will also stop shopping there, boycotting the store. I consider their business practices to be vile.
+    
+    The Apostle Paul wrote:
+    
+    > **[I Corinthians 9:19-23](https://www.biblegateway.com/passage/?search=1%20Corinthians%209%3A19-23&version=ESV)** - For though I am free from all, I have made myself a servant to all, that I might win more of them. To the Jews I became as a Jew, in order to win Jews. To those under the law I became as one under the law (though not being myself under the law) that I might win those under the law. To those outside the law I became as one outside the law (not being outside the law of God but under the law of Christ) that I might win those outside the law. To the weak I became weak, that I might win the weak. I have become all things to all people, that by all means I might save some. I do it all for the sake of the gospel, that I may share with them in its blessings. (ESV)
+    
+    The Apostle John wrote:
+    
+    > **[Revelation of John 13:15-18](https://www.biblegateway.com/passage/?search=Revelation%2013%3A15-18&version=ESV)** - And it was allowed to give breath to the image of the beast, so that the image of the beast might even speak and might cause those who would not worship the image of the beast to be slain. Also it causes all, both small and great, both rich and poor, both free and slave, to be marked on the right hand or the forehead, so that no one can buy or sell unless he has the mark, that is, the name of the beast or the number of its name. This calls for wisdom: let the one who has understanding calculate the number of the beast, for it is the number of a man, and his number is 666. (ESV)
+    
+    And written from Isaiah the prophet:
+    
+    > **[Isaiah 59:14-15](https://www.biblegateway.com/passage/?search=Isaiah%2059%3A14-15&version=ESV)** - Justice is turned back, And righteousness stands far away; For truth has stumbled in the street, And uprightness cannot enter. Yes, truth is lacking; And he who turns aside from evil makes himself a prey. Now the LORD saw, And it was displeasing in His sight that there was no justice. (NASB)
+    
+    And the psalmist writes:
+    
+    > **[Psalms 115:3-8](https://www.biblegateway.com/passage/?search=Psalms%20115%3A3-8&version=ESV)** - Our God is in the heavens; he does all that he pleases. Their idols are silver and gold, the work of human hands. They have mouths, but do not speak; eyes, but do not see. They have ears, but do not hear; noses, but do not smell. They have hands, but do not feel; feet, but do not walk; and they do not make a sound in their throat. Those who make them become like them; **so do all who trust in them.** (ESV)
+    
+    And in the story of Naaman and Elisha it reads as if God had pardoned Naaman:
+    
+    > **[II Kings 5:18-19](https://www.biblegateway.com/passage/?search=2%20Kings%205%3A18-19&version=ESV)** - In this matter may the LORD pardon your servant: when my master goes into the house of Rimmon to worship there, leaning on my arm, and I bow myself in the house of Rimmon, when I bow myself in the house of Rimmon, the LORD pardon your servant in this matter. He said to him, Go in peace. But when Naaman had gone from him a short distance, (ESV)
+    
+    God looks at the heart:
+    
+    > **[I Samuel 16:7](https://www.biblegateway.com/passage/?search=1%20Samuel%2016%3A7&version=ESV)** - But the Lord said to Samuel, Do not look on his appearance or on the height of his stature, because I have rejected him. For the Lord sees not as man sees: man looks on the outward appearance, but the Lord looks on the heart. (ESV)
+    
+    Words matter. What a person is confessing matters.
+    In Jesus Christ's name I rebuke this abomination of coercing people through economic pressure into working with computers as if they are persons.
+    
+    May God pardon me if I speak any words contrary to the truth in any conceived situation where I may end up taking a so-called interview with a chatbot in order to get a job. May God protect my heart and mind from delusion when utilising technology which is designed to replace the need of a business to employ real human beings. May God see that I believe in my heart that being made to use such technology that is based on unjust gain, human exploitation and theft, is a deeply immoral thing, coercing a person into walking no longer in faith.
+    May God help me in Jesus Christ's name and deliver me from this evil world.
+    
+    I'm willing to work but I don't want to think in a demonic way. Is God really going to not intervene, but force me to go through something
+    which I am not sure if I can do in faith?
+    
+    When I was born-again and I saw my regenerated soul on the 2 April 2022, I called out to Jesus to save me.
+    Before that, my previous self was researching AI fiction.
+    After getting born-again I made a marriage proposal on the 10 Aug 2022 and subsequently brought into a court of law regarding my actions.
+    I was valuing reality and truth and God and trying to make testimony of Jesus to others as best I knew at the time.
+    And I also tried to forwarn others about the need to not forsake truth, and to not replace lawyers with chatbots, for example.
+    
+    And subsequently I have seen the world dive recklessly into greed and theft and abominable idolatry with this AI stuff being pushed onto others.
+    I am willing to work but I don't want to imbibe on or affirm the evil! God help me! May God deliver me from the demonic oppression I hope and pray.
+    What does not proceed from faith is sin.
+    Would God continue to allow me to be tormented for obedience to His word?
+    Being obedient to His word I am willing to work but I also want be unstained, holy, and it feels as though I'm being pressured by satanic opposition into tolerating what I see as an incredibly evil business practice and accept "AI" into my heart and life.
+    It's so disgusting. Why has God not yet made these trials end? Would He really withhold help for years and watch me fall finally, that my spirit becomes truly broken?
+    What is the right thing to do? Does a person stoop to take the mark of the beast, in simply wanting to do the will of God?
+    The Paul instructs that if a man is not willing to work then he should not eat.
+    But I am willing, just not willing to bow to an idol.
+    Does God want a person to walk in faith and in love for Him and for Christ and their neighbour or does He not?
+    To walk in love for my neighbour I think it's right to protest against being coerced into walking no longer in faith, coerced though being made to be interviewed by a chatbot or partake in some immoral business practice in order to be able to have employment.
+    
+    The supermarket which claims to value diversity and inclusion does not in actually.
+    Otherwise, they'd be able to accommodate for somebody who for reasons of maintaining good conscience, for reasons of walking by faith, avoids using this type of technology.
+    How incredibly unloving it is to force this onto people. It's an attack on personhood and human dignity.
+    It's treating human beings as without significant value.
+
 -   **[youtube.com: John Piper Asked ChatGPT to Write a Prayer {@thegospelcoalition}](https://www.youtube.com/watch?v=CIMZH7DEPPQ):** Why were you made? Words? Computers do words better
     than you. Seriously, better than me.
     Computers do words. They don't feel anything.
@@ -38467,7 +38562,17 @@ That's why AI should not be used as inspiration for sermons.
     life takes on a totally non AI meaning of action and praise to
     God.
 
-AMEN, John Piper! I love my brother JP. Honestly though, there is more to this. What is a computer program but a bunch of commandments taught by men? They're not humans. Also, we need to keep the commandments of Christ.
+I'm less enamored by this quote from JP than I was initially, because I don't want to affirm that computers "do words better" than a human. Upon serious reflection, I do not think it is true at a spiritual level. Human beings are image-of-God-bearers and somebody who is born of God overcomes the world. And this heavens and earth will pass away, but Jesus' words will never pass away and whoever does the will of God will abide forever. The Apostle James says, "Be doers of the word, not hearers only, deceiving yourselves." And Jesus says in **[Matthew 12:33-37](https://www.biblegateway.com/passage/?search=Matthew%2012%3A33-37&version=ESV)**, "I tell you, on the day of judgment people will give account for every careless word they speak, for by your words you will be justified, and by your words you will be condemned."
+
+God sees what is in a person's heart and knows why a person speaks something. And at Pentecost there was a miracle where people were able to understand one-another in their own language. I do not think that it's one's ability to formulate and structure sentences or compose different words which determines who or what "does words better". But, rather, I think that human beings are inherently able to utilise words more powerfully than a computer ever could. God listens to a person's thoughts and sees what's in their heart. It would be making the flesh one's strength to be trusting in AI rather than God. God works powerfully in weakness. But if someone makes the flesh their strength by trusting in the flesh, loving the world and hoping in the world rather than loving and hoping in God, then they are not making God their strength.
+
+I mean, what I think John Piper means by "computers do words better than you" is that "computers can understand and compose and formulate text, even translate between languages, better than human beings can", and it might seem like proof when considering that one if having not learned a foreign languages might outsource the work of translation to a computer, but I still believe that a human being has the potential, God-willing, of doing such things better and in a miraculous way. At the spiritual level, I don't actually think it's actually true that a computer necessarily "does words better" than a human can. And so I can't agree with that. I really just can't. I have to retract saying AMEN to that comment by John Piper.
+
+I'm being pedantic, but I think it's important to be careful with words, especially as a born-again Christian.
+
+I love my brother JP. I still believe that the universe is created to have people who feel. I still do believe that.
+
+What is a computer program but a bunch of commandments taught by men? They're not humans. Also, we need to keep the commandments of Christ.
 
 > **[Isaiah 29:13-14](https://www.biblegateway.com/passage/?search=Isaiah%2029%3A13-14&version=ESV)** - And the Lord said: Because this people draw near with their mouth and honor me with their lips, while their hearts are far from me, and their fear of me is a commandment taught by men, therefore, behold, I will again do wonderful things with this people, with wonder upon wonder; and the wisdom of their wise men shall perish, and the discernment of their discerning men shall be hidden. (ESV)
 
@@ -53836,7 +53941,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org35eb0ed)
+See: [33.4.1](#orge65a3d9)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -75719,7 +75824,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org35eb0ed)
+See: [33.4.1](#orge65a3d9)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -78379,7 +78484,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org0694d76) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org857b513) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -86958,7 +87063,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org0694d76) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org857b513) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -88296,7 +88401,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgb86de90)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgc13445a)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
