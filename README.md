@@ -1093,6 +1093,12 @@ We need to continue trusting Jesus. It's not possible to simultaneously commit s
     
     > **[John 8:31-47](https://www.biblegateway.com/passage/?search=John%208%3A31-47&version=ESV)** - So Jesus said to the Jews who had believed ([G4100 pepisteukotas: having believed](G4100) ['V-RPA-AMP past tense'](https://biblehub.com/grammar/v-rpa-amp.htm)) in him, If you abide in my word, you are truly my disciples, and you will know the truth, and the truth will set you free. They answered him, We are offspring of Abraham and have never been enslaved to anyone. How is it that you say, You will become free? Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be free indeed. I know that you are offspring of Abraham; yet you seek to kill me because my word finds no place in you. I speak of what I have seen with my Father, and you do what you have heard from your father. They answered him, Abraham is our father. Jesus said to them, If you were Abraham's children, you would be doing what Abraham did, but now you seek to kill me, a man who has told you the truth that I heard from God. This is not what Abraham did. You are doing what your father did. They said to him, We were not born of sexual immorality. We have one Father—even God. Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. Why do you not understand what I say? It is because you cannot bear to hear my word. You are of your father the devil, and your will is to do your father's desires. He was a murderer from the beginning, and has nothing to do with the truth, because there is no truth in him. When he lies, he speaks out of his own character, for he is a liar and the father of lies. But because I tell the truth, you do not believe me. Which one of you convicts me of sin? If I tell the truth, why do you not believe me? Whoever is of God hears the words of God. The reason why you do not hear them is that you are not of God. (ESV)
     
+    Someone who is sinning (caught in transgression as [Galatians 6:1](https://www.biblegateway.com/passage/?search=Galatians%206%3A1&version=ESV) puts it or "a sinner wandering" as [James 5:19-20](https://www.biblegateway.com/passage/?search=James%205%3A19-20&version=ESV) puts it) needs restoration:
+    
+    > **[Galatians 6:1](https://www.biblegateway.com/passage/?search=Galatians%206%3A1&version=ESV)** - Brothers, if anyone is caught in any transgression, you who are spiritual should restore him in a spirit of gentleness. Keep watch on yourself, lest you too be tempted. (ESV)
+    
+    > **[James 5:19-20](https://www.biblegateway.com/passage/?search=James%205%3A19-20&version=ESV)** - My brothers, if anyone among you wanders from the truth and someone brings him back, let him know that whoever brings back a sinner from his wandering will save his soul from death and will cover a multitude of sins. (ESV)
+    
     So if someone is committing a sin (i.e. in the act of sinning) then they are not walking in the light and are not believing and not being sanctified in that moment. It's not possible to rape and murder, steal and lie at the same time as having faith, even if the sin is from the heart but without the physical part of it. It's not possible to be sanctified while committing sin. Whatever does not proceed from faith is sin. A person who is not believing is not a believer. A person who has been born again of the word of God is at that point a believer. But a person who was born again but then subsequently commits sin needs to return to faith (walk in the love for the truth, the love of God, the love of Jesus Christ) to be cleansed from sin. They need to turn away from the sin and return to faith.
     
     The one born of God doesn't sin. Whoever commits sin does the work of the devil.
@@ -3540,6 +3546,20 @@ If a person thinks that they are "doing good" but they haven't done good in God'
 
 > **[Matthew 7:23](https://www.biblegateway.com/passage/?search=Matthew%207%3A23&version=ESV)** - And then will I declare to them, I never knew you; depart from me, you workers of lawlessness. (ESV)
 
+-   **[Romans 2:9](https://biblehub.com/interlinear/romans/2-9.htm) (Interlinear):** tribulation [(G2347 thlipsis)](G2347)
+    and [(G2532 kai)](G2532)
+    distress [(G4730 stenochōria)](G4730)
+    upon [(G1909 epi)](G1909)
+    every [(G3956 pasan)](G3956)
+    soul [(G5590 psychēn)](G5590)
+    of man [(G444 anthrōpou)](G444) - [(G3588 tou)](G3588)
+    **working** [(G2716 katergazomenou)](G2716) - [(G3588 to)](G3588) **evil** [(G2556 kakon)](G2556)
+    of Jewish [(G2453 Ioudaiou)](G2453)
+    both [(G5037 te)](G5037)
+    first [(G4412 prōton)](G4412)
+    and also [(G2532 kai)](G2532)
+    of Greek [(G1672 Hellēnos)](G1672)
+
 "Has rested" doesn't mean "has permanently rested", though:
 
 > **[Hebrews 4:7-12](https://www.biblegateway.com/passage/?search=Hebrews%204%3A7-12&version=ESV)** - again he appoints a **certain day, Today**, saying through David so long afterward, in the words already quoted, Today, **if you hear his voice, do not harden your hearts.** For if Joshua had given them rest, God would not have spoken of another day later on. So then, there remains a Sabbath rest for the people of God, for whoever has entered God's rest has also rested from his works as God did from his. **Let us therefore strive to enter that rest, so that no one may fall by the same sort of disobedience.** For the word of God is living and active, sharper than any two-edged sword, piercing to the division of soul and of spirit, of joints and of marrow, and discerning the thoughts and intentions of the heart. (ESV)
@@ -4544,7 +4564,11 @@ If law-abiding to the law of faith in Christ Jesus ('If you love me') then you w
 
 > **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
 
-Faith is commanded (**[I John 3:23](https://www.biblegateway.com/passage/?search=1%20John%203%3A23&version=ESV)**) and so in passages such as **[Romans 4:13-17](https://www.biblegateway.com/passage/?search=Romans%204%3A13-17&version=ESV) it can only be assumed that some distinction has to be made between \*commandments** and **law**.
+Faith is commanded (**[I John 3:23](https://www.biblegateway.com/passage/?search=1%20John%203%3A23&version=ESV)**) and so is repentance (**[Acts 17:30-31](https://www.biblegateway.com/passage/?search=Acts%2017%3A30-31&version=ESV)**) and so in passages such as **[Romans 4:13-17](https://www.biblegateway.com/passage/?search=Romans%204%3A13-17&version=ESV) it can only be assumed that some distinction has to be made between \*commandments** and **law**.
+
+> **[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)** - And **this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us.** Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+> **[Acts 17:30-31](https://www.biblegateway.com/passage/?search=Acts%2017%3A30-31&version=ESV)** - The times of ignorance God overlooked, but now **he commands all people everywhere to repent**, because he has fixed a day on which he will judge the world in righteousness by a man whom he has appointed; and of this he has given assurance to all by raising him from the dead. (ESV)
 
 The law of Moses comprised of numerous commandments brings wrath, but it was only a former commandment:
 
@@ -10373,6 +10397,10 @@ The way these Scriptures talk about "two in one bed, one will be taken and the o
     It's also probably not really improper to use the word "mother" or "mum" for a woman in Christ who is born of God and doing the will of God and one's spiritual ancestor in Christ (e.g. Mary mother of Jesus):
     
     > **[Luke 8:21](https://www.biblegateway.com/passage/?search=Luke%208%3A21&version=ESV)** - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+    
+    Saying that one's mother is "Heavenly Jerusalem" really truly does I think line up with one's mother and brothers and sisters being those who hear the word of God and do it because the Bride of Christ are a people and that people is Heavenly Jerusalem:
+    
+    > **[Revelation of John 21:9-11](https://www.biblegateway.com/passage/?search=Revelation%2021%3A9-11&version=ESV)** - Then came one of the seven angels who had the seven bowls full of the seven last plagues and spoke to me, saying, Come, I will show you the Bride, the wife of the Lamb. And he carried me away in the Spirit to a great, high mountain, and showed me the holy city Jerusalem coming down out of heaven from God, having the glory of God, its radiance like a most rare jewel, like a jasper, clear as crystal. (ESV)
     
     The land that the LORD [(H3068 Yah·weh)](H3068) gives is the "land of promises".
     
@@ -22781,7 +22809,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org1ff69c2) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9917f8c) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -28664,7 +28692,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgb8c0279).
+I didn't know but it turned out to be the last day of my [sentence](#orgac07fbe).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -38536,10 +38564,10 @@ That's why AI should not be used as inspiration for sermons.
     Being obedient to His word I am willing to work but I also want be unstained, holy, and it feels as though I'm being pressured by satanic opposition into tolerating what I see as an incredibly evil business practice and accept "AI" into my heart and life.
     It's so disgusting. Why has God not yet made these trials end? Would He really withhold help for years and watch me fall finally, that my spirit becomes truly broken?
     What is the right thing to do? Does a person stoop to take the mark of the beast, in simply wanting to do the will of God?
-    The Paul instructs that if a man is not willing to work then he should not eat.
+    The Apostle Paul instructs that if a man is not willing to work then he should not eat.
     But I am willing, just not willing to bow to an idol.
     Does God want a person to walk in faith and in love for Him and for Christ and their neighbour or does He not?
-    To walk in love for my neighbour I think it's right to protest against being coerced into walking no longer in faith, coerced though being made to be interviewed by a chatbot or partake in some immoral business practice in order to be able to have employment.
+    To walk in love for my neighbour I think it's right to protest against being coerced into walking no longer in faith, coerced through being made to be interviewed by a chatbot or partake in some immoral business practice in order to be able to have employment.
     
     The supermarket which claims to value diversity and inclusion does not in actually.
     Otherwise, they'd be able to accommodate for somebody who for reasons of maintaining good conscience, for reasons of walking by faith, avoids using this type of technology.
@@ -53938,7 +53966,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org7380808)
+See: [33.4.1](#org05b0159)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -69847,6 +69875,30 @@ Jesus is stronger than anything:
 
 > **[Revelation of John 13:15-18](https://www.biblegateway.com/passage/?search=Revelation%2013%3A15-18&version=ESV)** - And it was allowed to give breath to the image of the beast, so that the image of the beast might even speak and might cause those who would not worship the image of the beast to be slain. Also it causes all, both small and great, both rich and poor, both free and slave, to be marked on the right hand or the forehead, so that no one can buy or sell unless he has the mark, that is, the name of the beast or the number of its name. This calls for wisdom: let the one who has understanding calculate the number of the beast, for it is the number of a man, and his number is 666. (ESV)
 
+-   **[Revelation of John 13:18](https://biblehub.com/interlinear/revelation/13-18.htm) (Interlinear):** Here [(G5602 Hōde)](G5602)
+    the [(G3588 hē)](G3588)
+    wisdom [(G4678 sophia)](G4678)
+    is [(G1510 estin)](G1510)
+    the [one] [(G3588 ho)](G3588)
+    having [(G2192 echōn)](G2192)
+    understanding [(G3563 noun)](G3563)
+    let him count [(G5585 psēphisatō)](G5585)
+    the [(G3588 ton)](G3588)
+    number [(G706 arithmon)](G706)
+    of the [(G3588 tou)](G3588)
+    beast [(G2342 thēriou)](G2342)
+    number [(G706 arithmos)](G706)
+    indeed [(G1063 gar)](G1063)
+    a man's [(G444 anthrōpou)](G444)
+    it is [(G1510 estin)](G1510)
+    and [(G2532 kai)](G2532)
+    the [(G3588 ho)](G3588)
+    number [is] [(G706 arithmos)](G706)
+    of it [(G846 autou)](G846)
+    six hundred [(G1812 hexakosioi)](G1812)
+    sixty [(G1835 hexēkonta)](G1835)
+    six [(G1803 hex)](G1803)
+
 
 ### Idolatry
 
@@ -75821,7 +75873,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org7380808)
+See: [33.4.1](#org05b0159)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -78481,7 +78533,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgb9f4f0a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgbefad46) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -87060,7 +87112,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgb9f4f0a) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgbefad46) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -88398,7 +88450,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgb6ecfc6)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgc9ef862)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

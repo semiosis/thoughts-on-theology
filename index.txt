@@ -2193,6 +2193,16 @@ their way to hell.
   do you not believe me? Whoever is of God hears the words of God. The reason why you do not hear them is that you
   are not of God. (ESV)
 
+Someone who is sinning (caught in transgression as Galatians 6:1 puts it or "a sinner wandering" as James 5:19-20
+puts it) needs restoration:
+
+  Galatians 6:1 - Brothers, if anyone is caught in any transgression, you who are spiritual should restore him in
+  a spirit of gentleness. Keep watch on yourself, lest you too be tempted. (ESV)
+
+  James 5:19-20 - My brothers, if anyone among you wanders from the truth and someone brings him back, let him
+  know that whoever brings back a sinner from his wandering will save his soul from death and will cover a
+  multitude of sins. (ESV)
+
 So if someone is committing a sin (i.e. in the act of sinning) then they are not walking in the light and are not
 believing and not being sanctified in that moment. It's not possible to rape and murder, steal and lie at the same
 time as having faith, even if the sin is from the heart but without the physical part of it. It's not possible to
@@ -6976,6 +6986,12 @@ doesn't mean a permament cessation of doing deeds, though (John 14:12, John 4:32
   Matthew 7:23 - And then will I declare to them, I never knew you; depart from me, you workers of lawlessness.
   (ESV)
 
+Romans 2:9 (Interlinear)
+tribulation (G2347 thlipsis) and (G2532 kai) distress (G4730 stenochōria) upon (G1909 epi) every (G3956 pasan)
+soul (G5590 psychēn) of man (G444 anthrōpou) - (G3588 tou) working (G2716 katergazomenou) - (G3588 to) evil (G2556
+kakon) of Jewish (G2453 Ioudaiou) both (G5037 te) first (G4412 prōton) and also (G2532 kai) of Greek (G1672
+Hellēnos)
+
 "Has rested" doesn't mean "has permanently rested", though:
 
   Hebrews 4:7-12 - again he appoints a certain day, Today, saying through David so long afterward, in the words
@@ -8697,8 +8713,16 @@ Jesus' commandments ('you will keep my commandments'):
 
   John 14:15 - If you love me, you will keep my commandments. (ESV)
 
-Faith is commanded (I John 3:23) and so in passages such as Romans 4:13-17 it can only be assumed that some
-distinction has to be made between *commandments and law.
+Faith is commanded (I John 3:23) and so is repentance (Acts 17:30-31) and so in passages such as Romans 4:13-17 it
+can only be assumed that some distinction has to be made between *commandments and law.
+
+  I John 3:23-24 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
+  another, just as he has commanded us. Whoever keeps his commandments abides in him, and he in them. And by this
+  we know that he abides in us, by the Spirit whom he has given us. (ESV)
+
+  Acts 17:30-31 - The times of ignorance God overlooked, but now he commands all people everywhere to repent,
+  because he has fixed a day on which he will judge the world in righteousness by a man whom he has appointed; and
+  of this he has given assurance to all by raising him from the dead. (ESV)
 
 The law of Moses comprised of numerous commandments brings wrath, but it was only a former commandment:
 
@@ -17180,6 +17204,15 @@ It's also probably not really improper to use the word "mother" or "mum" for a w
 and doing the will of God and one's spiritual ancestor in Christ (e.g. Mary mother of Jesus):
 
   Luke 8:21 - But he answered them, My mother and my brothers are those who hear the word of God and do it. (ESV)
+
+Saying that one's mother is "Heavenly Jerusalem" really truly does I think line up with one's mother and brothers
+and sisters being those who hear the word of God and do it because the Bride of Christ are a people and that
+people is Heavenly Jerusalem:
+
+  Revelation of John 21:9-11 - Then came one of the seven angels who had the seven bowls full of the seven last
+  plagues and spoke to me, saying, Come, I will show you the Bride, the wife of the Lamb. And he carried me away
+  in the Spirit to a great, high mountain, and showed me the holy city Jerusalem coming down out of heaven from
+  God, having the glory of God, its radiance like a most rare jewel, like a jasper, clear as crystal. (ESV)
 
 The land that the LORD (H3068 Yah·weh) gives is the "land of promises".
 
@@ -63063,11 +63096,11 @@ work but I also want be unstained, holy, and it feels as though I'm being pressu
 tolerating what I see as an incredibly evil business practice and accept "AI" into my heart and life. It's so
 disgusting. Why has God not yet made these trials end? Would He really withhold help for years and watch me fall
 finally, that my spirit becomes truly broken? What is the right thing to do? Does a person stoop to take the mark
-of the beast, in simply wanting to do the will of God? The Paul instructs that if a man is not willing to work
-then he should not eat. But I am willing, just not willing to bow to an idol. Does God want a person to walk in
-faith and in love for Him and for Christ and their neighbour or does He not? To walk in love for my neighbour I
-think it's right to protest against being coerced into walking no longer in faith, coerced though being made to be
-interviewed by a chatbot or partake in some immoral business practice in order to be able to have employment.
+of the beast, in simply wanting to do the will of God? The Apostle Paul instructs that if a man is not willing to
+work then he should not eat. But I am willing, just not willing to bow to an idol. Does God want a person to walk
+in faith and in love for Him and for Christ and their neighbour or does He not? To walk in love for my neighbour I
+think it's right to protest against being coerced into walking no longer in faith, coerced through being made to
+be interviewed by a chatbot or partake in some immoral business practice in order to be able to have employment.
 
 The supermarket which claims to value diversity and inclusion does not in actually. Otherwise, they'd be able to
 accommodate for somebody who for reasons of maintaining good conscience, for reasons of walking by faith, avoids
@@ -109674,6 +109707,13 @@ astray, away from the true God.
   number of its name. This calls for wisdom: let the one who has understanding calculate the number of the beast,
   for it is the number of a man, and his number is 666. (ESV)
 
+Revelation of John 13:18 (Interlinear)
+Here (G5602 Hōde) the (G3588 hē) wisdom (G4678 sophia) is (G1510 estin) the [one] (G3588 ho) having (G2192 echōn)
+understanding (G3563 noun) let him count (G5585 psēphisatō) the (G3588 ton) number (G706 arithmon) of the (G3588
+tou) beast (G2342 thēriou) number (G706 arithmos) indeed (G1063 gar) a man's (G444 anthrōpou) it is (G1510 estin)
+and (G2532 kai) the (G3588 ho) number [is] (G706 arithmos) of it (G846 autou) six hundred (G1812 hexakosioi) sixty
+(G1835 hexēkonta) six (G1803 hex)
+
 48.2.1. Idolatry
 
   Acts 17:29 - Being then God's offspring, we ought not to think that the divine being is like gold or silver or
@@ -146235,11 +146275,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-19 Thu 17:20
+Date: 2026-11-20 Fri 10:34
 
 Author: Shane Mulligan
 
-Created: 2026-11-19 Thu 17:34
+Created: 2026-11-20 Fri 10:50
 
 Validate
 
