@@ -1239,7 +1239,19 @@ We have faith in Jesus Christ into loving as God **requires** from us, and that 
 
 > **[Romans 8:3-4](https://www.biblegateway.com/passage/?search=Romans%208%3A3-4&version=ESV)** - For God has done what the law, weakened by the flesh, could not do. By sending his own Son in the likeness of sinful flesh and for sin, he condemned sin in the flesh, in order that the righteous requirement of the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
 
-"Sinless perfection" means "without even 'having' sin". The Apostle Paul describes having "indwelling sin" (**[Romans 7:22-23](https://www.biblegateway.com/passage/?search=Romans%207%3A22-23&version=ESV)**). John says that if we say we *have* no sin we deceive ourselves. Having "indwelling sin" does not mean "committing sin", which is making more sin by transgression. Now Jesus Christ is sinless. Jesus has no sin at all. Neither does Jesus commit sin. When a person uses a dirty towel on a clean plate, they dirty the plate. When a person uses a clean towel on a dirty plate, they clean the plate. Jesus is clean and cleans us. Jesus sanctifies us. 'Having sin' (**[I John 1:6-10](https://www.biblegateway.com/passage/?search=1%20John%201%3A6-10&version=ESV)**) is actually different from "committing sin". We can confess sin that we have (**[1 John 1:9](https://www.biblegateway.com/passage/?search=1%20John%201%3A9&version=ESV)**) and should to be cleaned from it.
+[I John 2:1](https://www.biblegateway.com/passage/?search=1%20John%202%3A1&version=ESV) shows that there is a way of walking which is by faith not committing sin, but if anyone does sin, we have an advocate with th Father, Jesus Christ the righteous:
+
+> **[I John 2:1](https://www.biblegateway.com/passage/?search=1%20John%202%3A1&version=ESV)** - My little children, I am writing these things to you so that you may not sin. But if anyone does sin, we have an advocate with the Father, Jesus Christ the righteous. (ESV)
+
+Someone who is sinning (caught in transgression as [Galatians 6:1](https://www.biblegateway.com/passage/?search=Galatians%206%3A1&version=ESV) puts it or "a sinner wandering" as [James 5:19-20](https://www.biblegateway.com/passage/?search=James%205%3A19-20&version=ESV) puts it) needs restoration:
+
+> **[Galatians 6:1](https://www.biblegateway.com/passage/?search=Galatians%206%3A1&version=ESV)** - Brothers, if anyone is caught in any transgression, you who are spiritual should restore him in a spirit of gentleness. Keep watch on yourself, lest you too be tempted. (ESV)
+
+> **[James 5:19-20](https://www.biblegateway.com/passage/?search=James%205%3A19-20&version=ESV)** - My brothers, if anyone among you wanders from the truth and someone brings him back, let him know that whoever brings back a sinner from his wandering will save his soul from death and will cover a multitude of sins. (ESV)
+
+"Sinless perfection" means "without even 'having' sin". The Apostle Paul describes having "indwelling sin" (**[Romans 7:22-23](https://www.biblegateway.com/passage/?search=Romans%207%3A22-23&version=ESV)**). John says that if we say we *have* no sin we deceive ourselves. Having "indwelling sin" does not mean "committing sin", which is making more sin by transgression. Now Jesus Christ is sinless. Jesus has no sin at all. Neither does Jesus commit sin.
+
+When a person uses a dirty towel on a clean plate, they dirty the plate. When a person uses a clean towel on a dirty plate, they clean the plate. Jesus is clean and cleans us. Jesus sanctifies us. 'Having sin' (**[I John 1:6-10](https://www.biblegateway.com/passage/?search=1%20John%201%3A6-10&version=ESV)**) is actually different from "committing sin". We can confess sin that we have (**[1 John 1:9](https://www.biblegateway.com/passage/?search=1%20John%201%3A9&version=ESV)**) and should to be cleaned from it.
 
 Someone who is born-again has had their old self crucified, and has been set free from sin (**[Romans 6:6-8](https://www.biblegateway.com/passage/?search=Romans%206%3A6-8&version=ESV)**) in the sense that they now have the power to rule over sin and to put sinful desires to death.
 If a born-again person loves Jesus more than some evil desire, then they have the power through faith in Jesus to put that evil desire to death completely and to stop doing the evil deeds that arise from that bad desire, and to put a stop to those evil deeds. We are instructed to, from a love of the truth, practice righteousness with our members instead (**[Galatians 5:16-18](https://www.biblegateway.com/passage/?search=Galatians%205%3A16-18&version=ESV)**, **[Romans 6:10-13](https://www.biblegateway.com/passage/?search=Romans%206%3A10-13&version=ESV)**, **[Matthew 5:29-30](https://www.biblegateway.com/passage/?search=Matthew%205%3A29-30&version=ESV)**).
@@ -4564,7 +4576,7 @@ If law-abiding to the law of faith in Christ Jesus ('If you love me') then you w
 
 > **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
 
-Faith is commanded (**[I John 3:23](https://www.biblegateway.com/passage/?search=1%20John%203%3A23&version=ESV)**) and so is repentance (**[Acts 17:30-31](https://www.biblegateway.com/passage/?search=Acts%2017%3A30-31&version=ESV)**) and so in passages such as **[Romans 4:13-17](https://www.biblegateway.com/passage/?search=Romans%204%3A13-17&version=ESV) it can only be assumed that some distinction has to be made between \*commandments** and **law**.
+Faith is commanded (**[I John 3:23](https://www.biblegateway.com/passage/?search=1%20John%203%3A23&version=ESV)**) and so is repentance (**[Acts 17:30-31](https://www.biblegateway.com/passage/?search=Acts%2017%3A30-31&version=ESV)**) and so in passages such as **[Romans 4:13-17](https://www.biblegateway.com/passage/?search=Romans%204%3A13-17&version=ESV)** it can only be assumed that some distinction has to be made between **commandments** and **law**.
 
 > **[I John 3:23-24](https://www.biblegateway.com/passage/?search=1%20John%203%3A23-24&version=ESV)** - And **this is his commandment, that we believe in the name of his Son Jesus Christ and love one another, just as he has commanded us.** Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides in us, by the Spirit whom he has given us. (ESV)
 
@@ -14389,6 +14401,43 @@ When a person receives Jesus Christ, they are in agreement with God that Jesus C
 
 > **[II Peter 1:17-18](https://www.biblegateway.com/passage/?search=2%20Peter%201%3A17-18&version=ESV)** - For when he received honor and glory from God the Father, and the voice was borne to him by the Majestic Glory, This is my beloved Son, with whom I am well pleased, we ourselves heard this very voice borne from heaven, for we were with him on the holy mountain. (ESV)
 
+-   ****[youtube.com:  Comment from @ ShaneMulligan - n7h {@ thebrycecrawford }](https://www.youtube.com/watch?v=2olWw3JOaWE&lc=UgxBRSCAUB6IMBuv0Op4AaABAg)**:** I commented,
+    
+    [I John 2:1](https://www.biblegateway.com/passage/?search=1%20John%202%3A1&version=ESV) shows that there is a way of walking which is by faith not committing sin, but if anyone does sin, we have an advocate with th Father, Jesus Christ the righteous:
+    
+    > **[I John 2:1](https://www.biblegateway.com/passage/?search=1%20John%202%3A1&version=ESV)** - My little children, I am writing these things to you so that you may not sin. But if anyone does sin, we have an advocate with the Father, Jesus Christ the righteous. (ESV)
+    
+    Someone who is sinning (caught in transgression as [Galatians 6:1](https://www.biblegateway.com/passage/?search=Galatians%206%3A1&version=ESV) puts it or "a sinner wandering" as [James 5:19-20](https://www.biblegateway.com/passage/?search=James%205%3A19-20&version=ESV) puts it) needs restoration:
+    
+    > **[Galatians 6:1](https://www.biblegateway.com/passage/?search=Galatians%206%3A1&version=ESV)** - Brothers, if anyone is caught in any transgression, you who are spiritual should restore him in a spirit of gentleness. Keep watch on yourself, lest you too be tempted. (ESV)
+    
+    > **[James 5:19-20](https://www.biblegateway.com/passage/?search=James%205%3A19-20&version=ESV)** - My brothers, if anyone among you wanders from the truth and someone brings him back, let him know that whoever brings back a sinner from his wandering will save his soul from death and will cover a multitude of sins. (ESV)
+    
+    "Sinless perfection" means "without even 'having' sin". The Apostle Paul describes having "indwelling sin" (**[Romans 7:22-23](https://www.biblegateway.com/passage/?search=Romans%207%3A22-23&version=ESV)**). John says that if we say we *have* no sin we deceive ourselves. Having "indwelling sin" does not mean "committing sin", which is making more sin by transgression. Now Jesus Christ is sinless. Jesus has no sin at all. Neither does Jesus commit sin.
+    
+    If a person is walking in the light then they are walking in faith and love. So if a person is walking by faith in Jesus Christ from a love for the truth abiding in Jesus Christ they are not "committing" sin and the blood of Jesus cleanses them from sin. A person is sanctified by faith in Jesus Christ and not by sinning (which a person does when they do something without faith):
+    
+    > **[I John 1:7](https://www.biblegateway.com/passage/?search=1%20John%201%3A7&version=ESV)** - But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
+    
+    Having been sanctified is like being placed into the ambulance of Jesus Christ where a person is still being sanctified.
+    Committing sin is acting without faith so that's like leaving the ambulance.
+    
+    > **[I John 3:3-10](https://www.biblegateway.com/passage/?search=1%20John%203%3A3-10&version=ESV)** - And everyone who thus hopes in him purifies himself as he is pure. Everyone who makes a practice of sinning also practices lawlessness; sin is lawlessness. You know that he appeared to take away sins, and in him there is no sin. No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not practice righteousness is not of God, nor is the one who does not love his brother. (ESV)
+    
+    True salvation is salvation from committing sin.
+    
+    I think that [Revelation 21:8](https://www.biblegateway.com/passage/?search=Revelation%2021%3A8&version=ESV) is really talking about people who are ultimately not saved from committing sin that leads to death. True salvation is salvation from committing sin. Those who have been saved to walk in faith and love for God through faith in Jesus Christ are ultimately set free from committing sin that would land them in the lake of fire.
+    
+    > **[John 8:34-35,36,42,51](https://www.biblegateway.com/passage/?search=John%208%3A34-35%2C36%2C42%2C51&version=ESV)** - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+    
+    Paul here has been set free from committing sin from the heart. Paul has "stopped sinning" from the heart which is where his faith and love for Jesus is, in his heart. His external actions sometimes do not line up with that, though, because of sin in his flesh:
+    
+    > **[Romans 7:20](https://www.biblegateway.com/passage/?search=Romans%207%3A20&version=ESV)** - Now if I do what I do not want, it is no longer I who do it, but sin that dwells within me. (ESV)
+    
+    I think that it's vital to not lose one's faith in the name of Jesus Christ, and to remain in agreement with God that Jesus Christ is God's Son who He is pleased with. I like to think that Jesus advocates for all the guests here (even the bad ones) except for the one without a wedding garment:
+    
+    > **[Matthew 22:1-14](https://www.biblegateway.com/passage/?search=Matthew%2022%3A1-14&version=ESV)** - And again Jesus spoke to them in parables, saying, The kingdom of heaven may be compared to a king who gave a wedding feast for his son, and sent his servants to call those who were invited to the wedding feast, but they would not come. Again he sent other servants, saying, Tell those who are invited, See, I have prepared my dinner, my oxen and my fat calves have been slaughtered, and everything is ready. Come to the wedding feast. <ins>But they paid no attention and went off, one to his farm, another to his business, while the rest seized his servants, treated them shamefully, and killed them</ins>. The king was angry, and he sent his troops and destroyed those murderers and burned their city. Then he said to his servants, The wedding feast is ready, but those invited were not worthy. Go therefore to the main roads and invite to the wedding feast as many as you find. And those servants went out into the roads and gathered all whom they found, both bad and good. So the wedding hall was filled with guests. But when the king came in to look at the guests, he saw there a man who had no wedding garment. And he said to him, Friend, how did you get in here without a wedding garment? And he was speechless. Then the king said to the attendants, Bind him hand and foot and cast him into the outer darkness. In that place there will be weeping and gnashing of teeth. For many are called, but few are chosen. (ESV)
+
 God is still very much pleased with those who do what is good in the sight of Him, and displeased with the wicked.
 God doesn't delight in the wicked. But God loves those who have faith in and love Jesus Christ His Son. How could that be?
 All have fallen short of God's glory.
@@ -22809,7 +22858,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9917f8c) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org85391d7) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -28692,7 +28741,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgac07fbe).
+I didn't know but it turned out to be the last day of my [sentence](#org5366c97).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -53966,7 +54015,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org05b0159)
+See: [33.4.1](#org384754d)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -75873,7 +75922,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org05b0159)
+See: [33.4.1](#org384754d)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -78533,7 +78582,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#orgbefad46) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org4e0d243) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -87112,7 +87161,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#orgbefad46) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org4e0d243) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -88450,7 +88499,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgc9ef862)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org84afbd0)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
