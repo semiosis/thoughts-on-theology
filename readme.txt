@@ -2569,7 +2569,7 @@ to love our neighbour:
   the law might be fulfilled in us, who walk not according to the flesh but according to the Spirit. (ESV)
 
 I John 2:1 shows that there is a way of walking which is by faith not committing sin, but if anyone does sin, we
-have an advocate with th Father, Jesus Christ the righteous:
+have an advocate with the Father, Jesus Christ the righteous:
 
   I John 2:1 - My little children, I am writing these things to you so that you may not sin. But if anyone does
   sin, we have an advocate with the Father, Jesus Christ the righteous. (ESV)
@@ -3314,7 +3314,8 @@ The person who is born of God has stopped "committing sin" (I John 3:4,8,9) in t
 of repentance and faith (Hebrews 6:1) has been obedience to God (Romans 10:14-21) rather than sin and going on
 they must continue on in faith, in the love of the truth, obeying righteousness (I John 3:4,8,9). The person born
 of God doesn't commit sin (I John 5:18). The person born of God is also not the sin in their flesh (Romans
-7:17-23).
+7:17-23). For the person who is born of God but still in their sinful flesh, the person's external actions still
+may not always line up with their will to do the good.
 
 For the person with a genuine faith in Jesus Christ, sin no longer has dominion over them because Jesus has
 defeated death:
@@ -8055,12 +8056,132 @@ The thing is, there will be deeds, which we receive through faith in Jesus:
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the ev il person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
+youtube.com: " The only wages that we can earn , by our works , is death … Eternal life is entirely a gift , not
+something paid as wages earned for work done ." What do you th …
+
+A person is saved from doing evil deeds leading to death. That's why salvation is not on the basis of works,
+because when a person gets saved they are saved from what is due for the consequences of the sinning from their
+history of evil deeds.
+
+I believe that a person when gifted eternal life is given the gift of being able to practice righteousness which
+will yield eternal life. A person who is truly forgiven must then also love Jesus and because they have good
+treasure in their heart they will produce good, and also have been promised will do deeds, the deeds of Jesus
+which are good deeds.
+
+  Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
+  evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
+
+  Luke 7:47 - Therefore I tell you, her sins, which are many, are forgiven—for she loved much. But he who is
+  forgiven little, loves little. (ESV)
+
+  John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
+  works than these will he do, because I am going to the Father. (ESV)
+
+Before receiving that gift of forgiveness and salvation that is received by those who have faith in Jesus Christ,
+a person has no ability to work the good that will yield sanctification and eternal life. Without salvation, the
+person is enslaved to committing sin which leads to death.
+
+But someone who has faith in Jesus Christ who has been forgiven and are now loving Jesus, has the ability to
+practice righteousness from a position of being forgiven by God which if they continue in faith will yield
+sanctification and eternal life.
+
+  Romans 2:6-8 - He will render to each one according to his works: to those who by patience in well-doing seek
+  for glory and honor and immortality, he will give eternal life; but for those who are self-seeking and do not
+  obey the truth, but obey unrighteousness, there will be wrath and fury. (ESV)
+
+  John 3:20-21 - For everyone who does wicked things hates the light and does not come to the light, lest his
+  deeds should be exposed. But whoever does what is true comes to the light, so that it may be clearly seen that
+  his deeds have been carried out in God. (ESV)
+
+  Titus 3:3-7 - For we ourselves were once foolish, disobedient, led astray, slaves to various passions and
+  pleasures, passing our days in malice and envy, hated by others and hating one another. But when the goodness
+  and loving kindness of God our Savior appeared, he saved us, not because of works done by us in righteousness,
+  but according to his own mercy, by the washing of regeneration and renewal of the Holy Spirit, whom he poured
+  out on us richly through Jesus Christ our Savior, so that being justified by his grace we might become heirs
+  according to the hope of eternal life. (ESV)
+
+  Romans 6:6-7 - We know that our old self was crucified with him in order that the body of sin might be brought
+  to nothing, so that we would no longer be enslaved to sin. For one who has died has been set free from sin.
+  (ESV)
+
+  Romans 6:16-23 - Do you not know that if you present yourselves to anyone as obedient slaves, you are slaves of
+  the one whom you obey, either of sin, which leads to death, or of obedience, which leads to righteousness? But
+  thanks be to God, that you who were once slaves of sin have become obedient from the heart to the standard of
+  teaching to which you were committed, and, having been set free from sin, have become slaves of righteousness. I
+  am speaking in human terms, because of your natural limitations. For just as you once presented your members as
+  slaves to impurity and to lawlessness leading to more lawlessness, so now present your members as slaves to
+  righteousness leading to sanctification. When you were slaves of sin, you were free in regard to righteousness.
+  But what fruit were you getting at that time from the things of which you are now ashamed? The end of those
+  things is death. But now that you have been set free from sin and have become slaves of God, the fruit you get
+  leads to sanctification and its end, eternal life. For the wages of sin is death, but the free gift of God is
+  eternal life in Christ Jesus our Lord. (ESV)
+
+  James 5:19-20 - My brothers, if anyone among you wanders from the truth and someone brings him back, let him
+  know that whoever brings back a sinner from his wandering will save his soul from death and will cover a
+  multitude of sins. (ESV)
+
+  I John 3:6-11 - No one who abides in him keeps on sinning; no one who keeps on sinning has either seen him or
+  known him. Little children, let no one deceive you. Whoever practices righteousness is righteous, as he is
+  righteous. Whoever makes a practice of sinning is of the devil, for the devil has been sinning from the
+  beginning. The reason the Son of God appeared was to destroy the works of the devil. No one born of God makes a
+  practice of sinning, for God's seed abides in him, and he cannot keep on sinning because he has been born of
+  God. By this it is evident who are the children of God, and who are the children of the devil: whoever does not
+  practice righteousness is not of God, nor is the one who does not love his brother. For this is the message that
+  you have heard from the beginning, that we should love one another. (ESV)
+
+But it's not merely about a transition from doing evil deeds to good deeds and there being no point of rest,
+because there actually must have been a point of rest to receive the free gift of righteousness. But this state of
+resting in faith can't be working lawlessness. A person must have ceased from committing sin, because if someone
+is committing sin (from an absence of faith/faith and love for God in their heart) then they are still working
+evil. But if a person has faith and love for God in their heart, then when they act they are not committing sin.
+
+  Matthew 7:23 - And then will I declare to them, I never knew you; depart from me, you workers of lawlessness.
+  (ESV)
+
+The rest can only be entered by faith and not by disobedience. And I believe that disobedience would include a sin
+of omission (James 4:17). So the striving to enter this rest involves maintaining faith and obedience, and the
+point of "not working, yet still trusting in Him who justifies the ungodly" is a point of having the love of God
+in one's heart and abstaining from committing evil, abstaining from working unrighteousness, but also includes a
+recognition that one has a history of evil deeds.
+
+  Romans 4:3-8 - For what does the Scripture say? Abraham believed God, and it was counted to him as
+  righteousness. Now to the one who works, his wages are not counted as a gift but as his due. And to the one who
+  does not work but trusts him who justifies the ungodly, his faith is counted as righteousness, just as David
+  also speaks of the blessing of the one to whom God counts righteousness apart from works: Blessed are those
+  whose lawless deeds are forgiven, and whose sins are covered; blessed is the man against whom the Lord will not
+  count his sin. (ESV)
+
+  I John 3:14-20 - We know that we have passed out of death into life, because we love the brothers. Whoever does
+  not love abides in death. Everyone who hates his brother is a murderer, and you know that no murderer has
+  eternal life abiding in him. By this we know love, that he laid down his life for us, and we ought to lay down
+  our lives for the brothers. But if anyone has the world's goods and sees his brother in need, yet closes his
+  heart against him, how does God's love abide in him? Little children, let us not love in word or talk but in
+  deed and in truth. By this we shall know that we are of the truth and reassure our heart before him; for
+  whenever our heart condemns us, God is greater than our heart, and he knows everything. (ESV)
+
+  James 4:17 - So whoever knows the right thing to do and fails to do it, for him it is sin. (ESV)
+
+The person who is born of God has stopped "committing sin" (I John 3:4,8,9) in the sense that this new beginning
+of repentance and faith (Hebrews 6:1) has been obedience to God (Romans 10:14-21) rather than sin and going on
+they must continue on in faith, in the love of the truth, obeying righteousness (I John 3:4,8,9). The person born
+of God doesn't commit sin (I John 5:18). The person born of God is also not the sin in their flesh (Romans
+7:17-23). For the person who is born of God but still in their sinful flesh, the person's external actions still
+may not always line up with their will to do the good (with their intentions, for example). But I still believe
+that God can use one's shortcomings. God's will for us includes having faith in Jesus Christ, loving one-another,
+abstaining from evil and doing good. God works all things together for good for those who love Him and are called
+according to His purposes, and so with the faith in the heart, even when the flesh is weak and the external
+actions do not appear to work out the way one intended, God is still working things together for good.
+
+That's what I presently believe, anyway.
+
 Salvation involves both justification and sanctification, though, justification being God's righteousness given to
 the person who has a heart attitude of loving faith in Jesus Christ and sanctification which is a process of being
 cleaned up as we hold our faith in Jesus and love our family in Christ, and we must continue on in the faith (II
 John 1:9-10) which means to continue in agreement with Jesus Christ (who He is and what He did and what He
-taught), rather than disagreeing with Him. Salvation involves God working in us as we obey Jesus Christ. As we
-(Exodus 14:16) by faith obey Jesus Christ, God works (Exodus 14:13) His salvation in us:
+taught), rather than disagreeing with Him.
+
+Salvation involves God working in us as we obey Jesus Christ. As we (Exodus 14:16) by faith obey Jesus Christ, God
+works (Exodus 14:13) His salvation in us:
 
   Philippians 2:12-16 - Therefore, my beloved, as you have always obeyed, so now, not only as in my presence but
   much more in my absence, work out your own salvation with fear and trembling, for it is God who works in you,
@@ -24371,7 +24492,7 @@ youtube.com: Comment from @ ShaneMulligan - n7h {@ thebrycecrawford }
 I commented,
 
 I John 2:1 shows that there is a way of walking which is by faith not committing sin, but if anyone does sin, we
-have an advocate with th Father, Jesus Christ the righteous:
+have an advocate with the Father, Jesus Christ the righteous:
 
   I John 2:1 - My little children, I am writing these things to you so that you may not sin. But if anyone does
   sin, we have an advocate with the Father, Jesus Christ the righteous. (ESV)
@@ -24450,15 +24571,15 @@ here (even the bad ones) except for the one without a wedding garment:
   In that place there will be weeping and gnashing of teeth. For many are called, but few are chosen. (ESV)
 
 God is still very much pleased with those who do what is good in the sight of Him, and displeased with the wicked.
-God doesn't delight in the wicked. But God loves those who have faith in and love Jesus Christ His Son. How could
-that be? All have fallen short of God's glory. So God sent His perfect Son into the world. The fact is that Father
-God is well pleased with Jesus Christ. Now we have someone (Jesus Christ) who we can look to and be in agreement
-with God that God is pleased with Him. If a person does not think that Jesus Christ is God's Son with whom Father
-God is well pleased then they put themselves in God's condemnation because God sent Jesus Christ into the world so
-we could be in agreement with God over His Son so that we can love the good. If a person agrees with Jesus Christ
-and receives Him then He is life to them because they agree with the good. We need to agape love the true Jesus
-Christ, accepting and receiving His words and deeds. Jesus' commandments that we must do are in harmony with
-having faith in Him.
+God doesn't delight in the wicked and doesn't have pleasure the death of the wicked (Ezekiel 18:20-24). But God
+loves those who have faith in and love Jesus Christ His Son. How could that be? All have fallen short of God's
+glory. So God sent His perfect Son into the world. The fact is that Father God is well pleased with Jesus Christ.
+Now we have someone (Jesus Christ) who we can look to and be in agreement with God that God is pleased with Him.
+If a person does not think that Jesus Christ is God's Son with whom Father God is well pleased then they put
+themselves in God's condemnation because God sent Jesus Christ into the world so we could be in agreement with God
+over His Son so that we can love the good. If a person agrees with Jesus Christ and receives Him then He is life
+to them because they agree with the good. We need to agape love the true Jesus Christ, accepting and receiving His
+words and deeds. Jesus' commandments that we must do are in harmony with having faith in Him.
 
   Malachi 2:17 - You have wearied the LORD with your words. But you say, How have we wearied him? By saying,
   Everyone who does evil is good in the sight of the LORD, and he delights in them. Or by asking, Where is the God
@@ -146376,11 +146497,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-20 Fri 21:32
+Date: 2026-11-21 Sat 14:14
 
 Author: Shane Mulligan
 
-Created: 2026-11-20 Fri 21:19
+Created: 2026-11-21 Sat 14:24
 
 Validate
 
