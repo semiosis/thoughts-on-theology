@@ -626,13 +626,21 @@ accrued sin because of that sinning, but they have stopped committing sin as the
   count his sin. (ESV)
 
 A believer in Jesus is promised good deeds, and every true believer will carry them out provided they continue in
-faith in Jesus (Romans 11:17-23). A person is saved by Jesus out from practicing wickedness (wickedness which
-which leads to death), and saved into practicing righteousness, the fruit of which leads to eternal life. At the
-start of the salvation journey a person is forgiven for their history of evil deeds (Romans 4:3-8) when they have
-stopped working (even stopped working lawlessness. They have stopped what they are doing, and not in that moment
-committing sin, but abstaining from deeding altogether) and having faith in Jesus Christ and so one's salvation is
-not on the basis of works. But that person will go on to carry out good deeds prepared for them provided they
-continue abiding Jesus, abiding in His commandments (I John 3:3-11, I John 2:3-6):
+faith in Jesus (Romans 11:17-23):
+
+  Colossians 1:21-23 - And you, who once were alienated and hostile in mind, doing evil deeds, he has now
+  reconciled in his body of flesh by his death, in order to present you holy and blameless and above reproach
+  before him, if indeed you continue in the faith, stable and steadfast, not shifting from the hope of the gospel
+  that you heard, which has been proclaimed in all creation under heaven, and of which I, Paul, became a minister.
+  (ESV)
+
+A person is saved by Jesus out from practicing wickedness (wickedness which which leads to death), and saved into
+practicing righteousness, the fruit of which leads to eternal life. At the start of the salvation journey a person
+is forgiven for their history of evil deeds (Romans 4:3-8) when they have stopped working (even stopped working
+lawlessness. They have stopped what they are doing, and not in that moment committing sin, but abstaining from
+deeding altogether) and having faith in Jesus Christ and so one's salvation is not on the basis of works. But that
+person will go on to carry out good deeds prepared for them provided they continue abiding Jesus, abiding in His
+commandments (I John 3:3-11, I John 2:3-6):
 
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
   works than these will he do, because I am going to the Father. (ESV)
@@ -1936,6 +1944,12 @@ Consider that the "wrath of man" is not done in faith:
 But as long as a person is able to be saved and brought back to faith in God, God goes after that person. And in
 coming back to faith though faith in Jesus, their former sins are blotted out and as they continue in faith, they
 are cleaned up through sanctification. But they must continue in faith. Their faith must not fail overall:
+
+  Colossians 1:21-23 - And you, who once were alienated and hostile in mind, doing evil deeds, he has now
+  reconciled in his body of flesh by his death, in order to present you holy and blameless and above reproach
+  before him, if indeed you continue in the faith, stable and steadfast, not shifting from the hope of the gospel
+  that you heard, which has been proclaimed in all creation under heaven, and of which I, Paul, became a minister.
+  (ESV)
 
   Luke 15:3-10 - So he told them this parable: What man of you, having a hundred sheep, if he has lost one of
   them, does not leave the ninety-nine in the open country, and go after the one that is lost, until he finds it?
@@ -3521,10 +3535,12 @@ person who has faith in Jesus Christ. God would supply such deeds as in Matthew 
 obedient (with love for God; Psalms 81:15), giving thought to do what pleases God (Romans 12:17-21) ready to do
 those deeds (Titus 1:16, II Timothy 2:21). So we would recall, observe (Matthew 28:18-20), delight in (Romans
 7:17-23) Jesus' commandments and apply them by faith in Jesus when the opportunity to do so presents itself (James
-4:17), which could be right now as for many of Jesus' commandments, they can be applied from the heart
-immediately. Given Jesus' instructions in Matthew 5:38-48, we should apply them generally to bear with others in
-love and to not return evil for evil, turning the other cheek, loving those who hate us. God works through those
-who are having faith in Jesus:
+4:17), which could be right now as for many of Jesus' commandments, they can be applied from the heart (Proverbs
+3:1-2) immediately.
+
+Given Jesus' instructions in Matthew 5:38-48, we should apply them generally to bear with others in love and to
+not return evil for evil, turning the other cheek, loving those who hate us. God works through those who are
+having faith in Jesus:
 
   Galatians 3:5-7 - Does he who supplies the Spirit to you and works miracles among you do so by works of the law,
   or by hearing with faith— just as Abraham believed God, and it was counted to him as righteousness? Know then
@@ -4609,6 +4625,12 @@ faith:
   a gift but as his due. And to the one who does not work (G2038 ergazomenō; is working for payment) but trusts
   him who justifies the ungodly, his faith is counted as righteousness, just as David also speaks of the blessing
   of the one to whom God counts righteousness apart from (G5565 chōris) works (G2041 ergōn): (ESV)
+
+  Colossians 1:21-23 - And you, who once were alienated and hostile in mind, doing evil deeds, he has now
+  reconciled in his body of flesh by his death, in order to present you holy and blameless and above reproach
+  before him, if indeed you continue in the faith, stable and steadfast, not shifting from the hope of the gospel
+  that you heard, which has been proclaimed in all creation under heaven, and of which I, Paul, became a minister.
+  (ESV)
 
 We must not be those who work (G2038 ergazomenoi) lawlessness:
 
@@ -21744,23 +21766,30 @@ Hebrews 11:8 (Interlinear)
 By faith being called Abraham obeyed to go out into a place that he was going to receive for an inheritance and
 went out not knowing where he is going
 
- | G4102    G2564        G11     G5219      G1831     G1519
- | Pistei   kaloumenos   Abraam  hypēkousen exelthein eis
- | Πίστει   καλούμενος , Ἀβραὰμ  ὑπήκουσεν  ἐξελθεῖν  εἰς
- | By faith being called Abraham obeyed     to go out into
- | N-DFS    V-PPM/P-NMS  N-NMS   V-AIA-3S   V-ANA     Prep
- |
- | G5117   G3739      G3195        G2983      G1519 G2817
- | topon   hon        ēmellen      lambanein  eis   klēronomian
- | τόπον   ὃν         ἤμελλεν      λαμβάνειν  εἰς   κληρονομίαν ,
- |  a place that       he was going to receive for   an inheritance
- |  N-AMS   RelPro-AMS V-IIA-3S     V-PNA      Prep  N-AFS
- | 
- |  G2532 G1831     G3361 G1987       G4226 G2064
- |  kai   exēlthen  mē    epistamenos pou   erchetai
- |  καὶ   ἐξῆλθεν , μὴ    ἐπιστάμενος ποῦ   ἔρχεται .
- |  and   went out  not   knowing     where he is going
- |  Conj  V-AIA-3S  Adv   V-PPM/P-NMS Adv   V-PIM/P-3S
+Hebrews 11:8 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration      Greek       Translation      Grammar
+───────────────────────────────────────────────────────────────────────────
+G4102         Pistei           Πίστει         By faith        N-DFS
+G2564         kaloumenos       καλούμενος ,   being called    V-PPM/P-NMS
+G11           Abraam           Ἀβραὰμ         Abraham         N-NMS
+G5219         hypēkousen       ὑπήκουσεν      obeyed          V-AIA-3S
+G1831         exelthein        ἐξελθεῖν       to go out       V-ANA
+G1519         eis              εἰς            into            Prep
+G5117         topon            τόπον          a place         N-AMS
+G3739         hon              ὃν             that            RelPro-AMS
+G3195         ēmellen          ἤμελλεν        he was going    V-IIA-3S
+G2983         lambanein        λαμβάνειν      to receive      V-PNA
+G1519         eis              εἰς            for             Prep
+G2817         klēronomian      κληρονομίαν ,  an inheritance  N-AFS
+G2532         kai              καὶ            and             Conj
+G1831         exēlthen         ἐξῆλθεν ,      went out        V-AIA-3S
+G3361         mē               μὴ             not             Adv
+G1987         epistamenos      ἐπιστάμενος    knowing         V-PPM/P-NMS
+G4226         pou              ποῦ            where           Adv
+G2064         erchetai         ἔρχεται .      he is going     V-PIM/P-3S
+───────────────────────────────────────────────────────────────────────────
 
   II Corinthians 4:18 - as we look not to the things that are seen but to the things that are unseen. For the
   things that are seen are transient, but the things that are unseen are eternal. (ESV)
@@ -21829,7 +21858,8 @@ And we serve in the strength that God provides (II Corinthians 9:8). If we find 
 demonstrate serving others out of love, and the Scriptures have a lot to say about what that that love looks like
 (such as in the 10 commandments as Jesus explained them (Matthew 5:22,28,32,34-37,39,44-45,27-28,30-31,35,40). For
 example, love does not bear false witness about their neighbour. Love does not covet anything of your neighbor's.
-Love does not lust or murder from the heart. See Romans 13:9-10), then we should do so and give God the glory:
+Love does not lust or murder from the heart (Proverbs 3:1-2). See Romans 13:9-10), then we should do so and give
+God the glory:
 
   I Peter 4:11 - whoever speaks, as one who speaks oracles of God; whoever serves, as one who serves by the
   strength that God supplies—in order that in everything God may be glorified through Jesus Christ. To him belong
@@ -56272,40 +56302,53 @@ I believe the more precise translation is that these things happen rapidly. Now 
 I'm not saying they are not happening already - the more accurate reading of this passage, I believe, is that the
 events take place rapidly:
 
-Revelation 1:1
-[The] revelation of Jesus Christ which gave Him- God to show to the bond-servants of Him what things it behooves
-to take place in quickness (G5034 quickness) And He signified [it] having sent through the angel of Him to the
-servant of Him John (Interlinear)
+  Revelation 1:1
+  [The] revelation of Jesus Christ which gave Him- God to show to the bond-servants of Him what things it behooves
+  to take place in quickness (G5034 quickness) And He signified [it] having sent through the angel of Him to the
+  servant of Him John (Interlinear)
 
- | 602              2424     5547       3739       1325     846
- | Apokalypsis      Iēsou    Christou   hēn        edōken   autō
- | Ἀποκάλυψις       Ἰησοῦ    Χριστοῦ  , ἣν         ἔδωκεν   αὐτῷ
- | [The] revelation of Jesus Christ     which      gave     Him
- | N-NFS            N-GMS    N-GMS      RelPro-AFS V-AIA-3S PPro-DM3S
- |
- | 3588    2316    1166    3588    1401          846       3739
- | ho      Theos   deixai  tois    doulois       autou     ha
- | ὁ       Θεός  , δεῖξαι  τοῖς    δούλοις       αὐτοῦ     ἃ
- |   -      God     to show to the  bond-servants of Him    what things
- |  Art-NMS N-NMS   V-ANA   Art-DMP N-DMP         PPro-GM3S RelPro-ANP
- | 
- |  1163        1096          1722 5034      2532 4591
- |  dei         genesthai     en   tachei    kai  esēmanen
- |  δεῖ         γενέσθαι      ἐν   τάχει  .  καὶ  ἐσήμανεν  ,
- |  it behooves to take place in   quickness And  He signified [it]
- |  V-PIA-3S    V-ANM         Prep N-DNS     Conj V-AIA-3S
- | 
- |  649         1223    3588    32      846       3588     1401
- |  aposteilas  dia     tou     angelou autou     tō       doulō
- |  ἀποστείλας  διὰ     τοῦ     ἀγγέλου αὐτοῦ  ,  τῷ       δούλῳ
- |  having sent through the     angel   of Him    to the   servant
- |  V-APA-NMS   Prep    Art-GMS N-GMS   PPro-GM3S Art-DMS  N-DMS
- | 
- |  846       2491
- |  autou     Iōannē
- |  αὐτοῦ  ,  Ἰωάννῃ  ,
- |  of Him    John
- |  PPro-GM3S N-DMS
+  Revelation of John 1:1 (Interlinear)
+  [The] Revelation (G602 Apokalypsis) of Jesus (G2424 Iēsou) Christ (G5547 Christou) which (G3739 hēn) gave (G1325
+  edōken) to him (G846 autō) - (G3588 ho) God (G2316 Theos) to show (G1166 deixai) to the (G3588 tois)
+  bond-servants (G1401 doulois) of him (G846 autou) what things (G3739 ha) it behoves (G1163 dei) to take place
+  (G1096 genesthai) in (G1722 en) quickness (G5034 tachei) and (G2532 kai) he signified [it] (G4591 esēmanen)
+  having sent (G649 aposteilas) through (G1223 dia) the (G3588 tou) angel (G32 angelou) of him (G846 autou) to the
+  (G3588 tō) servant (G1401 doulō) of him (G846 autou) John (G2491 Iōannē)
+
+  Revelation of John 1:1 (Interlinear)
+
+  ──────────────────────────────────────────────────────────────────────────
+   Strongs Code  Transliteration    Greek        Translation      Grammar
+  ──────────────────────────────────────────────────────────────────────────
+   G602          Apokalypsis      Ἀποκάλυψις  [The] Revelation   N-NFS
+   G2424         Iēsou            Ἰησοῦ       of Jesus           N-GMS
+   G5547         Christou         Χριστοῦ ,   Christ             N-GMS
+   G3739         hēn              ἣν          which              RelPro-AFS
+   G1325         edōken           ἔδωκεν      gave               V-AIA-3S
+   G846          autō             αὐτῷ        to him             PPro-DM3S
+   G3588         ho               ὁ           -                  Art-NMS
+   G2316         Theos            Θεός ,      God                N-NMS
+   G1166         deixai           δεῖξαι      to show            V-ANA
+   G3588         tois             τοῖς        to the             Art-DMP
+   G1401         doulois          δούλοις     bond-servants      N-DMP
+   G846          autou            αὐτοῦ ,     of him             PPro-GM3S
+   G3739         ha               ἃ           what things        RelPro-ANP
+   G1163         dei              δεῖ         it behoves         V-PIA-3S
+   G1096         genesthai        γενέσθαι    to take place      V-ANM
+   G1722         en               ἐν          in                 Prep
+   G5034         tachei           τάχει .     quickness          N-DNS
+   G2532         kai              καὶ         and                Conj
+   G4591         esēmanen         ἐσήμανεν ,  he signified [it]  V-AIA-3S
+   G649          aposteilas       ἀποστείλας  having sent        V-APA-NMS
+   G1223         dia              διὰ         through            Prep
+   G3588         tou              τοῦ         the                Art-GMS
+   G32           angelou          ἀγγέλου     angel              N-GMS
+   G846          autou            αὐτοῦ ,     of him             PPro-GM3S
+   G3588         tō               τῷ          to the             Art-DMS
+   G1401         doulō            δούλῳ       servant            N-DMS
+   G846          autou            αὐτοῦ ,     of him             PPro-GM3S
+   G2491         Iōannē           Ἰωάννῃ* ,   John               N-DMS
+  ──────────────────────────────────────────────────────────────────────────
 
 Watch
 youtube.com: THE ONLY TRUE MAP OF THE FUTURE–GOD GAVE IT {@DTBM}
@@ -63333,6 +63376,11 @@ accommodate for somebody who for reasons of maintaining good conscience, for rea
 using this type of technology. How incredibly unloving it is to force this onto people. It's an attack on
 personhood and human dignity. It's treating human beings as without significant value.
 
+Regarding all the AI theft and transhumanism being pushed onto people:
+
+  Psalms 119:84-85 - How long must your servant endure? When will you judge those who persecute me? The insolent
+  have dug pitfalls for me; they do not live according to your law. (ESV)
+
 youtube.com: John Piper Asked ChatGPT to Write a Prayer {@thegospelcoalition}
 Why were you made? Words? Computers do words better than you. Seriously, better than me. Computers do words. They
 don't feel anything. Therefore, the universe is created to have people who feel. This is amazing. Think of it. The
@@ -68662,6 +68710,32 @@ Those in the process of being sanctified by Jesus are sons:
   your name to my brothers; in the midst of the congregation I will sing your praise. And again, I will put my
   trust in him. And again, Behold, I and the children God has given me. (ESV)
 
+Those who abide in Jesus' commandments are sons of God:
+
+  John 1:14 - And the Word became flesh and dwelt among us, and we have seen his glory, glory as of the only Son
+  from the Father, full of grace and truth. (ESV)
+
+  Matthew 3:16-17 - And when Jesus was baptized, immediately he went up from the water, and behold, the heavens
+  were opened to him, and he saw the Spirit of God descending like a dove and coming to rest on him; and behold, a
+  voice from heaven said, This is my beloved Son, with whom I am well pleased. (ESV)
+
+  Galatians 3:25-26 - But now that faith has come, we are no longer under a guardian, for in Christ Jesus you are
+  all sons of God, through faith. (ESV)
+
+  I John 3:24 - Whoever keeps his commandments abides in him, and he in them. And by this we know that he abides
+  in us, by the Spirit whom he has given us. (ESV)
+
+God brings many sons to glory through Jesus Christ His Only-Begotten Son:
+
+  John 1:1-3 - In the beginning was the Word, and the Word was with God, and the Word was God. He was in the
+  beginning with God. All things were made through him, and without him was not any thing made that was made.
+  (ESV)
+
+  Hebrews 2:9-10 - But we see him who for a little while was made lower than the angels, namely Jesus, crowned
+  with glory and honor because of the suffering of death, so that by the grace of God he might taste death for
+  everyone. For it was fitting that he, for whom and by whom all things exist, in bringing many sons to glory,
+  should make the founder of their salvation perfect through suffering. (ESV)
+
 We put our trust in Jehovah God. We put our trust in Jesus:
 
   Isaiah 12:2 - Behold, God is my salvation; I will trust, and will not be afraid; for the LORD GOD is my strength
@@ -70733,29 +70807,37 @@ trusting/believing (G4100 pisteuo) in Him may not perish, but may have life ever
 biblehub.com 3-16.htm: John 3:16 Interlinear: for God did so love the world, that His Son – the only begotten – He
 gave, that every one who is believing in him may not perish, but may have life age-during.
 
- | 3778   1063 25       3588    2316  3588    2889      5620
- | Houtōs gar  ēgapēsen ho      Theos ton     kosmon    hōste
- | Οὕτως  γὰρ  ἠγάπησεν ὁ       Θεὸς  τὸν     κόσμον  , ὥστε
- | Thus   for  loved     -      God   the     world     that
- | Adv    Conj V-AIA-3S Art-NMS N-NMS Art-AMS N-AMS     Conj
- |
- | 3588    5207    3588    3439          1325
- | ton     Huion   ton     monogenē      edōken
- | τὸν     Υἱὸν  , τὸν     μονογενῆ  ,   ἔδωκεν  ,
- |  the     Son     the     only begotten He gave
- |  Art-AMS N-AMS   Art-AMS Adj-AMS       V-AIA-3S
- | 
- |  2443    3956     3588    4100      1519 846
- |  hina    pas      ho      pisteuōn  eis  auton
- |  ἵνα     πᾶς      ὁ       πιστεύων  εἰς  αὐτὸν
- |  so that everyone  -      believing in   Him
- |  Conj    Adj-NMS  Art-NMS V-PPA-NMS Prep PPro-AM3S
- | 
- |  3361 622           235  2192        2222  166
- |  mē   apolētai      all’ echē        zōēn  aiōnion
- |  μὴ   ἀπόληται  ,   ἀλλ’ ἔχῃ         ζωὴν  αἰώνιον  .
- |  not  should perish but  should have life  eternal
- |  Adv  V-ASM-3S      Conj V-PSA-3S    N-AFS Adj-AFS
+John 3:16 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek      Translation    Grammar
+─────────────────────────────────────────────────────────────────────
+G3779         Houtōs           Οὕτως       thus           Adv
+G1063         gar              γὰρ         indeed         Conj
+G25           ēgapēsen         ἠγάπησεν    loved          V-AIA-3S
+G3588         ho               ὁ           -              Art-NMS
+G2316         Theos            Θεὸς        God            N-NMS
+G3588         ton              τὸν         the            Art-AMS
+G2889         kosmon           κόσμον ,    world          N-AMS
+G5620         hōste            ὥστε        that           Conj
+G3588         ton              τὸν         the            Art-AMS
+G5207         Huion            Υἱὸν ,      Son            N-AMS
+G3588         ton              τὸν         the            Art-AMS
+G3439         monogenē         μονογενῆ ,  only begotten  Adj-AMS
+G1325         edōken           ἔδωκεν ,    he gave        V-AIA-3S
+G2443         hina             ἵνα         that           Conj
+G3956         pas              πᾶς         everyone       Adj-NMS
+G3588         ho               ὁ           -              Art-NMS
+G4100         pisteuōn         πιστεύων    believing      V-PPA-NMS
+G1519         eis              εἰς         in             Prep
+G846          auton            αὐτὸν ,     him            PPro-AM3S
+G3361         mē               μὴ          not            Adv
+G622          apolētai         ἀπόληται ,  should perish  V-ASM-3S
+G235          all’             ἀλλ’        but            Conj
+G2192         echē             ἔχῃ         might have     V-PSA-3S
+G2222         zōēn             ζωὴν        life           N-AFS
+G166          aiōnion          αἰώνιον .   eternal        Adj-AFS
+─────────────────────────────────────────────────────────────────────
 
 It's faith in the heart which we need; obedience to Jesus Christ and belief in Jesus Christ in the heart, and
 belief and obedience to God who has raised from the dead Jesus our Lord, who was delivered up for our trespasses
@@ -74588,23 +74670,27 @@ We must not be workers of lawlessness, but our belief should produce more obedie
  | Definition: lawlessness
  | Usage: lawlessness, iniquity, disobedience, sin.
 
- | 2532 5119 3670           846       3754   3763      1097
- | kai  tote homologēsō     autois    hoti   Oudepote  egnōn
- | καὶ  τότε ὁμολογήσω      αὐτοῖς    ὅτι  , Οὐδέποτε  ἔγνων
- | And  then I will declare to them    -     Never     knew I
- | Conj Adv  V-FIA-1S       PPro-DM3P Conj   Adv       V-AIA-1S
- |
- | 4771     672         575  1473     3588    2038 [e]
- | hymas    apochōreite ap’  emou     hoi     ergazomenoi
- | ὑμᾶς  ;  ἀποχωρεῖτε  ἀπ’  ἐμοῦ  ,  οἱ      ἐργαζόμενοι
- |  you      depart you  from Me       those   working
- |  PPro-A2P V-PMA-2P    Prep PPro-G1S Art-VMP V-PPM/P-VMP
- | 
- |  3588    458
- |  tēn     anomian
- |  τὴν     ἀνομίαν  .
- |   -      lawlessness
- |  Art-AFS N-AFS
+Matthew 7:23 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek      Translation      Grammar
+─────────────────────────────────────────────────────────────────────────
+G2532         kai              καὶ          And             Conj
+G5119         tote             τότε         then            Adv
+G3670         homologēsō       ὁμολογήσω    I will declare  V-FIA-1S
+G846          autois           αὐτοῖς ,     to them         PPro-DM3P
+G3754         hoti             ὅτι          -               Conj
+G3763         Oudepote         Οὐδέποτε     Never           Adv
+G1097         egnōn            ἔγνων        knew I          V-AIA-1S
+G4771         hymas            ὑμᾶς ;       you             PPro-A2P
+G672          apochōreite      ἀποχωρεῖτε   depart you      V-PMA-2P
+G575          ap’              ἀπ’          from            Prep
+G1473         emou             ἐμοῦ ,       me              PPro-G1S
+G3588         hoi              οἱ           those           Art-VMP
+G2038         ergazomenoi      ἐργαζόμενοι  working         V-PPM/P-VMP
+G3588         tēn              τὴν          -               Art-AFS
+G458          anomian          ἀνομίαν .    lawlessness     N-AFS
+─────────────────────────────────────────────────────────────────────────
 
 We must be doers of Jesus' word:
 
@@ -146501,11 +146587,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-21 Sat 15:23
+Date: 2026-11-21 Sat 22:12
 
 Author: Shane Mulligan
 
-Created: 2026-11-21 Sat 15:25
+Created: 2026-11-21 Sat 22:25
 
 Validate
 
