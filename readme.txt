@@ -9434,7 +9434,14 @@ Those who are the good soil have the love of truth (God's Word) in their heart (
   liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this
   commandment we have from him: whoever loves God must also love his brother. (ESV)
 
-I believe that this teaching of "many are called but few are chosen" can be connected with Luke 8:12-15:
+I believe that this teaching of "many are called but few are chosen" can be connected with Luke 8:12-15. Those who
+hate (I John 3:13-16) and outright reject Jesus (John 1:11) are the ones who murdered the messengers. Those who
+receive Jesus are believers who believe in Jesus with love for Him, even for His name (John 1:12-13), not falling
+out of a loving agreement with God that Jesus Christ is God's Son with whom He is well pleased. And those who are
+the wedding guests with wedding garments have Jesus Christ as their advocate, even when they sin (I John 2:1-6)
+but a state of unrepentant sin is not a place that someone can safely remain in (I Corinthians 10:5-11, John
+15:4-7, I John 3:23-24, II John 1:9) lest they be grafted out (Romans 11:20-25) and/or destroyed (Hebrews
+10:37-39):
 
   Matthew 22:1-14 - And again Jesus spoke to them in parables, saying, The kingdom of heaven may be compared to a
   king who gave a wedding feast for his son, and sent his servants to call those who were invited to the wedding
@@ -47455,29 +47462,43 @@ Whoever is believing the words of God which Jesus has spoken has eternal life:
   John 5:24 - Truly truly I say to you that the [one] the word of Me hearing and believing the [One] having sent
   Me he has life eternal and into judgment not comes but has passed out of - death into - life (Interlinear)
 
- | 281     281   3004     4771     3754 3588      3588    3056
- | Amēn    amēn  legō     hymin    hoti ho        ton     logon
- | Ἀμὴν  , ἀμὴν  λέγω     ὑμῖν     ὅτι  ὁ         τὸν     λόγον
- | Truly   truly I say    to you   that the [one] the     word
- | Heb     Heb   V-PIA-1S PPro-D2P Conj Art-NMS   Art-AMS N-AMS
- |
- | 1473     191       2532 4100      3588      3992        1473 [e]
- | mou      akouōn    kai  pisteuōn  tō        pempsanti   me
- | μου      ἀκούων  , καὶ  πιστεύων  τῷ        πέμψαντί    με  ,
- |  of Me    hearing   and  believing the [One] having sent Me
- |  PPro-G1S V-PPA-NMS Conj V-PPA-NMS Art-DMS   V-APA-DMS   PPro-A1S
- | 
- |  2192     2222  166     2532 1519 2920     3756 2064       235
- |  echei    zōēn  aiōnion kai  eis  krisin   ouk  erchetai   alla
- |  ἔχει     ζωὴν  αἰώνιον καὶ  εἰς  κρίσιν   οὐκ  ἔρχεται  , ἀλλὰ
- |  he has   life  eternal and  into judgment not  comes      but
- |  V-PIA-3S N-AFS Adj-AFS Conj Prep N-AFS    Adv  V-PIM/P-3S Conj
- | 
- |  3327        1537   3588    2288     1519 3588    2222
- |  metabebēken ek     tou     thanatou eis  tēn     zōēn
- |  μεταβέβηκεν ἐκ     τοῦ     θανάτου  εἰς  τὴν     ζωήν  .
- |  has passed  out of  -      death    into  -      life
- |  V-RIA-3S    Prep   Art-GMS N-GMS    Prep Art-AFS N-AFS
+John 5:24 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek     Translation   Grammar
+─────────────────────────────────────────────────────────────────────
+G281          Amēn             Ἀμὴν ,       Truly        Heb
+G281          amēn             ἀμὴν         truly        Heb
+G3004         legō             λέγω         I say        V-PIA-1S
+G4771         hymin            ὑμῖν         to you       PPro-D2P
+G3754         hoti             ὅτι          that         Conj
+G3588         ho               ὁ            the [one]    Art-NMS
+G3588         ton              τὸν          the          Art-AMS
+G3056         logon            λόγον        word         N-AMS
+G1473         mou              μου          of Me        PPro-G1S
+G191          akouōn           ἀκούων ,     hearing      V-PPA-NMS
+G2532         kai              καὶ          and          Conj
+G4100         pisteuōn         πιστεύων     believing    V-PPA-NMS
+G3588         tō               τῷ           the [One]    Art-DMS
+G3992         pempsanti        πέμψαντί     having sent  V-APA-DMS
+G1473         me               με ,         Me           PPro-A1S
+G2192         echei            ἔχει         he has       V-PIA-3S
+G2222         zōēn             ζωὴν         life         N-AFS
+G166          aiōnion          αἰώνιον      eternal      Adj-AFS
+G2532         kai              καὶ          and          Conj
+G1519         eis              εἰς          into         Prep
+G2920         krisin           κρίσιν       judgment     N-AFS
+G3756         ouk              οὐκ          not          Adv
+G2064         erchetai         ἔρχεται ,    comes        V-PIM/P-3S
+G235          alla             ἀλλὰ         but          Conj
+G3327         metabebēken      μεταβέβηκεν  has passed   V-RIA-3S
+G1537         ek               ἐκ           out of       Prep
+G3588         tou              τοῦ          -            Art-GMS
+G2288         thanatou         θανάτου      death        N-GMS
+G1519         eis              εἰς          into         Prep
+G3588         tēn              τὴν          -            Art-AFS
+G2222         zōēn             ζωήν .       life         N-AFS
+─────────────────────────────────────────────────────────────────────
 
 I think John 5:24 reads that the one who is trusting the words spoken through Jesus, trusting God, trusting Jesus
 is holds/posesses eternal life and has passed/is passing/passes from death into life.
@@ -55225,9 +55246,16 @@ eschatological views, then I think that person is still saved. Wouldn't you thin
 
 The whole duty of man is to fear God and keep His commandments and for the Christian that is to have a love for
 Jesus Christ, a love that loves Him rather than loving evil, and love our family in Christ as He has commanded us
-to love them. If we're doing that then we're abiding in Him and we're doing our duty. Eschatology is still
-important, of course. But when debating it we should be doing it out of love for God's word and love for
-one-another without being hypocrites / whitewashed-walls.
+to love them. If we're doing that then we're abiding in Him and we're doing our duty.
+
+youtube.com: Obey God even when it makes ZERO sense to your mind ! {@ TorchofChristMinistries } @time: 29 min 4
+sec
+Obey God even when your mind can't make sense of it. Because we're walking down a dark road and we have to stay on
+that straight and narrow path, and God's light must illuminate our path and show us where to go. He has to lead
+us, and we can't see all the way down this dark road. We can only see in front of us.
+
+Eschatology is still important, of course. But when debating it we should be doing it out of love for God's word
+and love for one-another without being hypocrites / whitewashed-walls.
 
 In defense of Lakepoint, when they brought up the Luke 12:42-49 passage, I don't think that the pastor meant that
 debating eschatology is always beating up on servants, but rather that it sometimes can be.
@@ -57574,6 +57602,12 @@ maintain Jesus' works.
   Jeremiah 23:32 - Behold, I am against those who prophesy lying dreams, declares the LORD, and who tell them and
   lead my people astray by their lies and their recklessness, when I did not send them or charge them. So they do
   not profit this people at all, declares the LORD. (ESV)
+
+youtube.com: Obey God even when it makes ZERO sense to your mind ! {@ TorchofChristMinistries } @time: 29 min 4
+sec
+Obey God even when your mind can't make sense of it. Because we're walking down a dark road and we have to stay on
+that straight and narrow path, and God's light must illuminate our path and show us where to go. He has to lead
+us, and we can't see all the way down this dark road. We can only see in front of us.
 
 So it's still extremely important for us to try to keep His commandments, and His commandments are to love God and
 one another as He loved us, selflessly.
@@ -97742,35 +97776,30 @@ esteeming His name.
 Then spoke those who feared Yahweh one to another and listened Yahweh and heard [them] so was written a book of
 remembrance before Him for those who fear Yahweh and who meditate on His name
 
- | 227  1696             3372             3068        376  854
- | ’āz  niḏ·bə·rū        yir·’ê           Yah·weh     ’îš  ’eṯ-
- | אז   נדברו            יראי             יהוה        איש  את־
- | Then spoke            those who feared Yahweh      one  to
- | Adv  V‑Nifal‑Perf‑3cp Adj‑mpc          N‑proper‑ms N‑ms Prep
- |
- |   7453          7181                              3068
- |   rê·‘ê·hū;     way·yaq·šêḇ                       Yah·weh
- | ､ רעהו        ､ ויקשב                             יהוה
- |    another       and listened                      Yahweh
- |    N‑msc | 3ms   Conj‑w | V‑Hifil‑ConsecImperf‑3ms N‑proper‑ms
- | 
- |  8085                            3789
- |  way·yiš·mā‘,                    way·yik·kā·ṯêḇ
- |  וישמע                           ויכתב
- |  and heard [them]                so was written
- |  Conj‑w | V‑Qal‑ConsecImperf‑3ms Conj‑w | V‑Nifal‑ConsecImperf‑3ms
- | 
- |  5612   2146           6440                 3372
- |  sê·per zik·kā·rō·wn   lə·pā·nāw            lə·yir·’ê
- |  ספר    זכרון          לפניו                ליראי
- |  a book of remembrance before Him           for those who fear
- |  N‑msc  N‑ms           Prep‑l | N‑cpc | 3ms Prep‑l | Adj‑mpc
- | 
- |    3068        2803                                8034
- |    Yah·weh,    ū·lə·ḥō·šə·ḇê                       šə·mōw.
- |  ､ יהוה        ולחשבי                            . שמו׃
- |    Yahweh      and who meditate                    on His name
- |    N‑proper‑ms Conj‑w, Prep‑l | V‑Qal‑Prtcpl‑mpc   N‑msc | 3ms
+Malachi 3:16 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration  Hebrew        Translation                     Grammar
+───────────────────────────────────────────────────────────────────────────────────────────────────
+H227          ’āz              אז      Then                     Adv
+H1696         niḏ·bə·rū        נדברו   spoke                    V‑Nifal‑Perf‑3cp
+H3372         yir·’ê           יראי    those who fear           Adj‑mpc
+H3068         Yah·weh          יהוה    YHWH                     N‑proper‑ms
+H376          ’îš              איש     each man                 N‑ms
+H854          ’eṯ-             את־     with                     Prep
+H7453         rê·‘ê·hū;        רעהו    his neighbor             N‑msc ¦ 3ms
+H7181         way·yaq·šêḇ      ויקשב   and listened             Conj‑w ¦ V‑Hifil‑ConsecImperf‑3ms
+H3068         Yah·weh          יהוה    YHWH                     N‑proper‑ms
+H8085         way·yiš·mā‘,     וישמע   and heard                Conj‑w ¦ V‑Qal‑ConsecImperf‑3ms
+H3789         way·yik·kā·ṯêḇ   ויכתב   and was written          Conj‑w ¦ V‑Nifal‑ConsecImperf‑3ms
+H5612         sê·per           ספר     a book                   N‑msc
+H2146         zik·kā·rō·wn     זכרון   of remembrance           N‑ms
+H6440         lə·pā·nāw        לפניו   before Him               Prep‑l ¦ N‑cpc ¦ 3ms
+H3372         lə·yir·’ê        ליראי   for those fearing        Prep‑l ¦ Adj‑mpc
+H3068         Yah·weh,         יהוה    YHWH                     N‑proper‑ms
+H2803         ū·lə·ḥō·šə·ḇê    ולחשבי  and for those esteeming  Conj‑w, Prep‑l ¦ V‑Qal‑Prtcpl‑mpc
+H8034         šə·mōw.          שמו׃    His name                 N‑msc ¦ 3ms
+───────────────────────────────────────────────────────────────────────────────────────────────────
 
 ὄνομα ónoma, on'-om-ah
 from a presumed derivative of the base of G1097 (compare G3685); a "name" (literally or figuratively) (authority,
@@ -146587,11 +146616,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-21 Sat 22:12
+Date: 2026-11-22 Sun 10:40
 
 Author: Shane Mulligan
 
-Created: 2026-11-21 Sat 22:25
+Created: 2026-11-22 Sun 10:42
 
 Validate
 
