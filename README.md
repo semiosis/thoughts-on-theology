@@ -1299,7 +1299,7 @@ Someone who used to do evil with their hands should then from the love of the tr
     
     > **[I Peter 1:22-25](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A22-25&version=ESV)** - Having purified your souls by your obedience to the truth for a sincere brotherly love, love one another earnestly from a pure heart, since you have been born again, not of perishable seed but of imperishable, through the living and abiding word of God; for All flesh is like grass and all its glory like the flower of grass. The grass withers, and the flower falls, but the word of the Lord remains forever. And this word is the good news that was preached to you. (ESV)
     
-    Walking in the light, I believe is walking in the love of the truth. After all, love is more preceding than faith and hope ([I Corinthians 13:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A13&version=ESV)), faith without love (i.e. hating the truth) is demonic ([James 2:19](https://www.biblegateway.com/passage/?search=James%202%3A19&version=ESV)), obedience without love is feigned ([Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)):
+    Walking in the light, I believe is walking in the love of the truth. After all, love is more preceding than faith and hope (**[I Corinthians 13:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A13&version=ESV)**, **[John 14:24](https://www.biblegateway.com/passage/?search=John%2014%3A24&version=ESV)**), faith without love (i.e. hating the truth) is demonic (**[James 2:19](https://www.biblegateway.com/passage/?search=James%202%3A19&version=ESV)**), obedience without love is feigned (**[Psalms 81:15](https://www.biblegateway.com/passage/?search=Psalms%2081%3A15&version=ESV)**):
     
     > **[I John 1:7](https://www.biblegateway.com/passage/?search=1%20John%201%3A7&version=ESV)** - But if we walk in the light, as he is in the light, we have fellowship with one another, and the blood of Jesus his Son cleanses us from all sin. (ESV)
     
@@ -2942,6 +2942,8 @@ A person who loves Jesus must have been forgiven (**[Luke 7:40-50](https://www.b
 A person is saved by receiving love for the truth (**[II Thessalonians 2:9-14](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-14&version=ESV)**).
 A person is saved by faith in Jesus Christ's name (**[Acts 16:30-34](https://www.biblegateway.com/passage/?search=Acts%2016%3A30-34&version=ESV)**).
 A person who has faith in Jesus, even in His name, must some amount of love for Jesus, even love for His name, since love is 'more preceeding' [(G3173 meizōn; [the] greatest, most preceeding)](G3173) than faith (**[I Corinthians 13:13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A13&version=ESV)**, **[I Corinthians 13:4-8](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A4-8&version=ESV)**).
+
+> **[John 14:24](https://www.biblegateway.com/passage/?search=John%2014%3A24&version=ESV)** - Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
 
 If God is a person's father then they would love Jesus Christ, and God is the father of all who believe in Jesus Christ. Therefore, a true believer in Jesus Christ loves Jesus Christ. That means that a true faith in Jesus Christ must have love for the truth:
 
@@ -9443,6 +9445,8 @@ Jesus is before all things (**[John 1:1-2](https://www.biblegateway.com/passage/
 
 Love is [(G3173 meizōn; greater/older)](G3173) than faith (i.e. the treasuring the truth is greater/most preceeding). So I think what we need to do is "with love for the truth have faith in Jesus Christ, the Only Begotten Son of God, and by faith obey Him":
 
+> **[John 14:24](https://www.biblegateway.com/passage/?search=John%2014%3A24&version=ESV)** - Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
+
 > **[Matthew 11:10-11](https://www.biblegateway.com/passage/?search=Matthew%2011%3A10-11&version=ESV)** - This is he of whom it is written, Behold, I send my messenger before your face, who will prepare your way before you. Truly, I say to you, among those born of women there has arisen no one greater [(G3173 meizōn; greater/older)](G3173) than John the Baptist. Yet the one who is least [(G3398 mikroteros; the least)](G3398) in the kingdom of heaven is greater [(G3173 meizōn; greater/older)](G3173) than he. (ESV)
 
 > **[Romans 9:12](https://www.biblegateway.com/passage/?search=Romans%209%3A12&version=ESV)** - she was told, The older [(G3173 meizōn; greater/older)](G3173) will serve the younger. (ESV)
@@ -12875,6 +12879,8 @@ To be saved, we must trust in what is true, we must agape love the truth:
 
 Saving faith is not only faith in the truth but it is also love for the truth (not only God's word but also those who have been begotton of God, and that includes those who love in the truth). We absolutely **must** love God one-another in the truth (**[II John 1:1-4](https://www.biblegateway.com/passage/?search=2%20John%201%3A1-4&version=ESV)**):
 
+> **[John 14:24](https://www.biblegateway.com/passage/?search=John%2014%3A24&version=ESV)** - Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
+
 > **[I John 5:1](https://www.biblegateway.com/passage/?search=1%20John%205%3A1&version=ESV)** - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him. (ESV)
 
 > **[I Corinthians 13:2-3](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A2-3&version=ESV)** - And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have all faith, so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I deliver up my body to be burned, but have not love, I gain nothing. (ESV)
@@ -15134,6 +15140,8 @@ If we love Jesus then we will keep His commandment to have faith in Him:
 > **[John 14:1](https://www.biblegateway.com/passage/?search=John%2014%3A1&version=ESV)** - Let not your hearts be troubled. Believe in God; believe also in me. (ESV)
 
 Love is [(G3173 meizōn; greater/older)](G3173) than faith (i.e. treasuring the truth). So I think what we need to do is "with love for the truth have faith in Jesus Christ, the Only Begotten Son of God, and by faith obey Him":
+
+> **[John 14:24](https://www.biblegateway.com/passage/?search=John%2014%3A24&version=ESV)** - Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
 
 > **[Matthew 11:10-11](https://www.biblegateway.com/passage/?search=Matthew%2011%3A10-11&version=ESV)** - This is he of whom it is written, Behold, I send my messenger before your face, who will prepare your way before you. Truly, I say to you, among those born of women there has arisen no one greater [(G3173 meizōn; greater/older)](G3173) than John the Baptist. Yet the one who is least [(G3398 mikroteros; the least)](G3398) in the kingdom of heaven is greater [(G3173 meizōn; greater/older)](G3173) than he. (ESV)
 
@@ -23088,7 +23096,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org9fabaea) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org958b1a5) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -24775,6 +24783,8 @@ Father God's commandment is for us to have faith in Jesus Christ's name and to l
 > **[John 16:25-28](https://www.biblegateway.com/passage/?search=John%2016%3A25-28&version=ESV)** - I have said these things to you in figures of speech. The hour is coming when I will no longer speak to you in figures of speech but will tell you plainly about the Father. In that day you will ask in my name, and I do not say to you that I will ask the Father on your behalf; for **the Father himself loves [(G5368 philei)](G5368) you, <ins>because you have loved [(G5368 pephilēkate)](G5368) me and have believed that I came from God.</ins>** I came from the Father and have come into the world, and now I am leaving the world and going to the Father.
 
 Real faith loves the truth rather than hates the truth and Jesus is the Truth and Father God and Holy Spirit are also the Truth. And God's word is the truth:
+
+> **[John 14:24](https://www.biblegateway.com/passage/?search=John%2014%3A24&version=ESV)** - Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
 
 > **[I Corinthians 13:1-13](https://www.biblegateway.com/passage/?search=1%20Corinthians%2013%3A1-13&version=ESV)** - If I speak in the tongues of men and of angels, but have not love, I am a noisy gong or a clanging cymbal. And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have all faith, so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I deliver up my body to be burned, but have not love, I gain nothing. Love is patient and kind; love does not envy or boast; it is not arrogant or rude. It does not insist on its own way; it is not irritable or resentful; it does not rejoice at wrongdoing, but rejoices with the truth. Love bears all things, believes all things, hopes all things, endures all things. Love never ends. As for prophecies, they will pass away; as for tongues, they will cease; as for knowledge, it will pass away. For we know in part and we prophesy in part, but when the perfect comes, the partial will pass away. When I was a child, I spoke like a child, I thought like a child, I reasoned like a child. When I became a man, I gave up childish ways. For now we see in a mirror dimly, but then face to face. Now I know in part; then I shall know fully, even as I have been fully known. So now faith, hope, and love abide, these three; but the greatest [(G3173 meizōn; [the] greatest, most preceeding)](G3173) of these is love. (ESV)
 
@@ -29252,7 +29262,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org95ebdda).
+I didn't know but it turned out to be the last day of my [sentence](#org55e5306).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -30706,6 +30716,8 @@ Being born of the Spirit / spiritually regenerated I think is a different event 
 Both faith and law are dependent on love.
 
 Love is [(G3173 meizōn; greater/older)](G3173) than faith (i.e. the treasuring the truth is greater/most preceeding). So I think what we need to do is "with love for the truth have faith in Jesus Christ, the Only Begotten Son of God, and by faith obey Him":
+
+> **[John 14:24](https://www.biblegateway.com/passage/?search=John%2014%3A24&version=ESV)** - Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
 
 > **[Matthew 11:10-11](https://www.biblegateway.com/passage/?search=Matthew%2011%3A10-11&version=ESV)** - This is he of whom it is written, Behold, I send my messenger before your face, who will prepare your way before you. Truly, I say to you, among those born of women there has arisen no one greater [(G3173 meizōn; greater/older)](G3173) than John the Baptist. Yet the one who is least [(G3398 mikroteros; the least)](G3398) in the kingdom of heaven is greater [(G3173 meizōn; greater/older)](G3173) than he. (ESV)
 
@@ -38992,6 +39004,8 @@ But the rest of this except I agree with.
 Jesus is going to save many lives:
 
 > **[Mark 10:45](https://www.biblegateway.com/passage/?search=Mark%2010%3A45&version=ESV)** - For even the Son of Man came not to be served but to serve, and to give his life as a ransom for many. (ESV)
+
+> **[Psalms 49:7-9](https://www.biblegateway.com/passage/?search=Psalms%2049%3A7-9&version=ESV)** - Truly no man can ransom another, or give to God the price of his life, for the ransom of their life is costly and can never suffice, that he should live on forever and never see the pit. (ESV)
 
 Jesus asked to give up everything and follow Him. Jesus does things only God can do:
 
@@ -49153,6 +49167,8 @@ Confess:
 
 Faith based on love for the truth which produces love for one-another:
 
+> **[John 14:24](https://www.biblegateway.com/passage/?search=John%2014%3A24&version=ESV)** - Whoever does not love me does not keep my words. And the word that you hear is not mine but the Father's who sent me. (ESV)
+
 > **[Galatians 5:6](https://www.biblegateway.com/passage/?search=Galatians%205%3A6&version=ESV)** - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith working through love. (ESV)
 
 > **[John 14:15](https://www.biblegateway.com/passage/?search=John%2014%3A15&version=ESV)** - If you love me, you will keep my commandments. (ESV)
@@ -55200,7 +55216,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org7b53926)
+See: [33.4.1](#org399231d)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -67874,6 +67890,70 @@ To get to know Jesus, we **must obey** His commandments:
 
 > **[Matthew 5:8](https://www.biblegateway.com/passage/?search=Matthew%205%3A8&version=ESV)** - Blessed are the pure in heart, for they shall see God.
 
+In order to see reality clearly, a person would have to be not transgressing the commandments.
+
+-   **Here is a mathematical analogy:** > I think of it a bit like in math how there is a thing called an identity matrix. An identity matrix (I) has a diagonal of ones. And when multiplying with another matrix of the same dimensions (A), the resulting matrix (B) is unchanged (A = B). The identity matrix (I) is like having "clear vision". But if one of those ones is changed for a different number then when multiplying it with another matrix (C) of the same dimensions, the resulting matrix (D) is not the same as the matrix (C).
+    > 
+    > Having an impure heart is like not having the identity matrix, and so can't see clearly.
+    > 
+    > A slave to sin is someone who can't stop sinning because they can't see reality clearly. They believe lies, regurgitate lies and make more lies, and can't see reality clearly.
+    > 
+    > But Jesus Christ is like the identity matrix (I), the perfect man.
+    > 
+    > And by trusting in Him and His words, a person can have their own heart restored so that they can see God.
+    > 
+    > In order to be able to see reality clearly someone would have to be practicing righteousness like Jesus.
+    > 
+    > Jesus being God's Son takes after God. Jesus is reality. But if a person doesn't believe in Jesus then in the math analogy it would be like not even believing that an identity matrix functions as an identity matrix. A person can't get unstuck if they do not receive Jesus and His words as true. Jesus and His words words need to be accepted as true and trusted in and loved to be saved. In distrusting Jesus and His words a person is condemned.
+    > 
+    > ,#+BEGIN<sub>QUOTE</sub>
+    >   **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. (ESV)
+    > ,#+END<sub>QUOTE</sub>
+
+Real faith also loves (not hates) the truth.
+
+-   **God is one [(H259. echad; undivided [special] unity)](H259.):** [ichthys.com 20one.htm:  The Hebrew word for ' one ' { echadh } and the uniqueness of God .](https://ichthys.com/mail-Hebrew%20word%20for%20one.htm)
+
+> **[John 10:30](https://www.biblegateway.com/passage/?search=John%2010%3A30&version=ESV)** - I and the Father are one. (ESV)
+
+> **[John 17:20-24](https://www.biblegateway.com/passage/?search=John%2017%3A20-24&version=ESV)** - I do not ask for these only, but also for those who will believe in me through their word, that they may all be one, just as you, Father, are in me, and I in you, that they also may be in us, so that the world may believe that you have sent me. The glory that you have given me I have given to them, that they may be one even as we are one, I in them and you in me, that they may become perfectly one, so that the world may know that you sent me and loved them even as you loved me. Father, I desire that they also, whom you have given me, may be with me where I am, to see my glory that you have given me because you loved me before the foundation of the world. (ESV)
+
+The "main" point of the "greater than"-ness of Father God as compared to Jesus Christ the Son of God, I believe is that it shows that Jesus Christ the Son of God is "sent" by Father God:
+
+> **[John 14:28](https://www.biblegateway.com/passage/?search=John%2014%3A28&version=ESV)** - You heard me say to you, I am going away, and I will come to you. If you loved me, you would have rejoiced, because I am going to the Father, for the Father is greater than (G3173 meizōn; greater than) I. (ESV)
+
+> **[John 13:12-16](https://www.biblegateway.com/passage/?search=John%2013%3A12-16&version=ESV)** - When he had washed their feet and put on his outer garments and resumed his place, he said to them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am. If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have given you an example, that you also should do just as I have done to you. Truly, truly, I say to you, a servant is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
+
+-   **I have an analogy way of thinking of this unity and oneness through analogy:** > ,#+BEGIN<sub>SRC</sub> text -n :async :results verbatim code :lang text
+    >   Imagine an infinite matrix of ones:
+    > 
+    > 1 0 0 0 0 &#x2026;
+    > 0 1 0 0 0
+    > 0 0 1 0 0
+    > 0 0 0 1 0
+    > 0 0 0 0 1
+    > &#x2026;
+    > 
+    > And then get rid of the first row and column:
+    > 
+    >   1 0 0 0 &#x2026;
+    >   0 1 0 0
+    >   0 0 1 0
+    >   0 0 0 1
+    >   &#x2026;
+    > ,#+END<sub>SRC</sub>
+    > 
+    > Notice how the second matrix fits within the first one.
+    > The second matrix is in unity and of the same "substance" as the first matrix and has the same character.
+    
+    Jesus is in the "bosom" of the Father, and is the "image of God". When a person sees the Son of God, they see Father God, but the Son of God is not Father God. But they are both God in unity. Without the Son of God there is no God.
+    
+    > **[John 1:18](https://www.biblegateway.com/passage/?search=John%201%3A18&version=ESV)** - No one has ever seen God; the only God, who is at the Father's side, he has made him known. (ESV)
+    
+    > **[Colossians 1:15](https://www.biblegateway.com/passage/?search=Colossians%201%3A15&version=ESV)** - He is the image of the invisible God, the firstborn of all creation. (ESV)
+    
+    > **[John 14:9](https://www.biblegateway.com/passage/?search=John%2014%3A9&version=ESV)** - Jesus said to him, Have I been with you so long, and you still do not know me, Philip? Whoever has seen me has seen the Father. How can you say, Show us the Father? (ESV)
+
 
 ## The peacemakers shall be called sons of God
 
@@ -77265,7 +77345,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org7b53926)
+See: [33.4.1](#org399231d)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -79925,7 +80005,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org07d6613) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org8aa9825) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -88504,7 +88584,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org07d6613) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org8aa9825) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -89842,7 +89922,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgefe2f3f)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org53e36c4)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

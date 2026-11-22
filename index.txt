@@ -2714,8 +2714,8 @@ Giving into desire for evil, that leads to fruit for death.
   word is the good news that was preached to you. (ESV)
 
 Walking in the light, I believe is walking in the love of the truth. After all, love is more preceding than faith
-and hope (I Corinthians 13:13), faith without love (i.e. hating the truth) is demonic (James 2:19), obedience
-without love is feigned (Psalms 81:15):
+and hope (I Corinthians 13:13, John 14:24), faith without love (i.e. hating the truth) is demonic (James 2:19),
+obedience without love is feigned (Psalms 81:15):
 
   I John 1:7 - But if we walk in the light, as he is in the light, we have fellowship with one another, and the
   blood of Jesus his Son cleanses us from all sin. (ESV)
@@ -5879,6 +5879,9 @@ A person is saved by receiving love for the truth (II Thessalonians 2:9-14). A p
 Christ's name (Acts 16:30-34). A person who has faith in Jesus, even in His name, must some amount of love for
 Jesus, even love for His name, since love is 'more preceeding' (G3173 meizōn; [the] greatest, most preceeding)
 than faith (I Corinthians 13:13, I Corinthians 13:4-8).
+
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
 
 If God is a person's father then they would love Jesus Christ, and God is the father of all who believe in Jesus
 Christ. Therefore, a true believer in Jesus Christ loves Jesus Christ. That means that a true faith in Jesus
@@ -15701,6 +15704,9 @@ Love is (G3173 meizōn; greater/older) than faith (i.e. the treasuring the truth
 think what we need to do is "with love for the truth have faith in Jesus Christ, the Only Begotten Son of God, and
 by faith obey Him":
 
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
+
   Matthew 11:10-11 - This is he of whom it is written, Behold, I send my messenger before your face, who will
   prepare your way before you. Truly, I say to you, among those born of women there has arisen no one greater
   (G3173 meizōn; greater/older) than John the Baptist. Yet the one who is least (G3398 mikroteros; the least) in
@@ -21674,6 +21680,9 @@ Saving faith is not only faith in the truth but it is also love for the truth (n
 who have been begotton of God, and that includes those who love in the truth). We absolutely must love God
 one-another in the truth (II John 1:1-4):
 
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
+
   I John 5:1 - Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the
   Father loves whoever has been born of him. (ESV)
 
@@ -25695,6 +25704,9 @@ If we love Jesus then we will keep His commandment to have faith in Him:
 
 Love is (G3173 meizōn; greater/older) than faith (i.e. treasuring the truth). So I think what we need to do is
 "with love for the truth have faith in Jesus Christ, the Only Begotten Son of God, and by faith obey Him":
+
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
 
   Matthew 11:10-11 - This is he of whom it is written, Behold, I send my messenger before your face, who will
   prepare your way before you. Truly, I say to you, among those born of women there has arisen no one greater
@@ -41602,6 +41614,9 @@ commanded:
 Real faith loves the truth rather than hates the truth and Jesus is the Truth and Father God and Holy Spirit are
 also the Truth. And God's word is the truth:
 
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
+
   I Corinthians 13:1-13 - If I speak in the tongues of men and of angels, but have not love, I am a noisy gong or
   a clanging cymbal. And if I have prophetic powers, and understand all mysteries and all knowledge, and if I have
   all faith, so as to remove mountains, but have not love, I am nothing. If I give away all I have, and if I
@@ -50248,6 +50263,9 @@ Both faith and law are dependent on love.
 Love is (G3173 meizōn; greater/older) than faith (i.e. the treasuring the truth is greater/most preceeding). So I
 think what we need to do is "with love for the truth have faith in Jesus Christ, the Only Begotten Son of God, and
 by faith obey Him":
+
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
 
   Matthew 11:10-11 - This is he of whom it is written, Behold, I send my messenger before your face, who will
   prepare your way before you. Truly, I say to you, among those born of women there has arisen no one greater
@@ -62810,6 +62828,9 @@ Jesus is going to save many lives:
 
   Mark 10:45 - For even the Son of Man came not to be served but to serve, and to give his life as a ransom for
   many. (ESV)
+
+  Psalms 49:7-9 - Truly no man can ransom another, or give to God the price of his life, for the ransom of their
+  life is costly and can never suffice, that he should live on forever and never see the pit. (ESV)
 
 Jesus asked to give up everything and follow Him. Jesus does things only God can do:
 
@@ -77757,6 +77778,9 @@ youtube.com: CHRIST IS ENOUGH - HILLSONG LIVE LYRIC VIDEO | GLORIOUS RUINS 2013
 6.3. Obedience - A heart of obedience is the start of faith, and belief is the start of continued obedience
 
 Faith based on love for the truth which produces love for one-another:
+
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
 
   Galatians 5:6 - For in Christ Jesus neither circumcision nor uncircumcision counts for anything, but only faith
   working through love. (ESV)
@@ -104269,6 +104293,87 @@ To get to know Jesus, we must obey His commandments:
 38.5. Without holiness, no-one will see the Lord
 
   Matthew 5:8 - Blessed are the pure in heart, for they shall see God.
+
+In order to see reality clearly, a person would have to be not transgressing the commandments.
+
+Here is a mathematical analogy
+
+  I think of it a bit like in math how there is a thing called an identity matrix. An identity matrix (I) has a
+  diagonal of ones. And when multiplying with another matrix of the same dimensions (A), the resulting matrix (B)
+  is unchanged (A = B). The identity matrix (I) is like having "clear vision". But if one of those ones is changed
+  for a different number then when multiplying it with another matrix (C) of the same dimensions, the resulting
+  matrix (D) is not the same as the matrix (C).
+
+  Having an impure heart is like not having the identity matrix, and so can't see clearly.
+
+  A slave to sin is someone who can't stop sinning because they can't see reality clearly. They believe lies,
+  regurgitate lies and make more lies, and can't see reality clearly.
+
+  But Jesus Christ is like the identity matrix (I), the perfect man.
+
+  And by trusting in Him and His words, a person can have their own heart restored so that they can see God.
+
+  In order to be able to see reality clearly someone would have to be practicing righteousness like Jesus.
+
+  Jesus being God's Son takes after God. Jesus is reality. But if a person doesn't believe in Jesus then in the
+  math analogy it would be like not even believing that an identity matrix functions as an identity matrix. A
+  person can't get unstuck if they do not receive Jesus and His words as true. Jesus and His words words need to
+  be accepted as true and trusted in and loved to be saved. In distrusting Jesus and His words a person is
+  condemned.
+
+  ,#+BEGIN[QUOTE] John 3:18 - Whoever believes in him is not condemned, but whoever does not believe is condemned
+  already, because he has not believed in the name of the only Son of God. (ESV) ,#+END[QUOTE]
+
+Real faith also loves (not hates) the truth.
+
+God is one (H259. echad; undivided [special] unity)
+ichthys.com 20one.htm: The Hebrew word for ' one ' { echadh } and the uniqueness of God .
+
+  John 10:30 - I and the Father are one. (ESV)
+
+  John 17:20-24 - I do not ask for these only, but also for those who will believe in me through their word, that
+  they may all be one, just as you, Father, are in me, and I in you, that they also may be in us, so that the
+  world may believe that you have sent me. The glory that you have given me I have given to them, that they may be
+  one even as we are one, I in them and you in me, that they may become perfectly one, so that the world may know
+  that you sent me and loved them even as you loved me. Father, I desire that they also, whom you have given me,
+  may be with me where I am, to see my glory that you have given me because you loved me before the foundation of
+  the world. (ESV)
+
+The "main" point of the "greater than"-ness of Father God as compared to Jesus Christ the Son of God, I believe is
+that it shows that Jesus Christ the Son of God is "sent" by Father God:
+
+  John 14:28 - You heard me say to you, I am going away, and I will come to you. If you loved me, you would have
+  rejoiced, because I am going to the Father, for the Father is greater than (G3173 meizōn; greater than) I. (ESV)
+
+  John 13:12-16 - When he had washed their feet and put on his outer garments and resumed his place, he said to
+  them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am.
+  If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have
+  given you an example, that you also should do just as I have done to you. Truly, truly, I say to you, a servant
+  is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
+
+I have an analogy way of thinking of this unity and oneness through analogy
+
+  ,#+BEGIN[SRC] text -n :async :results verbatim code :lang text Imagine an infinite matrix of ones:
+
+  1 0 0 0 0 … 0 1 0 0 0 0 0 1 0 0 0 0 0 1 0 0 0 0 0 1 …
+
+  And then get rid of the first row and column:
+
+  1 0 0 0 … 0 1 0 0 0 0 1 0 0 0 0 1 … ,#+END[SRC]
+
+  Notice how the second matrix fits within the first one. The second matrix is in unity and of the same
+  "substance" as the first matrix and has the same character.
+
+Jesus is in the "bosom" of the Father, and is the "image of God". When a person sees the Son of God, they see
+Father God, but the Son of God is not Father God. But they are both God in unity. Without the Son of God there is
+no God.
+
+  John 1:18 - No one has ever seen God; the only God, who is at the Father's side, he has made him known. (ESV)
+
+  Colossians 1:15 - He is the image of the invisible God, the firstborn of all creation. (ESV)
+
+  John 14:9 - Jesus said to him, Have I been with you so long, and you still do not know me, Philip? Whoever has
+  seen me has seen the Father. How can you say, Show us the Father? (ESV)
 
 38.6. The peacemakers shall be called sons of God
 
@@ -146616,11 +146721,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-22 Sun 10:40
+Date: 2026-11-23 Mon 10:37
 
 Author: Shane Mulligan
 
-Created: 2026-11-22 Sun 10:42
+Created: 2026-11-23 Mon 10:49
 
 Validate
 
