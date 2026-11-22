@@ -27518,17 +27518,24 @@ eimi I AM or I am He) you will die in the sins of you
 biblehub.com 8-58.htm: John 8:58 Interlinear
 Said to them Jesus Truly truly I say to you before Abraham was I am (G1473 egō G1510 eimi I AM or I am He)
 
- | 2036     846       2424      281     281     3004     4771
- | Eipen    autois    Iēsous    Amēn    amēn    legō     hymin
- | Εἶπεν    αὐτοῖς    Ἰησοῦς  , Ἀμὴν  , ἀμὴν  , λέγω     ὑμῖν  ,
- | Said     to them   Jesus     Truly   truly   I say    to you
- | V-AIA-3S PPro-DM3P N-NMS     Heb     Heb     V-PIA-1S PPro-D2P
- |
- | 4250   11      1096        1473     1510
- | prin   Abraam  genesthai   egō      eimi
- | πρὶν   Ἀβραὰμ  γενέσθαι  , ἐγὼ      εἰμί  .
- |  before Abraham was         I        am
- |  Adv    N-AMS   V-ANM       PPro-N1S V-PIA-1S
+John 8:58 (Interlinear)
+
+───────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek     Translation   Grammar
+───────────────────────────────────────────────────────────────────
+G3004         eipen            εἶπεν       Said         V-AIA-3S
+G846          autois           αὐτοῖς      to them      PPro-DM3P
+G2424         Iēsous           Ἰησοῦς ,    Jesus        N-NMS
+G281          Amēn             Ἀμὴν        Truly        Heb
+G281          amēn             ἀμὴν        truly        Heb
+G3004         legō             λέγω        I say        V-PIA-1S
+G4771         hymin            ὑμῖν ,      to you       PPro-D2P
+G4250         prin             πρὶν        Before       Adv
+G11           Abraam           Ἀβραὰμ      Abraham      N-AMS
+G1096         genesthai        γενέσθαι ,  was          V-ANM
+G1473         egō              ἐγὼ         I            PPro-N1S
+G1510         eimi             εἰμί .      am           V-PIA-1S
+───────────────────────────────────────────────────────────────────
 
   John 4:25-26 - The woman said to him, I know that Messiah is coming (he who is called Christ). When he comes, he
   will tell us all things. Jesus said to her, I who speak to you am he. (ESV)
@@ -44691,23 +44698,36 @@ walking that is different from doing the will of satan. Satan is not God's equal
 We need a trusting, obedient heart. It's not just about obeying one point of belief in Jesus, but about having a
 heart which believes Jesus, trusts Jesus, obeys Jesus, and accepting Him and His words.
 
- | 3588      4100      1519 3588    5207  2192     2222  166
- | ho        pisteuōn  eis  ton     Huion echei    zōēn  aiōnion
- | ὁ         πιστεύων  εἰς  τὸν     Υἱὸν  ἔχει     ζωὴν  αἰώνιον  ;
- | The [one] believing in   the     Son   has      life  eternal
- | Art-NMS   V-PPA-NMS Prep Art-AMS N-AMS V-PIA-3S N-AFS Adj-AFS
- |
- | 3588      1161     544         3588     5207   3756 3708
- | ho        de       apeithōn    tō       Huiō   ouk  opsetai
- | ὁ         δὲ       ἀπειθῶν     τῷ       Υἱῷ  , οὐκ  ὄψεται
- |  the [one] however  not obeying the      Son    not  will see
- |  Art-NMS   Conj     V-PPA-NMS   Art-DMS  N-DMS  Adv  V-FIM-3S
- | 
- |  2222    235  3588    3709  3588    2316   3306     1909 846
- |  zōēn    all’ hē      orgē  tou     Theou  menei    ep’  auton
- |  ζωήν  , ἀλλ’ ἡ       ὀργὴ  τοῦ     Θεοῦ   μένει    ἐπ’  αὐτόν  .
- |  life    but  the     wrath  -      of God abides   on   him
- |  N-AFS   Conj Art-NFS N-NFS Art-GMS N-GMS  V-PIA-3S Prep PPro-AM3S
+John 3:36 (Interlinear)
+
+──────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek    Translation   Grammar
+──────────────────────────────────────────────────────────────────
+G3588         ho               ὁ          the [one]    Art-NMS
+G4100         pisteuōn         πιστεύων   believing    V-PPA-NMS
+G1519         eis              εἰς        on           Prep
+G3588         ton              τὸν        the          Art-AMS
+G5207         Huion            Υἱὸν       Son          N-AMS
+G2192         echei            ἔχει       has          V-PIA-3S
+G2222         zōēn             ζωὴν       life         N-AFS
+G166          aiōnion          αἰώνιον ;  eternal      Adj-AFS
+G3588         ho               ὁ          the [one]    Art-NMS
+G1161         de               δὲ         moreover     Conj
+G544          apeithōn         ἀπειθῶν    not obeying  V-PPA-NMS
+G3588         tō               τῷ         the          Art-DMS
+G5207         Huiō             Υἱῷ ,      Son          N-DMS
+G3756         ouk              οὐκ        not          Adv
+G3708         opsetai          ὄψεται     will see     V-FIM-3S
+G2222         zōēn             ζωήν ,     life         N-AFS
+G235          all’             ἀλλ’       but          Conj
+G3588         hē               ἡ          the          Art-NFS
+G3709         orgē             ὀργὴ       wrath        N-NFS
+G3588         tou              τοῦ        -            Art-GMS
+G2316         Theou            Θεοῦ       of God       N-GMS
+G3306         menei            μένει      abides       V-PIA-3S
+G1909         ep’              ἐπ’        on           Prep
+G846          auton            αὐτόν .    him          PPro-AM3S
+──────────────────────────────────────────────────────────────────
 
 The reason Abraham's faith was counted as righteousness is because no distrust made him waver (Abraham faithfully
 trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good indicator
@@ -104298,31 +104318,30 @@ In order to see reality clearly, a person would have to be not transgressing the
 
 Here is a mathematical analogy
 
-  I think of it a bit like in math how there is a thing called an identity matrix. An identity matrix (I) has a
-  diagonal of ones. And when multiplying with another matrix of the same dimensions (A), the resulting matrix (B)
-  is unchanged (A = B). The identity matrix (I) is like having "clear vision". But if one of those ones is changed
-  for a different number then when multiplying it with another matrix (C) of the same dimensions, the resulting
-  matrix (D) is not the same as the matrix (C).
+I think of it a bit like in math how there is a thing called an identity matrix. An identity matrix (I) has a
+diagonal of ones. And when multiplying with another matrix of the same dimensions (A), the resulting matrix (B) is
+unchanged (A = B). The identity matrix (I) is like having "clear vision". But if one of those ones is changed for
+a different number then when multiplying it with another matrix (C) of the same dimensions, the resulting matrix
+(D) is not the same as the matrix (C).
 
-  Having an impure heart is like not having the identity matrix, and so can't see clearly.
+Having an impure heart is like not having the identity matrix, and so can't see clearly.
 
-  A slave to sin is someone who can't stop sinning because they can't see reality clearly. They believe lies,
-  regurgitate lies and make more lies, and can't see reality clearly.
+A slave to sin is someone who can't stop sinning because they can't see reality clearly. They believe lies,
+regurgitate lies and make more lies, and can't see reality clearly.
 
-  But Jesus Christ is like the identity matrix (I), the perfect man.
+But Jesus Christ is like the identity matrix (I), the perfect man.
 
-  And by trusting in Him and His words, a person can have their own heart restored so that they can see God.
+And by trusting in Him and His words, a person can have their own heart restored so that they can see God.
 
-  In order to be able to see reality clearly someone would have to be practicing righteousness like Jesus.
+In order to be able to see reality clearly someone would have to be practicing righteousness like Jesus.
 
-  Jesus being God's Son takes after God. Jesus is reality. But if a person doesn't believe in Jesus then in the
-  math analogy it would be like not even believing that an identity matrix functions as an identity matrix. A
-  person can't get unstuck if they do not receive Jesus and His words as true. Jesus and His words words need to
-  be accepted as true and trusted in and loved to be saved. In distrusting Jesus and His words a person is
-  condemned.
+Jesus being God's Son takes after God. Jesus is reality. But if a person doesn't believe in Jesus then in the math
+analogy it would be like not even believing that an identity matrix functions as an identity matrix. A person
+can't get unstuck if they do not receive Jesus and His words as true. Jesus and His words words need to be
+accepted as true and trusted in and loved to be saved. In distrusting Jesus and His words a person is condemned.
 
-  ,#+BEGIN[QUOTE] John 3:18 - Whoever believes in him is not condemned, but whoever does not believe is condemned
-  already, because he has not believed in the name of the only Son of God. (ESV) ,#+END[QUOTE]
+  John 3:18 - Whoever believes in him is not condemned, but whoever does not believe is condemned already, because
+  he has not believed in the name of the only Son of God. (ESV)
 
 Real faith also loves (not hates) the truth.
 
@@ -146725,7 +146744,7 @@ Date: 2026-11-23 Mon 10:37
 
 Author: Shane Mulligan
 
-Created: 2026-11-23 Mon 10:49
+Created: 2026-11-23 Mon 11:09
 
 Validate
 

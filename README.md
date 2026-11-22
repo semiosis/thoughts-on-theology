@@ -16297,17 +16297,139 @@ Jesus Christ is I AM. That means that Jesus Christ the Son of God is Jehovah, ju
 
 -   **[biblehub.com 8-58.htm: John 8:58 Interlinear](https://biblehub.com/interlinear/john/8-58.htm):** Said to them Jesus Truly truly I say to you before Abraham was I am (G1473 egō G1510 eimi **I AM** *or* **I am He**)
 
-     1  2036     846       2424      281     281     3004     4771
-     2  Eipen    autois    Iēsous    Amēn    amēn    legō     hymin
-     3  Εἶπεν    αὐτοῖς    Ἰησοῦς  , Ἀμὴν  , ἀμὴν  , λέγω     ὑμῖν  ,
-     4  Said     to them   Jesus     Truly   truly   I say    to you
-     5  V-AIA-3S PPro-DM3P N-NMS     Heb     Heb     V-PIA-1S PPro-D2P
-     6  
-     7  4250   11      1096        1473     1510
-     8  prin   Abraam  genesthai   egō      eimi
-     9  πρὶν   Ἀβραὰμ  γενέσθαι  , ἐγὼ      εἰμί  .
-    10  before Abraham was         I        am
-    11  Adv    N-AMS   V-ANM       PPro-N1S V-PIA-1S
+-   **[John 8:58](https://biblehub.com/interlinear/john/8-58.htm) (Interlinear):** <table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
+    
+    
+    <colgroup>
+    <col  class="org-left" />
+    
+    <col  class="org-left" />
+    
+    <col  class="org-left" />
+    
+    <col  class="org-left" />
+    
+    <col  class="org-left" />
+    </colgroup>
+    <thead>
+    <tr>
+    <th scope="col" class="org-left">Strongs Code</th>
+    <th scope="col" class="org-left">Transliteration</th>
+    <th scope="col" class="org-left">Greek</th>
+    <th scope="col" class="org-left">Translation</th>
+    <th scope="col" class="org-left">Grammar</th>
+    </tr>
+    </thead>
+    
+    <tbody>
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3004/kjv/tr/0-1/">G3004</a></td>
+    <td class="org-left">eipen</td>
+    <td class="org-left">εἶπεν</td>
+    <td class="org-left">Said</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/v-aia-3s.htm">V-AIA-3S</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g846/kjv/tr/0-1/">G846</a></td>
+    <td class="org-left">autois</td>
+    <td class="org-left">αὐτοῖς</td>
+    <td class="org-left">to them</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/ppro-dm3p.htm">PPro-DM3P</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g2424/kjv/tr/0-1/">G2424</a></td>
+    <td class="org-left">Iēsous</td>
+    <td class="org-left">Ἰησοῦς ,</td>
+    <td class="org-left">Jesus</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/n-nms.htm">N-NMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g281/kjv/tr/0-1/">G281</a></td>
+    <td class="org-left">Amēn</td>
+    <td class="org-left">Ἀμὴν</td>
+    <td class="org-left">Truly</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/heb.htm">Heb</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g281/kjv/tr/0-1/">G281</a></td>
+    <td class="org-left">amēn</td>
+    <td class="org-left">ἀμὴν</td>
+    <td class="org-left">truly</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/heb.htm">Heb</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3004/kjv/tr/0-1/">G3004</a></td>
+    <td class="org-left">legō</td>
+    <td class="org-left">λέγω</td>
+    <td class="org-left">I say</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/v-pia-1s.htm">V-PIA-1S</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g4771/kjv/tr/0-1/">G4771</a></td>
+    <td class="org-left">hymin</td>
+    <td class="org-left">ὑμῖν ,</td>
+    <td class="org-left">to you</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/ppro-d2p.htm">PPro-D2P</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g4250/kjv/tr/0-1/">G4250</a></td>
+    <td class="org-left">prin</td>
+    <td class="org-left">πρὶν</td>
+    <td class="org-left">Before</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/adv.htm">Adv</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g11/kjv/tr/0-1/">G11</a></td>
+    <td class="org-left">Abraam</td>
+    <td class="org-left">Ἀβραὰμ</td>
+    <td class="org-left">Abraham</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/n-ams.htm">N-AMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g1096/kjv/tr/0-1/">G1096</a></td>
+    <td class="org-left">genesthai</td>
+    <td class="org-left">γενέσθαι ,</td>
+    <td class="org-left">was</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/v-anm.htm">V-ANM</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g1473/kjv/tr/0-1/">G1473</a></td>
+    <td class="org-left">egō</td>
+    <td class="org-left">ἐγὼ</td>
+    <td class="org-left">I</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/ppro-n1s.htm">PPro-N1S</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g1510/kjv/tr/0-1/">G1510</a></td>
+    <td class="org-left">eimi</td>
+    <td class="org-left">εἰμί .</td>
+    <td class="org-left">am</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/v-pia-1s.htm">V-PIA-1S</a></td>
+    </tr>
+    </tbody>
+    </table>
 
 > **[John 4:25-26](https://www.biblegateway.com/passage/?search=John%204%3A25-26&version=ESV)** - The woman said to him, I know that **Messiah** is coming (he who is called **Christ**). When he comes, he will tell us all things. **Jesus said to her, I who speak to you am he**. (ESV)
 
@@ -23096,7 +23218,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org958b1a5) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org60dcf64) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -26520,23 +26642,247 @@ While obedience exists in the heart, as belief does, as **faith is** <ins>believ
 
 We need a trusting, obedient heart. It's not just about obeying one point of belief in Jesus, but about having a heart which believes Jesus, trusts Jesus, obeys Jesus, and accepting Him and His words.
 
-     1  3588      4100      1519 3588    5207  2192     2222  166
-     2  ho        pisteuōn  eis  ton     Huion echei    zōēn  aiōnion
-     3  ὁ         πιστεύων  εἰς  τὸν     Υἱὸν  ἔχει     ζωὴν  αἰώνιον  ;
-     4  The [one] believing in   the     Son   has      life  eternal
-     5  Art-NMS   V-PPA-NMS Prep Art-AMS N-AMS V-PIA-3S N-AFS Adj-AFS
-     6  
-     7  3588      1161     544         3588     5207   3756 3708
-     8  ho        de       apeithōn    tō       Huiō   ouk  opsetai
-     9  ὁ         δὲ       ἀπειθῶν     τῷ       Υἱῷ  , οὐκ  ὄψεται
-    10  the [one] however  not obeying the      Son    not  will see
-    11  Art-NMS   Conj     V-PPA-NMS   Art-DMS  N-DMS  Adv  V-FIM-3S
-    12  
-    13  2222    235  3588    3709  3588    2316   3306     1909 846
-    14  zōēn    all’ hē      orgē  tou     Theou  menei    ep’  auton
-    15  ζωήν  , ἀλλ’ ἡ       ὀργὴ  τοῦ     Θεοῦ   μένει    ἐπ’  αὐτόν  .
-    16  life    but  the     wrath  -      of God abides   on   him
-    17  N-AFS   Conj Art-NFS N-NFS Art-GMS N-GMS  V-PIA-3S Prep PPro-AM3S
+-   **[John 3:36](https://biblehub.com/interlinear/john/3-36.htm) (Interlinear):** <table border="2" cellspacing="0" cellpadding="6" rules="groups" frame="hsides">
+    
+    
+    <colgroup>
+    <col  class="org-left" />
+    
+    <col  class="org-left" />
+    
+    <col  class="org-left" />
+    
+    <col  class="org-left" />
+    
+    <col  class="org-left" />
+    </colgroup>
+    <thead>
+    <tr>
+    <th scope="col" class="org-left">Strongs Code</th>
+    <th scope="col" class="org-left">Transliteration</th>
+    <th scope="col" class="org-left">Greek</th>
+    <th scope="col" class="org-left">Translation</th>
+    <th scope="col" class="org-left">Grammar</th>
+    </tr>
+    </thead>
+    
+    <tbody>
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3588/kjv/tr/0-1/">G3588</a></td>
+    <td class="org-left">ho</td>
+    <td class="org-left">ὁ</td>
+    <td class="org-left">the [one]</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/art-nms.htm">Art-NMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/">G4100</a></td>
+    <td class="org-left">pisteuōn</td>
+    <td class="org-left">πιστεύων</td>
+    <td class="org-left">believing</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/v-ppa-nms.htm">V-PPA-NMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g1519/kjv/tr/0-1/">G1519</a></td>
+    <td class="org-left">eis</td>
+    <td class="org-left">εἰς</td>
+    <td class="org-left">on</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/prep.htm">Prep</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3588/kjv/tr/0-1/">G3588</a></td>
+    <td class="org-left">ton</td>
+    <td class="org-left">τὸν</td>
+    <td class="org-left">the</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/art-ams.htm">Art-AMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g5207/kjv/tr/0-1/">G5207</a></td>
+    <td class="org-left">Huion</td>
+    <td class="org-left">Υἱὸν</td>
+    <td class="org-left">Son</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/n-ams.htm">N-AMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g2192/kjv/tr/0-1/">G2192</a></td>
+    <td class="org-left">echei</td>
+    <td class="org-left">ἔχει</td>
+    <td class="org-left">has</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/v-pia-3s.htm">V-PIA-3S</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g2222/kjv/tr/0-1/">G2222</a></td>
+    <td class="org-left">zōēn</td>
+    <td class="org-left">ζωὴν</td>
+    <td class="org-left">life</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/n-afs.htm">N-AFS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g166/kjv/tr/0-1/">G166</a></td>
+    <td class="org-left">aiōnion</td>
+    <td class="org-left">αἰώνιον ;</td>
+    <td class="org-left">eternal</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/adj-afs.htm">Adj-AFS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3588/kjv/tr/0-1/">G3588</a></td>
+    <td class="org-left">ho</td>
+    <td class="org-left">ὁ</td>
+    <td class="org-left">the [one]</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/art-nms.htm">Art-NMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g1161/kjv/tr/0-1/">G1161</a></td>
+    <td class="org-left">de</td>
+    <td class="org-left">δὲ</td>
+    <td class="org-left">moreover</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/conj.htm">Conj</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g544/kjv/tr/0-1/">G544</a></td>
+    <td class="org-left">apeithōn</td>
+    <td class="org-left">ἀπειθῶν</td>
+    <td class="org-left">not obeying</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/v-ppa-nms.htm">V-PPA-NMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3588/kjv/tr/0-1/">G3588</a></td>
+    <td class="org-left">tō</td>
+    <td class="org-left">τῷ</td>
+    <td class="org-left">the</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/art-dms.htm">Art-DMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g5207/kjv/tr/0-1/">G5207</a></td>
+    <td class="org-left">Huiō</td>
+    <td class="org-left">Υἱῷ ,</td>
+    <td class="org-left">Son</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/n-dms.htm">N-DMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3756/kjv/tr/0-1/">G3756</a></td>
+    <td class="org-left">ouk</td>
+    <td class="org-left">οὐκ</td>
+    <td class="org-left">not</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/adv.htm">Adv</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3708/kjv/tr/0-1/">G3708</a></td>
+    <td class="org-left">opsetai</td>
+    <td class="org-left">ὄψεται</td>
+    <td class="org-left">will see</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/v-fim-3s.htm">V-FIM-3S</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g2222/kjv/tr/0-1/">G2222</a></td>
+    <td class="org-left">zōēn</td>
+    <td class="org-left">ζωήν ,</td>
+    <td class="org-left">life</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/n-afs.htm">N-AFS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g235/kjv/tr/0-1/">G235</a></td>
+    <td class="org-left">all’</td>
+    <td class="org-left">ἀλλ’</td>
+    <td class="org-left">but</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/conj.htm">Conj</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3588/kjv/tr/0-1/">G3588</a></td>
+    <td class="org-left">hē</td>
+    <td class="org-left">ἡ</td>
+    <td class="org-left">the</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/art-nfs.htm">Art-NFS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3709/kjv/tr/0-1/">G3709</a></td>
+    <td class="org-left">orgē</td>
+    <td class="org-left">ὀργὴ</td>
+    <td class="org-left">wrath</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/n-nfs.htm">N-NFS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3588/kjv/tr/0-1/">G3588</a></td>
+    <td class="org-left">tou</td>
+    <td class="org-left">τοῦ</td>
+    <td class="org-left">-</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/art-gms.htm">Art-GMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g2316/kjv/tr/0-1/">G2316</a></td>
+    <td class="org-left">Theou</td>
+    <td class="org-left">Θεοῦ</td>
+    <td class="org-left">of God</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/n-gms.htm">N-GMS</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g3306/kjv/tr/0-1/">G3306</a></td>
+    <td class="org-left">menei</td>
+    <td class="org-left">μένει</td>
+    <td class="org-left">abides</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/v-pia-3s.htm">V-PIA-3S</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g1909/kjv/tr/0-1/">G1909</a></td>
+    <td class="org-left">ep’</td>
+    <td class="org-left">ἐπ’</td>
+    <td class="org-left">on</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/prep.htm">Prep</a></td>
+    </tr>
+    
+    
+    <tr>
+    <td class="org-left"><a href="https://www.blueletterbible.org/lexicon/g846/kjv/tr/0-1/">G846</a></td>
+    <td class="org-left">auton</td>
+    <td class="org-left">αὐτόν .</td>
+    <td class="org-left">him</td>
+    <td class="org-left"><a href="https://biblehub.com/grammar/ppro-am3s.htm">PPro-AM3S</a></td>
+    </tr>
+    </tbody>
+    </table>
 
 The reason Abraham's faith was counted as righteousness is because no **distrust** made him waver (Abraham faithfully trusted God regarding the promise). Abraham believed God was able to do what He had promised. So a good **indicator** that Abraham was totally trusting of God is that Abraham walked in the promise of God. I think the most important takeaway from this is that **faith is trusting**, even if our trusting faith may waver, our faith intrinsically is trusting of God, and trust naturally elicits both belief and obedience:
 
@@ -29262,7 +29608,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org55e5306).
+I didn't know but it turned out to be the last day of my [sentence](#org6f038fd).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -55216,7 +55562,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org399231d)
+See: [33.4.1](#org5a0d154)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -67892,23 +68238,21 @@ To get to know Jesus, we **must obey** His commandments:
 
 In order to see reality clearly, a person would have to be not transgressing the commandments.
 
--   **Here is a mathematical analogy:** > I think of it a bit like in math how there is a thing called an identity matrix. An identity matrix (I) has a diagonal of ones. And when multiplying with another matrix of the same dimensions (A), the resulting matrix (B) is unchanged (A = B). The identity matrix (I) is like having "clear vision". But if one of those ones is changed for a different number then when multiplying it with another matrix (C) of the same dimensions, the resulting matrix (D) is not the same as the matrix (C).
-    > 
-    > Having an impure heart is like not having the identity matrix, and so can't see clearly.
-    > 
-    > A slave to sin is someone who can't stop sinning because they can't see reality clearly. They believe lies, regurgitate lies and make more lies, and can't see reality clearly.
-    > 
-    > But Jesus Christ is like the identity matrix (I), the perfect man.
-    > 
-    > And by trusting in Him and His words, a person can have their own heart restored so that they can see God.
-    > 
-    > In order to be able to see reality clearly someone would have to be practicing righteousness like Jesus.
-    > 
-    > Jesus being God's Son takes after God. Jesus is reality. But if a person doesn't believe in Jesus then in the math analogy it would be like not even believing that an identity matrix functions as an identity matrix. A person can't get unstuck if they do not receive Jesus and His words as true. Jesus and His words words need to be accepted as true and trusted in and loved to be saved. In distrusting Jesus and His words a person is condemned.
-    > 
-    > ,#+BEGIN<sub>QUOTE</sub>
-    >   **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. (ESV)
-    > ,#+END<sub>QUOTE</sub>
+-   **Here is a mathematical analogy:** I think of it a bit like in math how there is a thing called an identity matrix. An identity matrix (I) has a diagonal of ones. And when multiplying with another matrix of the same dimensions (A), the resulting matrix (B) is unchanged (A = B). The identity matrix (I) is like having "clear vision". But if one of those ones is changed for a different number then when multiplying it with another matrix (C) of the same dimensions, the resulting matrix (D) is not the same as the matrix (C).
+    
+    Having an impure heart is like not having the identity matrix, and so can't see clearly.
+    
+    A slave to sin is someone who can't stop sinning because they can't see reality clearly. They believe lies, regurgitate lies and make more lies, and can't see reality clearly.
+    
+    But Jesus Christ is like the identity matrix (I), the perfect man.
+    
+    And by trusting in Him and His words, a person can have their own heart restored so that they can see God.
+    
+    In order to be able to see reality clearly someone would have to be practicing righteousness like Jesus.
+    
+    Jesus being God's Son takes after God. Jesus is reality. But if a person doesn't believe in Jesus then in the math analogy it would be like not even believing that an identity matrix functions as an identity matrix. A person can't get unstuck if they do not receive Jesus and His words as true. Jesus and His words words need to be accepted as true and trusted in and loved to be saved. In distrusting Jesus and His words a person is condemned.
+    
+    > **[John 3:18](https://www.biblegateway.com/passage/?search=John%203%3A18&version=ESV)** - Whoever believes in him is not condemned, but whoever does not believe is condemned already, because he has not believed in the name of the only Son of God. (ESV)
 
 Real faith also loves (not hates) the truth.
 
@@ -77345,7 +77689,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org399231d)
+See: [33.4.1](#org5a0d154)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -80005,7 +80349,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org8aa9825) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#orgf1dfe57) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -88584,7 +88928,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org8aa9825) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#orgf1dfe57) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -89922,7 +90266,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org53e36c4)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org0f36d84)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
