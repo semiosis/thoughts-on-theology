@@ -1212,6 +1212,9 @@ knowing that we all are debtors of sin.
   when they measure themselves by one another and compare themselves with one another, they are without
   understanding. (ESV)
 
+  Luke 16:15 - And he said to them, You are those who justify yourselves before men, but God knows your hearts.
+  For what is exalted among men is an abomination in the sight of God. (ESV)
+
 When Jesus says that He has made "known", it's implied that the people that Jesus has made known what He heard
 from His Father "do" what He commands. So there is a knowing that comes not just from hearing but from doing:
 
@@ -8366,6 +8369,29 @@ God sees when they do as instructed of by Him, and so they just seek to do what 
   present. Not that we dare to classify or compare ourselves with some of those who are commending themselves. But
   when they measure themselves by one another and compare themselves with one another, they are without
   understanding. (ESV)
+
+  Luke 16:15 - And he said to them, You are those who justify yourselves before men, but God knows your hearts.
+  For what is exalted among men is an abomination in the sight of God. (ESV)
+
+Where the ESV translation says in Romans 10:6, "Do not say in your heart, 'Who will ascend into heaven?'" I
+believe it should rather say, "Do not say in your heart who will ascend into heaven." I think that in these verses
+the Apostle Paul is directing people to have faith themselves in their heart and to not "artificially exalt" (i.e.
+e.g. "oh that person is such a great man, he is most suredly going to heaven", and this person is such a great
+sinner/unbeliever/heretic, so they are most suredly going to hell) no matter where in God's creation a person
+might find themselves presently. Rather, a person should whereever they find themselves be having faith in Jesus
+Christ and His resurrection, that Jesus Christ rose from the dead, and be confessing Him with their mouth, that He
+is Lord. That person believing in Jesus Christ in the heart has an assurance that things will work out (that they
+will be saved/are being saved) if they have that faith in Jesus Christ in their heart, confessing Jesus Christ
+with their mouth. This is how I'm presently interpretting these verses:
+
+Romans 10:6 (Interlinear)
+- (G3588 hē) but (G1161 de) of (G1537 ek) faith (G4102 pisteōs) righteousness (G1343 dikaiosynē) thus (G3779
+houtōs) speaks (G3004 legei) not (G3361 Mē) You should say (G3004 eipēs) in (G1722 en) the (G3588 tē) heart (G2588
+kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (G1519 eis) - (G3588 ton) heaven
+(G3772 ouranon) that (G3778 tout’) is (G1510 estin) Christ (G5547 Christon) to bring down (G2609 katagagein)
+
+  Luke 16:15 - And he said to them, You are those who justify yourselves before men, but God knows your hearts.
+  For what is exalted among men is an abomination in the sight of God. (ESV)
 
 If we see others not doing the will of God, then we should in similar fashion to Jesus teach others what to do
 (i.e. what Jesus' instruction is) but not judge them if they do not appear do it after instructing them, but
@@ -22917,25 +22943,23 @@ Glory in [the] highest to God and on (G1909 epi; on) earth (G1093 gēs; earth) p
 (G1722 en; among) men (G444 anthrōpois; men) with whom He is pleased (G2107 eudokias; Goodwill, kind intention,
 pleasure, favor, desire, delight, with whom He is pleased)
 
- | G1391 G1722 G5310         G2316  G2532 G1909
- | Doxa  en    hypsistois    Theō   kai   epi
- | Δόξα  ἐν    ὑψίστοις      Θεῷ ,  καὶ   ἐπὶ
- | Glory in    [the] highest to God and   on
- | N-NFS Prep  Adj-DNP-S     N-DMS  Conj  Prep
- |
- | G1093 G1515  G1722 G444
- | gēs   eirēnē en    anthrōpois
- | γῆς   εἰρήνη ἐν    ἀνθρώποις
- |  earth peace  among men
- |  N-GFS N-NFS  Prep  N-DMP
- | 
- |  G2107
- |  eudokias
- |  εὐδοκίας !
- |  good desire
- |   / Goodwill / kind intention / pleasure / favor
- |   / desire / delight / with whom He is pleased
- |  N-GFS
+Luke 2:14 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek           Translation         Grammar
+───────────────────────────────────────────────────────────────────────────────
+G1391         Doxa             Δόξα        Glory                    N-NFS
+G1722         en               ἐν          in                       Prep
+G5310         hypsistois       ὑψίστοις    [the] highest            Adj-DNP-S
+G2316         Theō             Θεῷ ,       to God                   N-DMS
+G2532         kai              καὶ         and                      Conj
+G1909         epi              ἐπὶ         on                       Prep
+G1093         gēs              γῆς         earth                    N-GFS
+G1515         eirēnē           εἰρήνη      peace                    N-NFS
+G1722         en               ἐν          among                    Prep
+G444          anthrōpois       ἀνθρώποις   men                      N-DMP
+G2107         eudokias         εὐδοκίας !  with whom He is pleased  N-GFS
+───────────────────────────────────────────────────────────────────────────────
 
 N-GFS:
 
@@ -25066,17 +25090,19 @@ they have the trusting faith. Just like Hebrews 11:7 says with Noah:
 Psalms 115:11
 You who fear Yahweh trust in Yahweh their help and their shield He [is] (Interlinear)
 
- | 3373         3068        982          3068
- | yir·’ê       Yah·weh     biṭ·ḥū       Yah·weh;
- | יראי         ､ יהוה      בטחו         – ביהוה
- | You who fear Yahweh      trust        in Yahweh
- | Adj‑mpc      N‑proper‑ms V‑Qal‑Imp‑mp Prep‑b | N‑proper‑ms
- |
- | 5828        4043                 1931
- | ‘ez·rām     ū·mā·ḡin·nām         hū.
- | עזרם        ומגנם                . הוא׃
- |  their help  and their shield     He [is]
- |  N‑msc | 3mp Conj‑w | N‑csc | 3mp Pro‑3ms
+Psalms 115:11 (Interlinear)
+
+──────────────────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration  Hebrew     Translation                Grammar
+──────────────────────────────────────────────────────────────────────────────────────────
+H3373         yir·’ê           יראי     You who fear      Adj‑mpc
+H3068         Yah·weh          ､ יהוה   Yahweh            N‑proper‑ms
+H982          biṭ·ḥū           בטחו     trust             V‑Qal‑Imp‑mp
+H3068         Yah·weh;         – ביהוה  in Yahweh         Prep‑b &vert; N‑proper‑ms
+H5828         ‘ez·rām          עזרם     their help        N‑msc &vert; 3mp
+H4043         ū·mā·ḡin·nām     ומגנם    and their shield  Conj‑w &vert; N‑csc &vert; 3mp
+H1931         hū.              . הוא׃   He [is]           Pro‑3ms
+──────────────────────────────────────────────────────────────────────────────────────────
 
   Proverbs 14:26-27 - In the fear of the LORD one has strong confidence, and his children will have a refuge. The
   fear of the LORD is a fountain of life, that one may turn away from the snares of death. (ESV)
@@ -27497,23 +27523,33 @@ biblehub.com: John 8:24 Interlinear
 I said therefore to you that you will die in the sins of you if for not you believe that I am (G1473 egō G1510
 eimi I AM or I am He) you will die in the sins of you
 
- | 2036     3767      4771     3754     599           1722 3588
- | eipon    oun       hymin    hoti     apothaneisthe en   tais
- | εἶπον    οὖν       ὑμῖν     ὅτι      ἀποθανεῖσθε   ἐν   ταῖς
- | I said   therefore to you   that     you will die  in   the
- | V-AIA-1S Conj      PPro-D2P Conj     V-FIM-2P      Prep Art-DFP
- |
- | 266        4771     1437 1063 3361 4100        3754 1473     1510
- | hamartiais hymōn    ean  gar  mē   pisteusēte  hoti egō      eimi
- | ἁμαρτίαις  ὑμῶν  ;  ἐὰν  γὰρ  μὴ   πιστεύσητε  ὅτι  ἐγώ      εἰμι  ,
- |  sins       of you   if   for  not  you believe that I        am [He]
- |  N-DFP      PPro-G2P Conj Conj Adv  V-ASA-2P    Conj PPro-N1S V-PIA-1S
- | 
- |  599           1722 3588    266        4771
- |  apothaneisthe en   tais    hamartiais hymōn
- |  ἀποθανεῖσθε   ἐν   ταῖς    ἁμαρτίαις  ὑμῶν  .
- |  you will die  in   the     sins       of you
- |  V-FIM-2P      Prep Art-DFP N-DFP      PPro-G2P
+John 8:24 (Interlinear)
+
+────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek     Translation   Grammar
+────────────────────────────────────────────────────────────────────
+G3004         eipon            εἶπον        I said        V-AIA-1S
+G3767         oun              οὖν          therefore     Conj
+G4771         hymin            ὑμῖν         to you        PPro-D2P
+G3754         hoti             ὅτι          that          Conj
+G599          apothaneisthe    ἀποθανεῖσθε  you will die  V-FIM-2P
+G1722         en               ἐν           in            Prep
+G3588         tais             ταῖς         the           Art-DFP
+G266          hamartiais       ἁμαρτίαις    sins          N-DFP
+G4771         hymōn            ὑμῶν ;       of you        PPro-G2P
+G1437         ean              ἐὰν          if            Conj
+G1063         gar              γὰρ          indeed        Conj
+G3361         mē               μὴ           not           Adv
+G4100         pisteusēte       πιστεύσητε   you believe   V-ASA-2P
+G3754         hoti             ὅτι          that          Conj
+G1473         egō              ἐγώ          I             PPro-N1S
+G1510         eimi             εἰμι ,       am [he]       V-PIA-1S
+G599          apothaneisthe    ἀποθανεῖσθε  you will die  V-FIM-2P
+G1722         en               ἐν           in            Prep
+G3588         tais             ταῖς         the           Art-DFP
+G266          hamartiais       ἁμαρτίαις    sins          N-DFP
+G4771         hymōn            ὑμῶν .       of you        PPro-G2P
+────────────────────────────────────────────────────────────────────
 
 biblehub.com 8-58.htm: John 8:58 Interlinear
 Said to them Jesus Truly truly I say to you before Abraham was I am (G1473 egō G1510 eimi I AM or I am He)
@@ -29996,6 +30032,26 @@ then you call out to God like it says in Romans 10:4, believing in your heart th
 and confessing Jesus is Lord then your next thoughts can be "I'm OK. I'm safe. Jesus is saving me." because He is.
 
   Proverbs 18:10 - The name of the LORD is a strong tower; the righteous man runs into it and is safe. (ESV)
+
+Where the ESV translation says in Romans 10:6, "Do not say in your heart, 'Who will ascend into heaven?'" I
+believe it should rather say, "Do not say in your heart who will ascend into heaven." I think that in these verses
+the Apostle Paul is directing people to have faith themselves in their heart and to not "artificially exalt" (i.e.
+e.g. "oh that person is such a great man, he is most suredly going to heaven", and this person is such a great
+sinner/unbeliever/heretic, so they are most suredly going to hell) no matter where in God's creation a person
+might find themselves presently. Rather, a person should whereever they find themselves be having faith in Jesus
+Christ and His resurrection, that Jesus Christ rose from the dead, and be confessing Him with their mouth, that He
+is Lord. That person believing in Jesus Christ in the heart has an assurance that things will work out (that they
+will be saved/are being saved) if they have that faith in Jesus Christ in their heart, confessing Jesus Christ
+with their mouth. This is how I'm presently interpretting these verses:
+
+Romans 10:6 (Interlinear)
+- (G3588 hē) but (G1161 de) of (G1537 ek) faith (G4102 pisteōs) righteousness (G1343 dikaiosynē) thus (G3779
+houtōs) speaks (G3004 legei) not (G3361 Mē) You should say (G3004 eipēs) in (G1722 en) the (G3588 tē) heart (G2588
+kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (G1519 eis) - (G3588 ton) heaven
+(G3772 ouranon) that (G3778 tout’) is (G1510 estin) Christ (G5547 Christon) to bring down (G2609 katagagein)
+
+  Luke 16:15 - And he said to them, You are those who justify yourselves before men, but God knows your hearts.
+  For what is exalted among men is an abomination in the sight of God. (ESV)
 
 If a person is holding faith in Jesus Christ with a real faith, one that loves Jesus with agape love then they
 presently hold eternal life:
@@ -44546,35 +44602,48 @@ Titus 2:12
 instructing us that having denied - ungodliness and - worldly passions discreetly and righteously and piously we
 should live in the present age
 
- | 2014         1063 3588    5485   3588    2316
- | Epephanē     gar  hē      charis tou     Theou
- | Ἐπεφάνη      γὰρ  ἡ       χάρις  τοῦ     Θεοῦ  ,
- | Has appeared for  the     grace   -      of God
- | V-AIP-3S     Conj Art-NFS N-NFS  Art-GMS N-GMS
- |
- | 4992               3956    444
- | sōtērios           pasin   anthrōpois
- | σωτήριος           πᾶσιν   ἀνθρώποις  ,
- |  bringing salvation to all  men
- |  Adj-NFS            Adj-DMP N-DMP
+Titus 2:11 (Interlinear)
 
- | 3811        1473     2443   720           3588    763         2532 3588
- | paideuousa  hēmas    hina   arnēsamenoi   tēn     asebeian    kai  tas
- | παιδεύουσα  ἡμᾶς     ἵνα  , ἀρνησάμενοι   τὴν     ἀσέβειαν    καὶ  τὰς
- | instructing us       that   having denied  -      ungodliness and   -
- | V-PPA-NFS   PPro-A1P Conj   V-APM-NMP     Art-AFS N-AFS       Conj Art-AFP
- |
- | 2886     1939         4996       2532 1346        2532 2153
- | kosmikas epithymias   sōphronōs  kai  dikaiōs     kai  eusebōs
- | κοσμικὰς ἐπιθυμίας  , σωφρόνως   καὶ  δικαίως     καὶ  εὐσεβῶς
- |  worldly  passions     discreetly and  righteously and  piously
- |  Adj-AFP  N-AFP        Adv        Conj Adv         Conj Adv
- | 
- |  2198           1722 3588    3568    165
- |  zēsōmen        en   tō      nyn     aiōni
- |  ζήσωμεν        ἐν   τῷ      νῦν     αἰῶνι  ,
- |  we should live in   the     present age
- |  V-ASA-1P       Prep Art-DMS Adv     N-DMS
+──────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek        Translation      Grammar
+──────────────────────────────────────────────────────────────────────────
+G2014         Epephanē         Ἐπεφάνη      has appeared        V-AIP-3S
+G1063         gar              γὰρ          indeed              Conj
+G3588         hē               ἡ            the                 Art-NFS
+G5485         charis           χάρις        grace               N-NFS
+G3588         tou              τοῦ          -                   Art-GMS
+G2316         Theou            Θεοῦ ,       of God              N-GMS
+G4992         sōtērios         σωτήριος     bringing salvation  Adj-NFS
+G3956         pasin            πᾶσιν        to all              Adj-DMP
+G444          anthrōpois       ἀνθρώποις ;  men                 N-DMP
+──────────────────────────────────────────────────────────────────────────
+
+Titus 2:12 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek      Translation     Grammar
+───────────────────────────────────────────────────────────────────────
+G3811         paideuousa       παιδεύουσα   instructing     V-PPA-NFS
+G1473         hēmas            ἡμᾶς         us              PPro-A1P
+G2443         hina             ἵνα ,        that            Conj
+G720          arnēsamenoi      ἀρνησάμενοι  having denied   V-APM-NMP
+G3588         tēn              τὴν          -               Art-AFS
+G763          asebeian         ἀσέβειαν     ungodliness     N-AFS
+G2532         kai              καὶ          and             Conj
+G3588         tas              τὰς          -               Art-AFP
+G2886         kosmikas         κοσμικὰς     worldly         Adj-AFP
+G1939         epithymias       ἐπιθυμίας ,  passions        N-AFP
+G4996         sōphronōs        σωφρόνως     discreetly      Adv
+G2532         kai              καὶ          and             Conj
+G1346         dikaiōs          δικαίως      righteously     Adv
+G2532         kai              καὶ          and             Conj
+G2153         eusebōs          εὐσεβῶς      piously         Adv
+G2198         zēsōmen          ζήσωμεν      we should live  V-ASA-1P
+G1722         en               ἐν           in              Prep
+G3588         tō               τῷ           the             Art-DMS
+G3568         nyn              νῦν          present         Adv
+G165          aiōni            αἰῶνι ,      age             N-DMS
+───────────────────────────────────────────────────────────────────────
 
 Is repentance from sin necessary for salvation? Yes. We renounce the sinful habits and God cleans us up as we obey
 Him by faith. The liberty that God provides is not being a slave/servant of sin/corruption. God's grace trains us
@@ -67600,17 +67669,28 @@ trusting in God and you'll never be thirsty again.
   John 7:38 - The [one] believing (4100. pisteuó) in Me as has said the Scripture Rivers out of the belly of him
   will flow of water living (Interlinear)
 
- | 3588      4100      1519 1473     2531   2036     3588    1124      4215
- | ho        pisteuōn  eis  eme      kathōs eipen    hē      graphē    Potamoi
- | ὁ         πιστεύων  εἰς  ἐμέ  ,   καθὼς  εἶπεν    ἡ       γραφή  :  Ποταμοὶ
- | The [one] believing in   Me       as     has said the     Scripture Rivers
- | Art-NMS   V-PPA-NMS Prep PPro-A1S Adv    V-AIA-3S Art-NFS N-NFS     N-NMP
- |
- | 1537   3588    2836    846       4482       5204     2198
- | ek     tēs     koilias autou     rheusousin hydatos  zōntos
- | ἐκ     τῆς     κοιλίας αὐτοῦ     ῥεύσουσιν  ὕδατος   ζῶντος  .
- |  out of the     belly   of him    will flow  of water living
- |  Prep   Art-GFS N-GFS   PPro-GM3S V-FIA-3P   N-GNS    V-PPA-GNS
+John 7:38 (Interlinear)
+
+──────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek    Translation   Grammar
+──────────────────────────────────────────────────────────────────
+G3588         ho               ὁ          The [one]    Art-NMS
+G4100         pisteuōn         πιστεύων   believing    V-PPA-NMS
+G1519         eis              εἰς        on           Prep
+G1473         eme              ἐμέ ,      me           PPro-A1S
+G2531         kathōs           καθὼς      as           Adv
+G3004         eipen            εἶπεν      has said     V-AIA-3S
+G3588         hē               ἡ          the          Art-NFS
+G1124         graphē           γραφή ,    Scripture    N-NFS
+G4215         potamoi          ποταμοὶ    rivers       N-NMP
+G1537         ek               ἐκ         out of       Prep
+G3588         tēs              τῆς        the          Art-GFS
+G2836         koilias          κοιλίας    belly        N-GFS
+G846          autou            αὐτοῦ      of him       PPro-GM3S
+G4482         rheusousin       ῥεύσουσιν  will flow    V-FIA-3P
+G5204         hydatos          ὕδατος     of water     N-GNS
+G2198         zōntos           ζῶντος .   living       V-PPA-GNS
+──────────────────────────────────────────────────────────────────
 
 5.9.2. Trusting belief (through grace) leads to continued obedience, which leads to knowledge of the Truth
 
@@ -75486,31 +75566,55 @@ study on ages and generations.
 
 John 11:25:
 
- | 2036     846       3588    2424     1473     1510     3588    386
- | Eipen    autē      ho      Iēsous   Egō      eimi     hē      anastasis
- | Εἶπεν    αὐτῇ      ὁ       Ἰησοῦς , Ἐγώ      εἰμι     ἡ       ἀνάστασις
- | Said     to her     -      Jesus    I        am       the     resurrection
- | V-AIA-3S PPro-DF3S Art-NMS N-NMS    PPro-N1S V-PIA-1S Art-NFS N-NFS
- |
- | 2532 3588    2222   3588      4100      1519 1473     2579    599           2198
- | kai  hē      zōē    ho        pisteuōn  eis  eme      kan     apothanē      zēsetai
- | καὶ  ἡ       ζωή  ; ὁ         πιστεύων  εἰς  ἐμὲ  ,   κἂν     ἀποθάνῃ  ,    ζήσεται  ;
- |  and  the     life   the [one] believing in   Me       even if he should die he will live
- |  Conj Art-NFS N-NFS  Art-NMS   V-PPA-NMS Prep PPro-A1S Adv     V-ASA-3S      V-FIM-3S
+John 11:25 (Interlinear)
+
+────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek     Translation    Grammar
+────────────────────────────────────────────────────────────────────
+G2036         Eipen            Εἶπεν      Said           V-AIA-3S
+G846          autē             αὐτῇ       to her         PPro-DF3S
+G3588         ho               ὁ          -              Art-NMS
+G2424         Iēsous           Ἰησοῦς ,   Jesus          N-NMS
+G1473         Egō              Ἐγώ        I              PPro-N1S
+G1510         eimi             εἰμι       am             V-PIA-1S
+G3588         hē               ἡ          the            Art-NFS
+G386          anastasis        ἀνάστασις  resurrection   N-NFS
+G2532         kai              καὶ        and            Conj
+G3588         hē               ἡ          the            Art-NFS
+G2222         zōē              ζωή ;      life           N-NFS
+G3588         ho               ὁ          the [one]      Art-NMS
+G4100         pisteuōn         πιστεύων   believing      V-PPA-NMS
+G1519         eis              εἰς        in             Prep
+G1473         eme              ἐμὲ ,      Me             PPro-A1S
+G2579         kan              κἂν        even if        Adv
+G599          apothanē         ἀποθάνῃ ,  he should die  V-ASA-3S
+G2198         zēsetai          ζήσεται ;  he will live   V-FIM-3S
+────────────────────────────────────────────────────────────────────
 
 John 11:26:
 
- | 2532 3956     3588    2198      2532 4100      1519 1473     3756  3361
- | kai  pas      ho      zōn       kai  pisteuōn  eis  eme      ou    mē
- | καὶ  πᾶς      ὁ       ζῶν       καὶ  πιστεύων  εἰς  ἐμὲ  ,   οὐ    μὴ
- | and  everyone  -      living    and  believing in   Me       never not
- | Conj Adj-NMS  Art-NMS V-PPA-NMS Conj V-PPA-NMS Prep PPro-A1S Adv   Adv
- |
- | 599        1519 3588    165     4100 [e]    3778 [e]
- | apothanē   eis  ton     aiōna   pisteueis   touto
- | ἀποθάνῃ  , εἰς  τὸν     αἰῶνα . πιστεύεις   τοῦτο  ?
- |  shall die  to   the     age     Believe you this
- |  V-ASA-3S   Prep Art-AMS N-AMS   V-PIA-2S    DPro-ANS
+John 11:26 (Interlinear)
+
+──────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek    Translation   Grammar
+──────────────────────────────────────────────────────────────────
+G2532         kai              καὶ        and          Conj
+G3956         pas              πᾶς        everyone     Adj-NMS
+G3588         ho               ὁ          -            Art-NMS
+G2198         zōn              ζῶν        living       V-PPA-NMS
+G2532         kai              καὶ        and          Conj
+G4100         pisteuōn         πιστεύων   believing    V-PPA-NMS
+G1519         eis              εἰς        in           Prep
+G1473         eme              ἐμὲ ,      Me           PPro-A1S
+G3756         ou               οὐ         never        Adv
+G3361         mē               μὴ         not          Adv
+G599          apothanē         ἀποθάνῃ ,  shall die    V-ASA-3S
+G1519         eis              εἰς        to           Prep
+G3588         ton              τὸν        the          Art-AMS
+G165          aiōna            αἰῶνα .    age          N-AMS
+G4100         pisteueis        πιστεύεις  Believe you  V-PIA-2S
+G3778         touto            τοῦτο ?    this         DPro-ANS
+──────────────────────────────────────────────────────────────────
 
 6.1.6. The Way, the Truth and the Life
 
@@ -105342,35 +105446,36 @@ We must be actively keeping Jesus as our Pearl of Great Price:
   James 2:5 - Listen, my beloved brothers, has not God chosen those who are poor in the world to be rich in faith
   and heirs of the kingdom, which he has promised to those who love (25. agapōsin / agape loving) him? (ESV)
 
- | 191        80       1473     27         3756 3588
- | Akousate   adelphoi mou      agapētoi   ouch ho
- | Ἀκούσατε , ἀδελφοί  μου      ἀγαπητοί . οὐχ  ὁ
- | Listen     brothers my       beloved    Not   -
- | V-AMA-2P   N-VMP    PPro-G1S Adj-VMP    Adv  Art-NMS
- |
- | 2316  1586       3588 [e 4434     3588 [e 2889
- | Theos exelexato  tous    ptōchous tō      kosmō
- | Θεὸς  ἐξελέξατο  τοὺς    πτωχοὺς  τῷ      κόσμῳ
- |  God   has chosen the     poor      -      in this world
- |  N-NMS V-AIM-3S   Art-AMP Adj-AMP  Art-DMS N-DMS
- | 
- |  4145         1722 4102   2532 2818        3588
- |  plousious    en   pistei kai  klēronomous tēs
- |  πλουσίους    ἐν   πίστει καὶ  κληρονόμους τῆς
- |  [to be] rich in   faith  and  heirs       of the
- |  Adj-AMP      Prep N-DFS  Conj N-AMP       Art-GFS
- | 
- |  932       3739       1861        3588
- |  basileias hēs        epēngeilato tois
- |  βασιλείας ἧς         ἐπηγγείλατο τοῖς
- |  kingdom   that       He promised to those
- |  N-GFS     RelPro-GFS V-AIM-3S    Art-DMP
- | 
- |  25        846
- |  agapōsin  auton
- |  ἀγαπῶσιν  αὐτόν  ?
- |  loving    Him
- |  V-PPA-DMP PPro-AM3S
+James 2:5 (Interlinear)
+
+──────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek     Translation    Grammar
+──────────────────────────────────────────────────────────────────────
+G191          Akousate         Ἀκούσατε ,   Listen        V-AMA-2P
+G80           adelphoi         ἀδελφοί      brothers      N-VMP
+G1473         mou              μου          my            PPro-G1S
+G27           agapētoi         ἀγαπητοί :   beloved       Adj-VMP
+G3756         ouch             οὐχ          not           Adv
+G3588         ho               ὁ            -             Art-NMS
+G2316         Theos            Θεὸς         God           N-NMS
+G1586         exelexato        ἐξελέξατο    has chosen    V-AIM-3S
+G3588         tous             τοὺς         the           Art-AMP
+G4434         ptōchous         πτωχοὺς      poor          Adj-AMP
+G3588         tō               τῷ           of            Art-DMS
+G2889         kosmō            κόσμῳ ,      this world    N-DMS
+G4145         plousious        πλουσίους    [to be] rich  Adj-AMP
+G1722         en               ἐν           in            Prep
+G4102         pistei           πίστει ,     faith         N-DFS
+G2532         kai              καὶ          and           Conj
+G2818         klēronomous      κληρονόμους  heirs         N-AMP
+G3588         tēs              τῆς          of the        Art-GFS
+G932          basileias        βασιλείας    kingdom       N-GFS
+G3739         hēs              ἧς           that          RelPro-GFS
+G1861         epēngeilato      ἐπηγγείλατο  he promised   V-AIM-3S
+G3588         tois             τοῖς         to those      Art-DMP
+G25           agapōsin         ἀγαπῶσιν     loving        V-PPA-DMP
+G846          auton            αὐτόν ?      him           PPro-AM3S
+──────────────────────────────────────────────────────────────────────
 
 40.3. Jesus explains how we can go about seeking the Kingdom of God and His righteousness - this is obedience (the
 type of faith we must have), not works!
@@ -146852,11 +146957,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-23 Mon 13:31
+Date: 2026-11-24 Tue 09:24
 
 Author: Shane Mulligan
 
-Created: 2026-11-23 Mon 13:36
+Created: 2026-11-24 Tue 09:28
 
 Validate
 
