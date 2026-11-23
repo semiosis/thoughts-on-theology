@@ -20418,23 +20418,23 @@ semantically correct to say "Adam apart from (G5565 chōris) Eve", or "Eve apart
 
 Man and woman, husband and wife are a single unit called Adam:
 
- |      1254              3117           120     8034        853
- | s    hib·bā·rə·’ām.    bə·yō·wm       ’ā·ḏām, šə·mām      ’eṯ-
- | ס    הבראם׃            ביום           אדם     שמם         את־
- |  -   they were created in the day     man     them         -
- | Punc V‑Nifal‑Inf | 3mp Prep‑b | N‑msc N‑ms    N‑msc | 3mp DirObjM
- |
- | 7121                            853           1288
- | way·yiq·rā                      ’ō·ṯām,       way·ḇā·reḵ
- | ויקרא                           אתם           ויברך
- |  and called                      them          and He blessed
- |  Conj‑w | V‑Qal‑ConsecImperf‑3ms DirObjM | 3mp Conj‑w | V‑Piel‑ConsecImperf‑3ms
- | 
- |  1254                 5347          2145
- |  bə·rā·’ām;           ū·nə·qê·ḇāh   zā·ḵār
- |  בראם                 ונקבה         זכר
- |  He created them      and female    male
- |  V‑Qal‑Perf‑3ms | 3mp Conj‑w | N‑fs N‑ms
+Genesis 5:2 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration  Hebrew      Translation                 Grammar
+─────────────────────────────────────────────────────────────────────────────────────────────
+H2145         zā·ḵār           זכר      Male               N‑ms
+H5347         ū·nə·qê·ḇāh      ונקבה    and female         Conj‑w ¦ N‑fs
+H1254         bə·rā·’ām;       בראם     He created them    V‑Qal‑Perf‑3ms ¦ 3mp
+H1288         way·ḇā·reḵ       ויברך    and He blessed     Conj‑w ¦ V‑Piel‑ConsecImperf‑3ms
+H853          ’ō·ṯām,          אתם      them               DirObjM ¦ 3mp
+H7121         way·yiq·rā       ויקרא    and called         Conj‑w ¦ V‑Qal‑ConsecImperf‑3ms
+H853          ’eṯ-             את־      -                  DirObjM
+H8034         šə·mām           שמם      their name         N‑msc ¦ 3mp
+H120          ’ā·ḏām,          אדם      Man                N‑ms
+H3117         bə·yō·wm         ביום     in the day         Prep‑b ¦ N‑msc
+H1254         hib·bā·rə·’ām.   הבראם׃ס  they were created  V‑Nifal‑Inf ¦ 3mp
+─────────────────────────────────────────────────────────────────────────────────────────────
 
 It would also be semantically correct to say, "deeds (G2041 ergōn; works) apart from (G5565 chōris) faith". Deeds
 apart from faith would be the external actions.
@@ -48896,17 +48896,22 @@ II Corinthians 5:17 (Interlinear)
   Galatians 6:15 - For neither circumcision counts for anything, nor uncircumcision, but a new creation (G2537
   kainē; new) (G2937 ktisis; creation). (ESV)
 
- | 3777    1063 4061         5100     1510     3777 203
- | oute    gar  peritomē     ti       estin    oute akrobystia
- | οὔτε    γὰρ  περιτομή     τί       ἐστιν  , οὔτε ἀκροβυστία  ;
- | Neither for  circumcision anything is       nor  uncircumcision
- | Conj    Conj N-NFS        IPro-NNS V-PIA-3S Conj N-NFS
- |
- | 235     2537    2937
- | alla    kainē   ktisis
- | ἀλλὰ    καινὴ   κτίσις  .
- |  instead a new   creation
- |  Conj    Adj-NFS N-NFS
+Galatians 6:15 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek       Translation    Grammar
+───────────────────────────────────────────────────────────────────────
+G3777         oute             οὔτε          Neither         Conj
+G1063         gar              γὰρ           for             Conj
+G4061         peritomē         περιτομή      circumcision    N-NFS
+G5100         ti               τί            anything        IPro-NNS
+G1510         estin            ἐστιν ,       is              V-PIA-3S
+G3777         oute             οὔτε          nor             Conj
+G203          akrobystia       ἀκροβυστία ;  uncircumcision  N-NFS
+G235          alla             ἀλλὰ          instead         Conj
+G2537         kainē            καινὴ         a new           Adj-NFS
+G2937         ktisis           κτίσις .      creation        N-NFS
+───────────────────────────────────────────────────────────────────────
 
   II Corinthians 5:16-21 - From now on, therefore, we regard no one according to the flesh (G4561 sarx). Even
   though we once regarded Christ according to the flesh (G4561 sarx), we regard him thus no longer. Therefore, if
@@ -77534,23 +77539,25 @@ People who are now in Christ are a new creation (G2537 kainē; new) (G2937 ktisi
 transitioning into the new. That might take some shaking off of old things, and involves being sanctified by
 obedience to the Truth. But those who are in Christ are a brand new creation, born-again:
 
- | 5620 [e]  1487 [e] 5100 [e] 1722 [e] 5547 [e]  2537 [e]
- | hōste     ei       tis      en       Christō   kainē
- | ὥστε      εἴ       τις      ἐν       Χριστῷ  , καινὴ
- | Therefore if       anyone   [is] in  Christ    [he is] a new
- | Conj      Conj     IPro-NMS Prep     N-DMS     Adj-NFS
- |
- | 2937 [e]  3588 [e] 744 [e]    3928 [e]         2400 [e]
- | ktisis    ta       archaia    parēlthen        idou
- | κτίσις  . τὰ       ἀρχαῖα     παρῆλθεν  ;      ἰδοὺ  ,
- |  creation  The      old things have passed away behold
- |  N-NFS     Art-NNP  Adj-NNP    V-AIA-3S         V-AMA-2S
- | 
- |  1096 [e]            2537 [e]
- |  gegonen             kaina
- |  γέγονεν             καινά  .
- |  has come into being [the] new
- |  V-RIA-3S            Adj-NNP
+II Corinthians 5:17 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek       Translation     Grammar
+───────────────────────────────────────────────────────────────────────
+G5620         hōste            ὥστε        Therefore         Conj
+G1487         ei               εἴ          if                Conj
+G5100         tis              τις         anyone            IPro-NMS
+G1722         en               ἐν          [is] in           Prep
+G5547         Christō          Χριστῷ ,    Christ            N-DMS
+G2537         kainē            καινὴ       [he is] a new     Adj-NFS
+G2937         ktisis           κτίσις .    creation          N-NFS
+G3588         ta               τὰ          the               Art-NNP
+G744          archaia          ἀρχαῖα      old things        Adj-NNP
+G3928         parēlthen        παρῆλθεν ;  have passed away  V-AIA-3S
+G3708         idou             ἰδοὺ ,      Behold            V-AMA-2S
+G1096         gegonen          γέγονεν     has emerged       V-RIA-3S
+G2537         kaina            καινά .     [the] new         Adj-NNP
+───────────────────────────────────────────────────────────────────────
 
 Our sins were paid for by Jesus' death. Jesus rose from the dead:
 
@@ -81724,23 +81731,32 @@ was a matter of whether they would obey God. But the food itself doesn't do any 
   Mark 7:19 - because not it enters of him into the heart but into the belly and into the sewer goes out purifying
   all the food (Interlinear)
 
- | 3754    3756 1531         846       1519 3588    2588       235  1519 3588
- | hoti    ouk  eisporeuetai autou     eis  tēn     kardian    all’ eis  tēn
- | ὅτι     οὐκ  εἰσπορεύεται αὐτοῦ     εἰς  τὴν     καρδίαν  , ἀλλ’ εἰς  τὴν
- | because not  it enters    of him    into the     heart      but  into the
- | Conj    Adv  V-PIM/P-3S   PPro-GM3S Prep Art-AFS N-AFS      Conj Prep Art-AFS
- |
- | 2836      2532 1519 3588    856       1607           2511       3956    3588
- | koilian   kai  eis  ton     aphedrōna ekporeuetai    katharizōn panta   ta
- | κοιλίαν , καὶ  εἰς  τὸν     ἀφεδρῶνα  ἐκπορεύεται  ? καθαρίζων  πάντα   τὰ
- |  belly     and  into the     sewer     goes out       purifying  all     the
- |  N-AFS     Conj Prep Art-AMS N-AMS     V-PIM/P-3S     V-PPA-NMS  Adj-ANP Art-ANP
- | 
- |  1033 [e]
- |  brōmata
- |  βρώματα  .
- |  food
- |  N-ANP
+Mark 7:19 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration      Greek      Translation   Grammar
+───────────────────────────────────────────────────────────────────────
+G3754         hoti             ὅτι            because      Conj
+G3756         ouk              οὐκ            not          Adv
+G1531         eisporeuetai     εἰσπορεύεται   it enters    V-PIM/P-3S
+G846          autou            αὐτοῦ          of him       PPro-GM3S
+G1519         eis              εἰς            into         Prep
+G3588         tēn              τὴν            the          Art-AFS
+G2588         kardian          καρδίαν ,      heart        N-AFS
+G235          all’             ἀλλ’           but          Conj
+G1519         eis              εἰς            into         Prep
+G3588         tēn              τὴν            the          Art-AFS
+G2836         koilian          κοιλίαν ,      belly        N-AFS
+G2532         kai              καὶ            and          Conj
+G1519         eis              εἰς            into         Prep
+G3588         ton              τὸν            the          Art-AMS
+G856          aphedrōna        ἀφεδρῶνα       draught      N-AMS
+G1607         ekporeuetai      ἐκπορεύεται .  goes out     V-PIM/P-3S
+G2511         katharizōn       καθαρίζων      purifying    V-PPA-NMS
+G3956         panta            πάντα          all          Adj-ANP
+G3588         ta               τὰ             the          Art-ANP
+G1033         brōmata          βρώματα .      food         N-ANP
+───────────────────────────────────────────────────────────────────────
 
 Evil things coming from the heart of man defile the man. So with good thoughts proceeding from a pure heart, that
 would purify the man? And this purification I would call "soul purification", the soul being the rest of the
@@ -86995,17 +87011,22 @@ should keep the faith until and beyond when we receive personal assurance of jus
 Interlinear Bible
 Romans 3:28
 
- | 3049 [e]    1063 [e]  1344 [e]        4102 [e]
- | logizometha gar       dikaiousthai    pistei
- | λογιζόμεθα  γὰρ       δικαιοῦσθαι     πίστει
- | We reckon   therefore to be justified by faith
- | V-PIM/P-1P  Conj      V-PNM/P         N-DFS
- |
- | 444 [e]     5565 [e]   2041 [e] 3551 [e]
- | anthrōpon   chōris     ergōn    nomou
- | ἄνθρωπον  , χωρὶς      ἔργων    νόμου  .
- |  a man       apart from works    of the Law
- |  N-AMS       Prep       N-GNP    N-GMS
+Romans 3:28 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek       Translation     Grammar
+─────────────────────────────────────────────────────────────────────────
+G3049         logizometha      λογιζόμεθα   We reckon        V-PIM/P-1P
+G1063         gar              γὰρ          therefore        Conj
+G1344         dikaiousthai     δικαιοῦσθαι  to be justified  V-PNM/P
+G4102         pistei           πίστει       by faith         N-DFS
+G444          anthrōpon        ἄνθρωπον ,   a man            N-AMS
+G5565         chōris           χωρὶς        apart from       Prep
+G2041         ergōn            ἔργων        works            N-GNP
+G3551         nomou            νόμου .      of the Law       N-GMS
+─────────────────────────────────────────────────────────────────────────
+
++END[SRC]
 
 But works of the law is different from works:
 
@@ -87172,11 +87193,21 @@ true knowledge about God:
 
   Hebrews 5:8 - though being a Son He learned from the things He suffered - obedience (Interlinear)
 
- | 2539   1510      5207    3129       575  3739       3958        3588     5218
- | kaiper ōn        Huios   emathen    aph’ hōn        epathen     tēn      hypakoēn
- | καίπερ ὢν        Υἱός  , ἔμαθεν     ἀφ’  ὧν         ἔπαθεν  ,   τὴν      ὑπακοήν  ,
- | though being     a Son   He learned from the things He suffered  -       obedience
- | Conj   V-PPA-NMS N-NMS   V-AIA-3S   Prep RelPro-GNP V-AIA-3S    Art-AFS  N-AFS
+Hebrews 5:8 (Interlinear)
+
+────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek      Translation      Grammar
+────────────────────────────────────────────────────────────────────────
+G2539         kaiper           καίπερ     though            Conj
+G1510         ōn               ὢν         being             V-PPA-NMS
+G5207         Huios            Υἱός ,     a son             N-NMS
+G3129         emathen          ἔμαθεν     he learned        V-AIA-3S
+G575          aph’             ἀφ’        from              Prep
+G3739         hōn              ὧν         the things which  RelPro-GNP
+G3958         epathen          ἔπαθεν ,   he suffered       V-AIA-3S
+G3588         tēn              τὴν        -                 Art-AFS
+G5218         hypakoēn         ὑπακοήν ,  obedience         N-AFS
+────────────────────────────────────────────────────────────────────────
 
   Hebrews 5:7-10 - In the days of his flesh, Jesus offered up prayers and supplications, with loud cries and
   tears, to him who was able to save him from death, and he was heard because of his reverence. Although he was a
@@ -88237,7 +88268,7 @@ you; also important is confessing Jesus Christ before others):
   Jeremiah 17:10 - I the LORD (Yahweh) search the heart and test the mind, to give every man according to his
   ways, according to the fruit of his deeds. (ESV)
 
- | 3068 [e]
+ | H3068
  | Yah·weh
  | יהוה
  | Yahweh
@@ -88475,21 +88506,58 @@ people to not at all mean "fully hearken to / become obedient to the command":
 
 Hupakouó really means to be fully compliant to:
 
- | 5219 /hypakoúō ("obey") is acting under the authority of the one speaking, i.e. really listening to the one giving the charge (order). 5219 /hypakoúō ("to hearken, obey") suggests attentively listening, i.e. fully compliant (responsive).
+ | G5219 /hypakoúō ("obey") is acting under the authority of the one speaking, i.e. really listening to the one giving the charge (order). G5219 /hypakoúō ("to hearken, obey") suggests attentively listening, i.e. fully compliant (responsive).
  |
- | [5219 (hypakoúō) is an "intensification" of the simple verb "to listen" (191 /akoúō, "hear").]
+ | [G5219 (hypakoúō) is an "intensification" of the simple verb "to listen" (G191 /akoúō, "hear").]
 
- | 235  3756 3956    5219       3588    2098         2268   1063 3004
- | All’ ou   pantes  hypēkousan tō      euangeliō    Ēsaias gar  legei
- | Ἀλλ’ οὐ   πάντες  ὑπήκουσαν  τῷ      εὐαγγελίῳ  . Ἠσαΐας γὰρ  λέγει  ,
- | But  not  all     heeded     the     good news    Isaiah for  says
- | Conj Adv  Adj-NMP V-AIA-3P   Art-DNS N-DNS        N-NMS  Conj V-PIA-3S
- |
- | 2962     5101     4100         3588    189    1473
- | Kyrie    tis      episteusen   tē      akoē   hēmōn
- | Κύριε  , τίς      ἐπίστευσεν   τῇ      ἀκοῇ   ἡμῶν  ?
- |  Lord     who      has believed the     report of us
- |  N-VMS    IPro-NMS V-AIA-3S     Art-DFS N-DFS  PPro-G1P
+Romans 10:16 (Interlinear)
+
+────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek     Translation   Grammar
+────────────────────────────────────────────────────────────────────
+G235          All’             Ἀλλ’         But           Conj
+G3756         ou               οὐ           not           Adv
+G3956         pantes           πάντες       all           Adj-NMP
+G5219         hypēkousan       ὑπήκουσαν    obeyed        V-AIA-3P
+G3588         tō               τῷ           the           Art-DNS
+G2098         euangeliō        εὐαγγελίῳ .  gospel        N-DNS
+G2268         Ēsaias           Ἠσαΐας*      Isaiah        N-NMS
+G1063         gar              γὰρ          indeed        Conj
+G3004         legei            λέγει ,      says          V-PIA-3S
+G2962         Kyrie            Κύριε ,      Lord          N-VMS
+G5101         tis              τίς          who           IPro-NMS
+G4100         episteusen       ἐπίστευσεν   has believed  V-AIA-3S
+G3588         tē               τῇ           the           Art-DFS
+G189          akoē             ἀκοῇ         report        N-DFS
+G1473         hēmōn            ἡμῶν ?       of us         PPro-G1P
+────────────────────────────────────────────────────────────────────
+
+Hebrews 4:2 (Interlinear)
+
+────────────────────────────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration         Greek                   Translation                Grammar
+────────────────────────────────────────────────────────────────────────────────────────────────────
+G2532         kai               καὶ                and                                 Conj
+G1063         gar               γάρ                indeed                              Conj
+G1510         esmen             ἐσμεν              we are [those]                      V-PIA-1P
+G2097         euēngelismenoi    εὐηγγελισμένοι     having had gospel preached [to us]  V-RPM/P-NMP
+G2509         kathaper          καθάπερ            just as                             Adv
+G2548         kakeinoi          κἀκεῖνοι ;         they [did]                          DPro-NMP
+G235          all’              ἀλλ’               but                                 Conj
+G3756         ouk               οὐκ                not                                 Adv
+G5623         ōphelēsen         ὠφέλησεν           did profit                          V-AIA-3S
+G3588         ho                ὁ                  the                                 Art-NMS
+G3056         logos             λόγος              message                             N-NMS
+G3588         tēs               τῆς                of [their]                          Art-GFS
+G189          akoēs             ἀκοῆς              hearing                             N-GFS
+G1565         ekeinous          ἐκείνους ,         them                                DPro-AMP
+G3361         mē                μὴ                 not                                 Adv
+G4786         synkekerasmenous  συγκεκερασμένους*  having been united with             V-RPM/P-AMP
+G3588         tē                τῇ                 the                                 Art-DFS
+G4102         pistei            πίστει             faith                               N-DFS
+G3588         tois              τοῖς               of those                            Art-DMP
+G191          akousasin         ἀκούσασιν .        having heard                        V-APA-DMP
+────────────────────────────────────────────────────────────────────────────────────────────────────
 
 So we have to believe on Him (who He is), and call on Him to save us - and this is an act of obedience to His
 command to trust in Him and call on Him, so we come to trust and obey Him:
@@ -88910,25 +88978,35 @@ Iscariot. It's not a pleasant outcome:
 I think we can say that Jesus gave His all, even to Judas. Jesus really tried to get Judas to trust Him and yield
 his life to Him in advance of witnessing His crucifixion:
 
-biblehub.com 27-3.htm: Matthew 27:3 Interlinear:
+Matthew 27:3 (Interlinear)
+Then (G5119 Tote) having seen (G3708 idōn) Judas (G2455 Ioudas) the [one] (G3588 ho) having delivered up (G3860
+paradidous) him (G846 auton) that (G3754 hoti) he was condemned (G2632 katekrithē) having regretted [it] (G3338
+metamelētheis) returned (G4762 estrepsen) the (G3588 ta) thirty (G5144 triakonta) pieces of silver (G694 argyria)
+to the (G3588 tois) chief priests (G749 archiereusin) and (G2532 kai) elders (G4245 presbyterois)
 
- | 5119 3708        2455     3588      3860                846       3754
- | Tote idōn        Ioudas   ho        paradidous          auton     hoti
- | Τότε ἰδὼν        Ἰούδας , ὁ         παραδιδοὺς*         αὐτὸν  ,  ὅτι
- | Then having seen Judas    the [one] having delivered up Him       that
- | Adv  V-APA-NMS   N-NMS    Art-NMS   V-PPA-NMS           PPro-AM3S Conj
- |
- | 2632             3338                  4762        3588    5144
- | katekrithē       metamelētheis         estrepsen   ta      triakonta
- | κατεκρίθη  ,     μεταμεληθεὶς  ,       ἔστρεψεν    τὰ      τριάκοντα
- |  He was condemned having regretted [it] he returned the     thirty
- |  V-AIP-3S         V-APP-NMS             V-AIA-3S    Art-ANP Adj-ANP
- | 
- |  694              3588    749           2532 4245
- |  argyria          tois    archiereusin  kai  presbyterois
- |  ἀργύρια          τοῖς    ἀρχιερεῦσιν   καὶ  πρεσβυτέροις ,
- |  pieces of silver to the  chief priests and  elders
- |  N-ANP            Art-DMP N-DMP         Conj Adj-DMP
+Matthew 27:3 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration      Greek            Translation        Grammar
+─────────────────────────────────────────────────────────────────────────────────
+G5119         Tote             Τότε            Then                   Adv
+G3708         idōn             ἰδὼν            having seen            V-APA-NMS
+G2455         Ioudas           Ἰούδας          Judas                  N-NMS
+G3588         ho               ὁ               the [one]              Art-NMS
+G3860         paradidous       παραδιδοὺς*     having delivered up    V-PPA-NMS
+G846          auton            αὐτὸν           him                    PPro-AM3S
+G3754         hoti             ὅτι             that                   Conj
+G2632         katekrithē       κατεκρίθη ,     he was condemned       V-AIP-3S
+G3338         metamelētheis    μεταμεληθεὶς ,  having regretted [it]  V-APP-NMS
+G4762         estrepsen        ἔστρεψεν        returned               V-AIA-3S
+G3588         ta               τὰ              the                    Art-ANP
+G5144         triakonta        τριάκοντα       thirty                 Adj-ANP
+G694          argyria          ἀργύρια         pieces of silver       N-ANP
+G3588         tois             τοῖς            to the                 Art-DMP
+G749          archiereusin     ἀρχιερεῦσιν     chief priests          N-DMP
+G2532         kai              καὶ             and                    Conj
+G4245         presbyterois     πρεσβυτέροις ,  elders                 Adj-DMP
+─────────────────────────────────────────────────────────────────────────────────
 
 We serve our earthly masters/lords sincerely.
 
@@ -92028,25 +92106,29 @@ belief in the truth:
   II Thessalonians 2:14 - To this he called you through our gospel, so that you may obtain the glory of our Lord
   Jesus Christ.
 
- | 1519 [e] 3739 [e]   2532 [e] 2564 [e]  4771 [e]
- | eis      ho         kai      ekalesen  hymas
- | εἰς      ὃ          καὶ      ἐκάλεσεν  ὑμᾶς  ,
- | to       this       also     He called you
- | Prep     RelPro-ANS Conj     V-AIA-3S  PPro-A2P
+II Thessalonians 2:14 (Interlinear)
 
- | 1223 [e] 3588 [e] 2098 [e]   1473 [e] 1519 [e] 4047 [e]
- | dia      tou      euangeliou hēmōn    eis      peripoiēsin
- | διὰ      τοῦ      εὐαγγελίου ἡμῶν  ,  εἰς      περιποίησιν
- | through  the      gospel     of us    to       [the] obtaining
- | Prep     Art-GNS  N-GNS      PPro-G1P Prep     N-AFS
-
-of [the] glory of the Lord of us Jesus Christ:
-
- | 1391 [e]       3588 [e] 2962 [e] 1473 [e] 2424 [e] 5547 [e]
- | doxēs          tou      Kyriou   hēmōn    Iēsou    Christou
- | δόξης          τοῦ      Κυρίου   ἡμῶν     Ἰησοῦ    Χριστοῦ  .
- | of [the] glory of the   Lord     of us    Jesus    Christ
- | N-GFS          Art-GMS  N-GMS    PPro-G1P N-GMS    N-GMS
+─────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek       Translation     Grammar
+─────────────────────────────────────────────────────────────────────────
+G1519         eis              εἰς          to               Prep
+G3739         ho               ὃ            this             RelPro-ANS
+G2532         kai              καὶ          also             Conj
+G2564         ekalesen         ἐκάλεσεν     he called        V-AIA-3S
+G4771         hymas            ὑμᾶς ,       you              PPro-A2P
+G1223         dia              διὰ          through          Prep
+G3588         tou              τοῦ          the              Art-GNS
+G2098         euangeliou       εὐαγγελίου   gospel           N-GNS
+G1473         hēmōn            ἡμῶν ,       of us            PPro-G1P
+G1519         eis              εἰς          to               Prep
+G4047         peripoiēsin      περιποίησιν  [the] obtaining  N-AFS
+G1391         doxēs            δόξης        of [the] glory   N-GFS
+G3588         tou              τοῦ          of the           Art-GMS
+G2962         Kyriou           Κυρίου       Lord             N-GMS
+G1473         hēmōn            ἡμῶν ,       of us            PPro-G1P
+G2424         Iēsou            Ἰησοῦ        Jesus            N-GMS
+G5547         Christou         Χριστοῦ .    Christ           N-GMS
+─────────────────────────────────────────────────────────────────────────
 
 We seek the glory of our Lord Jesus Christ, not our own glory. We should aim not to speak on our own authority,
 but instead to speak the Truth from God:
@@ -110253,23 +110335,23 @@ are not in opposition), Biblically speaking:
 
 Man and woman, husband and wife are a single unit called Adam:
 
- |      1254              3117           120     8034        853
- | s    hib·bā·rə·’ām.    bə·yō·wm       ’ā·ḏām, šə·mām      ’eṯ-
- | ס    הבראם׃            ביום           אדם     שמם         את־
- |  -   they were created in the day     man     them         -
- | Punc V‑Nifal‑Inf | 3mp Prep‑b | N‑msc N‑ms    N‑msc | 3mp DirObjM
- |
- | 7121                            853           1288
- | way·yiq·rā                      ’ō·ṯām,       way·ḇā·reḵ
- | ויקרא                           אתם           ויברך
- |  and called                      them          and He blessed
- |  Conj‑w | V‑Qal‑ConsecImperf‑3ms DirObjM | 3mp Conj‑w | V‑Piel‑ConsecImperf‑3ms
- | 
- |  1254                 5347          2145
- |  bə·rā·’ām;           ū·nə·qê·ḇāh   zā·ḵār
- |  בראם                 ונקבה         זכר
- |  He created them      and female    male
- |  V‑Qal‑Perf‑3ms | 3mp Conj‑w | N‑fs N‑ms
+Genesis 5:2 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration  Hebrew      Translation                 Grammar
+─────────────────────────────────────────────────────────────────────────────────────────────
+H2145         zā·ḵār           זכר      Male               N‑ms
+H5347         ū·nə·qê·ḇāh      ונקבה    and female         Conj‑w ¦ N‑fs
+H1254         bə·rā·’ām;       בראם     He created them    V‑Qal‑Perf‑3ms ¦ 3mp
+H1288         way·ḇā·reḵ       ויברך    and He blessed     Conj‑w ¦ V‑Piel‑ConsecImperf‑3ms
+H853          ’ō·ṯām,          אתם      them               DirObjM ¦ 3mp
+H7121         way·yiq·rā       ויקרא    and called         Conj‑w ¦ V‑Qal‑ConsecImperf‑3ms
+H853          ’eṯ-             את־      -                  DirObjM
+H8034         šə·mām           שמם      their name         N‑msc ¦ 3mp
+H120          ’ā·ḏām,          אדם      Man                N‑ms
+H3117         bə·yō·wm         ביום     in the day         Prep‑b ¦ N‑msc
+H1254         hib·bā·rə·’ām.   הבראם׃ס  they were created  V‑Nifal‑Inf ¦ 3mp
+─────────────────────────────────────────────────────────────────────────────────────────────
 
 youtube.com: The BEST Explanation of the Trinity You Will EVER Hear | @shamounian {@ChristOverAll-1} @time: 3 min
 24 sec
@@ -114945,23 +115027,23 @@ kingdom of God. It's impossible.
 
 Man and woman, husband and wife are a single unit called Adam:
 
- |      1254              3117           120     8034        853
- | s    hib·bā·rə·’ām.    bə·yō·wm       ’ā·ḏām, šə·mām      ’eṯ-
- | ס    הבראם׃            ביום           אדם     שמם         את־
- |  -   they were created in the day     man     them         -
- | Punc V‑Nifal‑Inf | 3mp Prep‑b | N‑msc N‑ms    N‑msc | 3mp DirObjM
- |
- | 7121                            853           1288
- | way·yiq·rā                      ’ō·ṯām,       way·ḇā·reḵ
- | ויקרא                           אתם           ויברך
- |  and called                      them          and He blessed
- |  Conj‑w | V‑Qal‑ConsecImperf‑3ms DirObjM | 3mp Conj‑w | V‑Piel‑ConsecImperf‑3ms
- | 
- |  1254                 5347          2145
- |  bə·rā·’ām;           ū·nə·qê·ḇāh   zā·ḵār
- |  בראם                 ונקבה         זכר
- |  He created them      and female    male
- |  V‑Qal‑Perf‑3ms | 3mp Conj‑w | N‑fs N‑ms
+Genesis 5:2 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration  Hebrew      Translation                 Grammar
+─────────────────────────────────────────────────────────────────────────────────────────────
+H2145         zā·ḵār           זכר      Male               N‑ms
+H5347         ū·nə·qê·ḇāh      ונקבה    and female         Conj‑w ¦ N‑fs
+H1254         bə·rā·’ām;       בראם     He created them    V‑Qal‑Perf‑3ms ¦ 3mp
+H1288         way·ḇā·reḵ       ויברך    and He blessed     Conj‑w ¦ V‑Piel‑ConsecImperf‑3ms
+H853          ’ō·ṯām,          אתם      them               DirObjM ¦ 3mp
+H7121         way·yiq·rā       ויקרא    and called         Conj‑w ¦ V‑Qal‑ConsecImperf‑3ms
+H853          ’eṯ-             את־      -                  DirObjM
+H8034         šə·mām           שמם      their name         N‑msc ¦ 3mp
+H120          ’ā·ḏām,          אדם      Man                N‑ms
+H3117         bə·yō·wm         ביום     in the day         Prep‑b ¦ N‑msc
+H1254         hib·bā·rə·’ām.   הבראם׃ס  they were created  V‑Nifal‑Inf ¦ 3mp
+─────────────────────────────────────────────────────────────────────────────────────────────
 
 That is certainly true for two people (1 male and one female) who have been joined together by God. God joins man
 and woman together, but nowhere is it seen in Scripture that God joins any other combination of independent male
@@ -119990,23 +120072,25 @@ People who are now in Christ are a new creation (G2537 kainē; new) (G2937 ktisi
 transitioning into the new. That might take some shaking off of old things, and involves being sanctified by
 obedience to the Truth. But those who are in Christ are a brand new creation:
 
- | 5620 [e]  1487 [e] 5100 [e] 1722 [e] 5547 [e]  2537 [e]
- | hōste     ei       tis      en       Christō   kainē
- | ὥστε      εἴ       τις      ἐν       Χριστῷ  , καινὴ
- | Therefore if       anyone   [is] in  Christ    [he is] a new
- | Conj      Conj     IPro-NMS Prep     N-DMS     Adj-NFS
- |
- | 2937 [e]  3588 [e] 744 [e]    3928 [e]         2400 [e]
- | ktisis    ta       archaia    parēlthen        idou
- | κτίσις  . τὰ       ἀρχαῖα     παρῆλθεν  ;      ἰδοὺ  ,
- |  creation  The      old things have passed away behold
- |  N-NFS     Art-NNP  Adj-NNP    V-AIA-3S         V-AMA-2S
- | 
- |  1096 [e]            2537 [e]
- |  gegonen             kaina
- |  γέγονεν             καινά  .
- |  has come into being [the] new
- |  V-RIA-3S            Adj-NNP
+II Corinthians 5:17 (Interlinear)
+
+───────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek       Translation     Grammar
+───────────────────────────────────────────────────────────────────────
+G5620         hōste            ὥστε        Therefore         Conj
+G1487         ei               εἴ          if                Conj
+G5100         tis              τις         anyone            IPro-NMS
+G1722         en               ἐν          [is] in           Prep
+G5547         Christō          Χριστῷ ,    Christ            N-DMS
+G2537         kainē            καινὴ       [he is] a new     Adj-NFS
+G2937         ktisis           κτίσις .    creation          N-NFS
+G3588         ta               τὰ          the               Art-NNP
+G744          archaia          ἀρχαῖα      old things        Adj-NNP
+G3928         parēlthen        παρῆλθεν ;  have passed away  V-AIA-3S
+G3708         idou             ἰδοὺ ,      Behold            V-AMA-2S
+G1096         gegonen          γέγονεν     has emerged       V-RIA-3S
+G2537         kaina            καινά .     [the] new         Adj-NNP
+───────────────────────────────────────────────────────────────────────
 
   Matthew 20:27-28 - and whoever would be first among you must be your slave, even as the Son of Man came not to
   be served but to serve, and to give his life as a ransom for many. (ESV)
@@ -124514,23 +124598,28 @@ Forgive others. This must be done for our sake, that our sins may be forgiven:
   Matthew 6:14-15 - For if you forgive others their trespasses, your heavenly Father will also forgive you, but if
   you do not forgive others their trespasses, neither will your Father forgive your trespasses. (ESV)
 
- | 1437 1063 863         3588    444        3588    3900
- | Ean  gar  aphēte      tois    anthrōpois ta      paraptōmata
- | Ἐὰν  γὰρ  ἀφῆτε       τοῖς    ἀνθρώποις  τὰ      παραπτώματα
- | If   for  you forgive  -      men        the     trespasses
- | Conj Conj V-ASA-2P    Art-DMP N-DMP      Art-ANP N-ANP
- |
- | 846       863          2532 4771     3588    3962   4771
- | autōn     aphēsei      kai  hymin    ho      Patēr  hymōn
- | αὐτῶν  ,  ἀφήσει       καὶ  ὑμῖν     ὁ       Πατὴρ  ὑμῶν
- |  of them   will forgive also you      the     Father of you
- |  PPro-GM3P V-FIA-3S     Conj PPro-D2P Art-NMS N-NMS  PPro-G2P
- | 
- |  3588    3770 [e]
- |  ho      ouranios
- |  ὁ       οὐράνιος  .
- |   -      Heavenly
- |  Art-NMS Adj-NMS
+Matthew 6:14 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek     Translation    Grammar
+─────────────────────────────────────────────────────────────────────
+G1437         Ean              Ἐὰν          if            Conj
+G1063         gar              γὰρ          indeed        Conj
+G863          aphēte           ἀφῆτε        you forgive   V-ASA-2P
+G3588         tois             τοῖς         -             Art-DMP
+G444          anthrōpois       ἀνθρώποις    men           N-DMP
+G3588         ta               τὰ           the           Art-ANP
+G3900         paraptōmata      παραπτώματα  trespasses    N-ANP
+G846          autōn            αὐτῶν ,      of them       PPro-GM3P
+G863          aphēsei          ἀφήσει       will forgive  V-FIA-3S
+G2532         kai              καὶ          also          Conj
+G4771         hymin            ὑμῖν         you           PPro-D2P
+G3588         ho               ὁ            the           Art-NMS
+G3962         Patēr            Πατὴρ        Father        N-NMS
+G4771         hymōn            ὑμῶν         of you        PPro-G2P
+G3588         ho               ὁ            -             Art-NMS
+G3770         ouranios         οὐράνιος .   heavenly      Adj-NMS
+─────────────────────────────────────────────────────────────────────
 
 See how that after receiving the Holy Spirit it's very important that we forgive others for their sake too:
 
@@ -125839,40 +125928,58 @@ biblehub.com: John 8:24 Interlinear
 I said therefore to you that you will die in the sins of you if for not you believe that I am (G1473 egō G1510
 eimi I AM or I am He) you will die in the sins of you
 
- | 2036     3767      4771     3754     599           1722 3588
- | eipon    oun       hymin    hoti     apothaneisthe en   tais
- | εἶπον    οὖν       ὑμῖν     ὅτι      ἀποθανεῖσθε   ἐν   ταῖς
- | I said   therefore to you   that     you will die  in   the
- | V-AIA-1S Conj      PPro-D2P Conj     V-FIM-2P      Prep Art-DFP
- |
- | 266        4771     1437 1063 3361 4100        3754 1473     1510
- | hamartiais hymōn    ean  gar  mē   pisteusēte  hoti egō      eimi
- | ἁμαρτίαις  ὑμῶν  ;  ἐὰν  γὰρ  μὴ   πιστεύσητε  ὅτι  ἐγώ      εἰμι  ,
- |  sins       of you   if   for  not  you believe that I        am [He]
- |  N-DFP      PPro-G2P Conj Conj Adv  V-ASA-2P    Conj PPro-N1S V-PIA-1S
- | 
- |  599           1722 3588    266        4771
- |  apothaneisthe en   tais    hamartiais hymōn
- |  ἀποθανεῖσθε   ἐν   ταῖς    ἁμαρτίαις  ὑμῶν  .
- |  you will die  in   the     sins       of you
- |  V-FIM-2P      Prep Art-DFP N-DFP      PPro-G2P
+John 8:24 (Interlinear)
+
+────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration     Greek     Translation   Grammar
+────────────────────────────────────────────────────────────────────
+G3004         eipon            εἶπον        I said        V-AIA-1S
+G3767         oun              οὖν          therefore     Conj
+G4771         hymin            ὑμῖν         to you        PPro-D2P
+G3754         hoti             ὅτι          that          Conj
+G599          apothaneisthe    ἀποθανεῖσθε  you will die  V-FIM-2P
+G1722         en               ἐν           in            Prep
+G3588         tais             ταῖς         the           Art-DFP
+G266          hamartiais       ἁμαρτίαις    sins          N-DFP
+G4771         hymōn            ὑμῶν ;       of you        PPro-G2P
+G1437         ean              ἐὰν          if            Conj
+G1063         gar              γὰρ          indeed        Conj
+G3361         mē               μὴ           not           Adv
+G4100         pisteusēte       πιστεύσητε   you believe   V-ASA-2P
+G3754         hoti             ὅτι          that          Conj
+G1473         egō              ἐγώ          I             PPro-N1S
+G1510         eimi             εἰμι ,       am [he]       V-PIA-1S
+G599          apothaneisthe    ἀποθανεῖσθε  you will die  V-FIM-2P
+G1722         en               ἐν           in            Prep
+G3588         tais             ταῖς         the           Art-DFP
+G266          hamartiais       ἁμαρτίαις    sins          N-DFP
+G4771         hymōn            ὑμῶν .       of you        PPro-G2P
+────────────────────────────────────────────────────────────────────
 
 We are not to be led astray by false christs:
 
   Mark 13:6 - Many will come in the name of Me saying - I am [He] (G1473 egō G1510 eimi I AM or I am He) and many
   they will mislead (Interlinear)
 
- | 4183    2064       1909 3588    3686    1473     3004
- | polloi  eleusontai epi  tō      onomati mou      legontes
- | πολλοὶ  ἐλεύσονται ἐπὶ  τῷ      ὀνόματί μου  ,   λέγοντες
- | Many    will come  in   the     name    of Me    saying
- | Adj-NMP V-FIM-3P   Prep Art-DNS N-DNS   PPro-G1S V-PPA-NMP
- |
- | 3754   1473     1510     2532 4183    4105
- | hoti   Egō      eimi     kai  pollous planēsousin
- | ὅτι  , Ἐγώ      εἰμι  ,  καὶ  πολλοὺς πλανήσουσιν  .
- |   -     I        am [He]  and  many    they will mislead
- |  Conj   PPro-N1S V-PIA-1S Conj Adj-AMP V-FIA-3P
+Mark 13:6 (Interlinear)
+
+────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration      Greek         Translation      Grammar
+────────────────────────────────────────────────────────────────────────────
+G4183         polloi           πολλοὶ         many               Adj-NMP
+G2064         eleusontai       ἐλεύσονται     will come          V-FIM-3P
+G1909         epi              ἐπὶ            in                 Prep
+G3588         tō               τῷ             the                Art-DNS
+G3686         onomati          ὀνόματί        name               N-DNS
+G1473         mou              μου ,          of me              PPro-G1S
+G3004         legontes         λέγοντες ,     saying             V-PPA-NMP
+G3754         hoti             ὅτι            -                  Conj
+G1473         Egō              Ἐγώ            I                  PPro-N1S
+G1510         eimi             εἰμι ,         am [he]            V-PIA-1S
+G2532         kai              καὶ            and                Conj
+G4183         pollous          πολλοὺς        many               Adj-AMP
+G4105         planēsousin      πλανήσουσιν .  they will mislead  V-FIA-3P
+────────────────────────────────────────────────────────────────────────────
 
 62.1.63.
 
@@ -128328,35 +128435,30 @@ salvation from Jesus:
   night, who calls for the waters of the sea and pours them out on the surface of the earth, the LORD is his name;
   (ESV)
 
- | 6213              3598         3685          2015
- | ‘ō·śêh            ḵî·māh       ū·ḵə·sîl,     wə·hō·pêḵ
- | עשה               כימה         וכסיל         והפך
- | He made           the Pleiades and Orion     and He turns
- | V‑Qal‑Prtcpl‑msc  N‑fs         Conj‑w | N‑ms Conj‑w | V‑Qal‑Prtcpl‑ms
+Amos 5:8 (Interlinear)
 
- | 1242               6757                3117          3915
- | lab·bō·qer         ṣal·mā·weṯ,         wə·yō·wm      lay·lāh
- | לבקר               צלמות               ויום          לילה
- | into morning       the shadow of death and the day   as night
- | Prep‑l, Art | N‑ms N‑ms                Conj‑w | N‑ms N‑ms
-
- | 2821             7121                  4325
- | heḥ·šîḵ;         haq·qō·w·rê           lə·mê-
- | החשיך            הקורא                 למי־
- | makes dark       He calls              for the waters
- | V‑Hifil‑Perf‑3ms Art | V‑Qal‑Prtcpl‑ms Prep‑l | N‑mpc
-
- | 3220       8210
- | hay·yām,   way·yiš·pə·ḵêm
- | הים        וישפכם
- | of the sea and pours them out
- | Art | N‑ms Conj‑w | V‑Qal‑ConsecImperf‑3ms | 3mp
-
- | 5921 6440     776          3068        8034
- | ‘al- pə·nê    hā·’ā·reṣ    Yah·weh     šə·mōw.       s
- | על־  פני      הארץ         יהוה        שמו׃          ס
- | on   the face of the earth Yahweh      [is] His name  -
- | Prep N‑cpc    Art | N‑fs   N‑proper‑ms N‑msc | 3ms   Punc
+────────────────────────────────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration  Hebrew        Translation                        Grammar
+────────────────────────────────────────────────────────────────────────────────────────────────────────
+H6213         ‘ō·śêh           עשה     The One making            V‑Qal‑Prtcpl‑msc
+H3598         ḵî·māh           כימה    the Pleiades              N‑fs
+H3685         ū·ḵə·sîl,        וכסיל   and Orion                 Conj‑w ¦ N‑ms
+H2015         wə·hō·pêḵ        והפך    and the One turning       Conj‑w ¦ V‑Qal‑Prtcpl‑ms
+H1242         lab·bō·qer       לבקר    into the morning          Prep‑l, Art ¦ N‑ms
+H6757         ṣal·mā·weṯ,      צלמות   the shadow of death       N‑ms
+H3117         wə·yō·wm         ויום    the day                   Conj‑w ¦ N‑ms
+H3915         lay·lāh          לילה    as night                  N‑ms
+H2821         heḥ·šîḵ;         החשיך   and making dark           V‑Hifil‑Perf‑3ms
+H7121         haq·qō·w·rê      הקורא   the One calling           Art ¦ V‑Qal‑Prtcpl‑ms
+H4325         lə·mê-           למי־    to the waters             Prep‑l ¦ N‑mpc
+H3220         hay·yām,         הים     of the sea                Art ¦ N‑ms
+H8210         way·yiš·pə·ḵêm   וישפכם  and [who] pours them out  Conj‑w ¦ V‑Qal‑ConsecImperf‑3ms ¦ 3mp
+H5921         ‘al-             על־     over                      Prep
+H6440         pə·nê            פני     the face                  N‑cpc
+H776          hā·’ā·reṣ        הארץ    of the earth              Art ¦ N‑fs
+H3068         Yah·weh          יהוה    YHWH                      N‑proper‑ms
+H8034         šə·mōw.          שמו׃ס   [is] His name             N‑msc ¦ 3ms
+────────────────────────────────────────────────────────────────────────────────────────────────────────
 
   II Chronicles 15:3-4 - For a long time Israel was without the true God, and without a teaching priest and
   without law, but when in their distress they turned to the Lord, the God of Israel, and sought him, he was found
@@ -133019,25 +133121,35 @@ to justify my own actions here.
 
 I find this interesting, notice the word for life (Zoe) has the Strongs number 2222.
 
-John 5:12 (Interlinar):
+I John 5:12 (Interlinear)
+the [one] (G3588 ho) having (G2192 echōn) the (G3588 ton) Son (G5207 Huion) has (G2192 echei) - (G3588 tēn) life
+(G2222 zōēn) the [one] (G3588 ho) not (G3361 mē) having (G2192 echōn) the (G3588 ton) Son (G5207 Huion) - (G3588
+tou) of God (G2316 Theou) - (G3588 tēn) life (G2222 zōēn) not (G3756 ouk) has (G2192 echei)
 
- | 3588      2192      3588    5207  2192     3588
- | ho        echōn     ton     Huion echei    tēn
- | ὁ         ἔχων      τὸν     Υἱὸν  ἔχει     τὴν
- | The [one] having    the     Son   has       -
- | Art-NMS   V-PPA-NMS Art-AMS N-AMS V-PIA-3S Art-AFS
- |
- | 2222    3588      3361 2192      3588    5207
- | zōēn    ho        mē   echōn     ton     Huion
- | ζωήν  ; ὁ         μὴ   ἔχων      τὸν     Υἱὸν
- |  life    the [one] not  having    the     Son
- |  N-AFS   Art-NMS   Adv  V-PPA-NMS Art-AMS N-AMS
- | 
- |  3588    2316    3588    2222  3756 2192
- |  tou     Theou   tēn     zōēn  ouk  echei
- |  τοῦ     Θεοῦ  , τὴν     ζωὴν  οὐκ  ἔχει  .
- |   -      of God   -      life  not  has
- |  Art-GMS N-GMS   Art-AFS N-AFS Adv  V-PIA-3S
+I John 5:12 (Interlinear)
+
+───────────────────────────────────────────────────────────────
+Strongs Code  Transliteration  Greek   Translation   Grammar
+───────────────────────────────────────────────────────────────
+G3588         ho               ὁ       the [one]    Art-NMS
+G2192         echōn            ἔχων    having       V-PPA-NMS
+G3588         ton              τὸν     the          Art-AMS
+G5207         Huion            Υἱὸν ,  Son          N-AMS
+G2192         echei            ἔχει    has          V-PIA-3S
+G3588         tēn              τὴν     -            Art-AFS
+G2222         zōēn             ζωήν :  life         N-AFS
+G3588         ho               ὁ       the [one]    Art-NMS
+G3361         mē               μὴ      not          Adv
+G2192         echōn            ἔχων    having       V-PPA-NMS
+G3588         ton              τὸν     the          Art-AMS
+G5207         Huion            Υἱὸν    Son          N-AMS
+G3588         tou              τοῦ     -            Art-GMS
+G2316         Theou            Θεοῦ ,  of God       N-GMS
+G3588         tēn              τὴν     -            Art-AFS
+G2222         zōēn             ζωὴν    life         N-AFS
+G3756         ouk              οὐκ     not          Adv
+G2192         echei            ἔχει .  has          V-PIA-3S
+───────────────────────────────────────────────────────────────
 
 Being born of the Spirit unpredictable:
 
@@ -136664,41 +136776,45 @@ Jesus' gospel:
   and the ruler of the kings of the earth To the [One] loving us and releasing us from the sins of us through the
   blood of Him (Interlinear - biblehub.com)
 
- | 2532 575  2424  5547      3588    3144
- | kai  apo  Iēsou Christou  ho      martys
- | καὶ  ἀπὸ  Ἰησοῦ Χριστοῦ , ὁ       μάρτυς
- | and  from Jesus Christ    the     witness
- | Conj Prep N-GMS N-GMS     Art-NMS N-NMS
- |
- | 3588    4103      3588    4416       3588    3498
- | ho      pistos    ho      prōtotokos tōn     nekrōn
- | ὁ       πιστός  , ὁ       πρωτότοκος τῶν     νεκρῶν
- |   -      faithful  the     firstborn  of the  dead
- |  Art-NMS Adj-NMS   Art-NMS Adj-NMS    Art-GMP Adj-GMP
- | 
- |  2532 3588    758    3588    935      3588
- |  kai  ho      archōn tōn     basileōn tēs
- |  καὶ  ὁ       ἄρχων  τῶν     βασιλέων τῆς
- |  and  the     ruler  of the  kings    of the
- |  Conj Art-NMS N-NMS  Art-GMP N-GMP    Art-GFS
- | 
- |  1093   3588         25        1473     2532
- |  gēs    Tō           agapōnti  hēmas    kai
- |  γῆς  . Τῷ           ἀγαπῶντι  ἡμᾶς     καὶ
- |  earth  To the [One] loving    us       and
- |  N-GFS  Art-DMS      V-PPA-DMS PPro-A1P Conj
- | 
- |  3089      1473     1537 3588    266
- |  lysanti   hēmas    ek   tōn     hamartiōn
- |  λύσαντι   ἡμᾶς     ἐκ   τῶν     ἁμαρτιῶν
- |  releasing us       from the     sins
- |  V-APA-DMS PPro-A1P Prep Art-GFP N-GFP
- | 
- |  1473     1722    3588    129     846
- |  hēmōn    en      tō      haimati autou
- |  ἡμῶν     ἐν      τῷ      αἵματι  αὐτοῦ   —
- |  of us    through the     blood   of Him
- |  PPro-G1P Prep    Art-DNS N-DNS   PPro-GM3S
+Revelation of John 1:5 (Interlinear)
+
+────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration    Greek     Translation    Grammar
+────────────────────────────────────────────────────────────────────
+G2532         kai              καὶ         and           Conj
+G575          apo              ἀπὸ         from          Prep
+G2424         Iēsou            Ἰησοῦ       Jesus         N-GMS
+G5547         Christou         Χριστοῦ ,   Christ        N-GMS
+G3588         ho               ὁ           the           Art-NMS
+G3144         martys           μάρτυς      witness       N-NMS
+G3588         ho               ὁ           -             Art-NMS
+G4103         pistos           πιστός ,    faithful      Adj-NMS
+G3588         ho               ὁ           the           Art-NMS
+G4416         prōtotokos       πρωτότοκος  firstborn     Adj-NMS
+G3588         tōn              τῶν         of the        Art-GMP
+G3498         nekrōn           νεκρῶν .    dead          Adj-GMP
+G2532         kai              καὶ         and           Conj
+G3588         ho               ὁ           the           Art-NMS
+G758          archōn           ἄρχων       ruler         N-NMS
+G3588         tōn              τῶν         of the        Art-GMP
+G935          basileōn         βασιλέων    kings         N-GMP
+G3588         tēs              τῆς         of the        Art-GFS
+G1093         gēs              γῆς .       earth         N-GFS
+G3588         Tō               Τῷ          to the [One]  Art-DMS
+G25           agapōnti         ἀγαπῶντι    loving        V-PPA-DMS
+G1473         hēmas            ἡμᾶς ,      us            PPro-A1P
+G2532         kai              καὶ         and           Conj
+G3089         lysanti          λύσαντι     releasing     V-APA-DMS
+G1473         hēmas            ἡμᾶς        us            PPro-A1P
+G1537         ek               ἐκ          from          Prep
+G3588         tōn              τῶν         the           Art-GFP
+G266          hamartiōn        ἁμαρτιῶν    sins          N-GFP
+G1473         hēmōn            ἡμῶν ,      of us         PPro-G1P
+G1722         en               ἐν          through       Prep
+G3588         tō               τῷ          the           Art-DNS
+G129          haimati          αἵματι      blood         N-DNS
+G846          autou            αὐτοῦ ,     of him        PPro-GM3S
+────────────────────────────────────────────────────────────────────
 
   I Peter 2:9 - But you are a chosen race, a royal priesthood, a holy nation, a people for his own possession,
   that you may proclaim the excellencies of him who called you out of darkness into his marvelous light. (ESV)
@@ -136707,41 +136823,37 @@ Jesus' gospel:
   possession so that the excellencies you may proclaim of the [One] out of darkness you having called to the
   marvelous of Him light (Interlinear - biblehub.com)
 
- | 4771     1161    1085         1588       934
- | Hymeis   de      genos        eklekton   basileion
- | Ὑμεῖς    δὲ      γένος        ἐκλεκτόν , βασίλειον
- | You      however [are] a race chosen     a royal
- | PPro-N2P Conj    N-NNS        Adj-NNS    Adj-NNS
- |
- | 2406         1484     40       2992     1519
- | hierateuma   ethnos   hagion   laos     eis
- | ἱεράτευμα  , ἔθνος    ἅγιον  , λαὸς     εἰς
- |  priesthood   a nation holy     a people for [His]
- |  N-NNS        N-NNS    Adj-NNS  N-NMS    Prep
- | 
- |  4047          3704    3588     703
- |  peripoiēsin   hopōs   tas      aretas
- |  περιποίησιν , ὅπως    τὰς      ἀρετὰς
- |  possession    so that the      excellencies
- |  N-AFS         Conj    Art-AFP  N-AFP
- | 
- |  1804             3588         1537   4655
- |  exangeilēte      tou          ek     skotous
- |  ἐξαγγείλητε      τοῦ          ἐκ     σκότους
- |  you may proclaim of the [One] out of darkness
- |  V-ASA-2P         Art-GMS      Prep   N-GNS
- | 
- |  4771     2564          1519 3588    2298
- |  hymas    kalesantos    eis  to      thaumaston
- |  ὑμᾶς     καλέσαντος  , εἰς  τὸ      θαυμαστὸν
- |  you      having called to   the     marvelous
- |  PPro-A2P V-APA-GMS     Prep Art-ANS Adj-ANS
- | 
- |  846       5457
- |  autou     phōs
- |  αὐτοῦ     φῶς  ,
- |  of Him    light
- |  PPro-GM3S N-ANS
+I Peter 2:9 (Interlinear)
+
+─────────────────────────────────────────────────────────────────────────────
+Strongs Code  Transliteration      Greek         Translation       Grammar
+─────────────────────────────────────────────────────────────────────────────
+G4771         hymeis           ὑμεῖς          you                 PPro-N2P
+G1161         de               δὲ             however             Conj
+G1085         genos            γένος          [are] a race        N-NNS
+G1588         eklekton         ἐκλεκτόν ,     chosen              Adj-NNS
+G934          basileion        βασίλειον      a royal             Adj-NNS
+G2406         hierateuma       ἱεράτευμα ,    priesthood          N-NNS
+G1484         ethnos           ἔθνος          a nation            N-NNS
+G40           hagion           ἅγιον ,        holy                Adj-NNS
+G2992         laos             λαὸς           a people            N-NMS
+G1519         eis              εἰς            for [His]           Prep
+G4047         peripoiēsin      περιποίησιν ,  possession          N-AFS
+G3704         hopōs            ὅπως           that                Conj
+G3588         tas              τὰς            the                 Art-AFP
+G703          aretas           ἀρετὰς         excellencies        N-AFP
+G1804         exangeilēte      ἐξαγγείλητε ,  you might proclaim  V-ASA-2P
+G3588         tou              τοῦ            of the [One]        Art-GMS
+G1537         ek               ἐκ             out of              Prep
+G4655         skotous          σκότους        darkness            N-GNS
+G4771         hymas            ὑμᾶς           you                 PPro-A2P
+G2564         kalesantos       καλέσαντος ,   having called       V-APA-GMS
+G1519         eis              εἰς            to                  Prep
+G3588         to               τὸ             the                 Art-ANS
+G2298         thaumaston       θαυμαστὸν      marvelous           Adj-ANS
+G846          autou            αὐτοῦ          of him              PPro-GM3S
+G5457         phōs             φῶς ;          light               N-ANS
+─────────────────────────────────────────────────────────────────────────────
 
 youtube.com: Pope Leo XIV {@EWTNcatholictv}
 A bishop is not supposed to be a little prince sitting in his kingdom, but rather called authentically to be
@@ -146740,11 +146852,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-23 Mon 10:37
+Date: 2026-11-23 Mon 13:31
 
 Author: Shane Mulligan
 
-Created: 2026-11-23 Mon 11:09
+Created: 2026-11-23 Mon 13:36
 
 Validate
 
