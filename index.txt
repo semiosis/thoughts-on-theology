@@ -5900,6 +5900,14 @@ Christ must have love for the truth:
   am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
   will never see death. (ESV)
 
+Love for the truth saves:
+
+  John 14:22-23 - Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not
+  to the world? Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we
+  will come to him and make our home with him.
+
+  John 8:51 - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+
 If someone believes that Jesus Christ is God (even God the Son) then that person must love their brother in order
 to have a genuine faith in Jesus Christ:
 
@@ -104558,16 +104566,22 @@ that it shows that Jesus Christ the Son of God is "sent" by Father God:
 
 I have an analogy way of thinking of this unity and oneness through analogy
 
-  ,#+BEGIN[SRC] text -n :async :results verbatim code :lang text Imagine an infinite matrix of ones:
+  Imagine an infinite matrix of ones:
 
-  1 0 0 0 0 … 0 1 0 0 0 0 0 1 0 0 0 0 0 1 0 0 0 0 0 1 …
+  ,#+BEGIN[SRC] text -n :async :results verbatim code :lang text 1 0 0 0 0 …∞ 0 1 0 0 0 0 0 1 0 0 0 0 0 1 0 0 0 0
+  0 1 …∞ ,#+END[SRC]
 
   And then get rid of the first row and column:
 
-  1 0 0 0 … 0 1 0 0 0 0 1 0 0 0 0 1 … ,#+END[SRC]
+  ,#+BEGIN[SRC] text -n :async :results verbatim code :lang text 1 0 0 0 …∞ 0 1 0 0 0 0 1 0 0 0 0 1 …∞ ,#+END[SRC]
 
   Notice how the second matrix fits within the first one. The second matrix is in unity and of the same
-  "substance" as the first matrix and has the same character.
+  "substance" as the first matrix and has the same character. This is just an analogy to convey the truth that:
+
+    • Jesus Christ the Son of God is the image of God.
+    • Jesus Christ the Son of God reveals His father.
+    • Jesus Christ the son of God is the radiance of Father God's glory and the exact representation of His nature
+    • without the Son of God there is no God.
 
 Jesus is in the "bosom" of the Father, and is the "image of God". When a person sees the Son of God, they see
 Father God, but the Son of God is not Father God. But they are both God in unity. Without the Son of God there is
@@ -104579,6 +104593,19 @@ no God.
 
   John 14:9 - Jesus said to him, Have I been with you so long, and you still do not know me, Philip? Whoever has
   seen me has seen the Father. How can you say, Show us the Father? (ESV)
+
+  Hebrews 1:3 - And He is the radiance of His glory and the exact representation of His nature (G5287 hupostasis),
+  and upholds all things by the word of His power. When He had made purification of sins, He sat down at the right
+  hand of the Majesty on high,
+
+Also, it's oneness in love and in truth. God is love and the truth and real love loves the truth and hates evil.
+And real faith in the truth loves the truth.
+
+  John 14:22-23 - Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not
+  to the world? Jesus answered him, If anyone loves me, he will keep my word, and my Father will love him, and we
+  will come to him and make our home with him.
+
+  John 8:51 - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
 
 38.6. The peacemakers shall be called sons of God
 
@@ -146957,11 +146984,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-24 Tue 09:24
+Date: 2026-11-24 Tue 14:49
 
 Author: Shane Mulligan
 
-Created: 2026-11-24 Tue 09:28
+Created: 2026-11-24 Tue 14:54
 
 Validate
 

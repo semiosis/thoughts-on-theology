@@ -2953,6 +2953,12 @@ If God is a person's father then they would love Jesus Christ, and God is the fa
 
 > **[John 8:34-35,36,42,51](https://www.biblegateway.com/passage/?search=John%208%3A34-35%2C36%2C42%2C51&version=ESV)** - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
 
+Love for the truth saves:
+
+> **[John 14:22-23](https://www.biblegateway.com/passage/?search=John%2014%3A22-23&version=ESV)** - Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not to the world? Jesus answered him, If anyone loves me, he will keep my word, and <ins>my Father will love him, and we will come to him and make our home with him.</ins>
+
+> **[John 8:51](https://www.biblegateway.com/passage/?search=John%208%3A51&version=ESV)** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
+
 If someone believes that Jesus Christ is God (even God the Son) then that person must love their brother in order to have a genuine faith in Jesus Christ:
 
 > **[I John 4:8,19-21](https://www.biblegateway.com/passage/?search=1%20John%204%3A8%2C19-21&version=ESV)** - Anyone who does not love does not know God, because God is love. We love because he first loved us. If anyone says, I love God, and hates his brother, he is a liar; for he who does not love his brother whom he has seen cannot love God whom he has not seen. And this commandment we have from him: whoever loves God must also love his brother. (ESV)
@@ -23772,7 +23778,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org4b8432b) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org08e4d6e) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -30445,7 +30451,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orge2a3b79).
+I didn't know but it turned out to be the last day of my [sentence](#orgef26353).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -57396,7 +57402,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org26a94e2)
+See: [33.4.1](#org8359c38)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -70894,27 +70900,35 @@ The "main" point of the "greater than"-ness of Father God as compared to Jesus C
 
 > **[John 13:12-16](https://www.biblegateway.com/passage/?search=John%2013%3A12-16&version=ESV)** - When he had washed their feet and put on his outer garments and resumed his place, he said to them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am. If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have given you an example, that you also should do just as I have done to you. Truly, truly, I say to you, a servant is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
 
--   **I have an analogy way of thinking of this unity and oneness through analogy:** > ,#+BEGIN<sub>SRC</sub> text -n :async :results verbatim code :lang text
-    >   Imagine an infinite matrix of ones:
+-   **I have an analogy way of thinking of this unity and oneness through analogy:** > Imagine an infinite matrix of ones:
     > 
-    > 1 0 0 0 0 &#x2026;
-    > 0 1 0 0 0
-    > 0 0 1 0 0
-    > 0 0 0 1 0
-    > 0 0 0 0 1
-    > &#x2026;
+    > ,#+BEGIN<sub>SRC</sub> text -n :async :results verbatim code :lang text
+    >   1 0 0 0 0 &#x2026;∞
+    >   0 1 0 0 0
+    >   0 0 1 0 0
+    >   0 0 0 1 0
+    >   0 0 0 0 1
+    >   &#x2026;∞
+    > ,#+END<sub>SRC</sub>
     > 
     > And then get rid of the first row and column:
     > 
-    >   1 0 0 0 &#x2026;
+    > ,#+BEGIN<sub>SRC</sub> text -n :async :results verbatim code :lang text
+    >   1 0 0 0 &#x2026;∞
     >   0 1 0 0
     >   0 0 1 0
     >   0 0 0 1
-    >   &#x2026;
+    >   &#x2026;∞
     > ,#+END<sub>SRC</sub>
     > 
     > Notice how the second matrix fits within the first one.
     > The second matrix is in unity and of the same "substance" as the first matrix and has the same character.
+    > This is **just** an analogy to convey the truth that:
+    > 
+    > -   Jesus Christ the Son of God is the image of God.
+    > -   Jesus Christ the Son of God reveals His father.
+    > -   Jesus Christ the son of God is the radiance of Father God's glory and the exact representation of His nature
+    > -   without the Son of God there is no God.
     
     Jesus is in the "bosom" of the Father, and is the "image of God". When a person sees the Son of God, they see Father God, but the Son of God is not Father God. But they are both God in unity. Without the Son of God there is no God.
     
@@ -70923,6 +70937,15 @@ The "main" point of the "greater than"-ness of Father God as compared to Jesus C
     > **[Colossians 1:15](https://www.biblegateway.com/passage/?search=Colossians%201%3A15&version=ESV)** - He is the image of the invisible God, the firstborn of all creation. (ESV)
     
     > **[John 14:9](https://www.biblegateway.com/passage/?search=John%2014%3A9&version=ESV)** - Jesus said to him, Have I been with you so long, and you still do not know me, Philip? Whoever has seen me has seen the Father. How can you say, Show us the Father? (ESV)
+    
+    > **[Hebrews 1:3](https://www.biblegateway.com/passage/?search=Hebrews%201%3A3&version=ESV)** - And He is the radiance of His glory and the exact representation of His nature [(G5287 hupostasis)](G5287), and upholds all things by the word of His power. When He had made purification of sins, He sat down at the right hand of the Majesty on high,
+
+Also, it's oneness in love and in truth. God is love and the truth and real love loves the truth and hates evil.
+And real faith in the truth loves the truth.
+
+> **[John 14:22-23](https://www.biblegateway.com/passage/?search=John%2014%3A22-23&version=ESV)** - Judas (not Iscariot) said to him, Lord, how is it that you will manifest yourself to us, and not to the world? Jesus answered him, If anyone loves me, he will keep my word, and <ins>my Father will love him, and we will come to him and make our home with him.</ins>
+
+> **[John 8:51](https://www.biblegateway.com/passage/?search=John%208%3A51&version=ESV)** - Truly, truly, I say to you, if anyone keeps my word, he will never see death. (ESV)
 
 
 ## The peacemakers shall be called sons of God
@@ -76484,7 +76507,7 @@ Even our bodies will be imperishable:
 
 ### Jesus is incorruptible
 
-> **[Hebrews 1:3](https://www.biblegateway.com/passage/?search=Hebrews%201%3A3&version=ESV)** - And He is the radiance of His glory and the exact representation of His nature (G5287 hupostasis), and upholds all things by the word of His power. When He had made purification of sins, He sat down at the right hand of the Majesty on high,
+> **[Hebrews 1:3](https://www.biblegateway.com/passage/?search=Hebrews%201%3A3&version=ESV)** - And He is the radiance of His glory and the exact representation of His nature [(G5287 hupostasis)](G5287), and upholds all things by the word of His power. When He had made purification of sins, He sat down at the right hand of the Majesty on high,
 
 > **[Matthew 24:35](https://www.biblegateway.com/passage/?search=Matthew%2024%3A35&version=ESV)** - Heaven and earth will pass away, but my words will not pass away.
 
@@ -80741,7 +80764,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org26a94e2)
+See: [33.4.1](#org8359c38)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -83526,7 +83549,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org18dc193) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org6b039df) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -92927,7 +92950,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org18dc193) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org6b039df) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -94767,7 +94790,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org72784f8)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org38f82b8)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
