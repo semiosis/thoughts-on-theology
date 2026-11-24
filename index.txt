@@ -104566,22 +104566,30 @@ that it shows that Jesus Christ the Son of God is "sent" by Father God:
 
 I have an analogy way of thinking of this unity and oneness through analogy
 
-  Imagine an infinite matrix of ones:
+Imagine an infinite matrix of ones:
 
-  ,#+BEGIN[SRC] text -n :async :results verbatim code :lang text 1 0 0 0 0 …∞ 0 1 0 0 0 0 0 1 0 0 0 0 0 1 0 0 0 0
-  0 1 …∞ ,#+END[SRC]
+ | 1 0 0 0 0 ...∞
+ | 0 1 0 0 0
+ | 0 0 1 0 0
+ | 0 0 0 1 0
+ | 0 0 0 0 1
+ | ...∞
 
-  And then get rid of the first row and column:
+And then get rid of the first row and column:
 
-  ,#+BEGIN[SRC] text -n :async :results verbatim code :lang text 1 0 0 0 …∞ 0 1 0 0 0 0 1 0 0 0 0 1 …∞ ,#+END[SRC]
+ | 1 0 0 0 ...∞
+ | 0 1 0 0
+ | 0 0 1 0
+ | 0 0 0 1
+ | ...∞
 
-  Notice how the second matrix fits within the first one. The second matrix is in unity and of the same
-  "substance" as the first matrix and has the same character. This is just an analogy to convey the truth that:
+Notice how the second matrix fits within the first one. The second matrix is in unity and of the same "substance"
+as the first matrix and has the same character. This is just an analogy to convey the truth that:
 
-    • Jesus Christ the Son of God is the image of God.
-    • Jesus Christ the Son of God reveals His father.
-    • Jesus Christ the son of God is the radiance of Father God's glory and the exact representation of His nature
-    • without the Son of God there is no God.
+• Jesus Christ the Son of God is the image of God,
+• Jesus Christ the Son of God reveals His father,
+• Jesus Christ the Son of God is the radiance of Father God's glory and the exact representation of His nature,
+• without the Son of God there is no God.
 
 Jesus is in the "bosom" of the Father, and is the "image of God". When a person sees the Son of God, they see
 Father God, but the Son of God is not Father God. But they are both God in unity. Without the Son of God there is
@@ -146988,7 +146996,7 @@ Date: 2026-11-24 Tue 14:49
 
 Author: Shane Mulligan
 
-Created: 2026-11-24 Tue 14:54
+Created: 2026-11-24 Tue 15:29
 
 Validate
 
