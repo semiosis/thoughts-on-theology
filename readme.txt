@@ -148,7 +148,7 @@ are evil and sinful (Romans 14:23). Works without obedience are evil and slothfu
 2:26) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say
 that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With
 what faith are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing
-the deeds? (a) God working as one obediently abstains from woroking? (Romans 4:4-6), or b) oneself working deeds
+the deeds? (a) God working as one obediently abstains from working? (Romans 4:4-6), or b) oneself working deeds
 that are being wrought in God? (John 3:21)" Faith in lies is like doubting the truth (II Thessalonians 2:9-12,
 Jeremiah 29:31, Jeremiah 28:15, Isaiah 42:17, Habakkuk 2:18, Luke 8:12, John 8:43-47). Sin doesn't necessitate
 external action in order to be committed because sin can be committed in the heart (Matthew 5:28), which is
@@ -85148,7 +85148,7 @@ As a body without spirit is inanimate, faith without deeds is inanimate, as in "
 because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say that it
 is practically impossible to not have deeds (whether good or evil), and so the real question is, "With what faith
 are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing the deeds?
-(a) God working as one obediently abstains from woroking? (Romans 4:4-6), or b) oneself working deeds that are
+(a) God working as one obediently abstains from working? (Romans 4:4-6), or b) oneself working deeds that are
 being wrought in God? (John 3:21)" Faith in lies is like doubting the truth (II Thessalonians 2:9-12, Jeremiah
 29:31, Jeremiah 28:15, Isaiah 42:17, Habakkuk 2:18, Luke 8:12, John 8:43-47).
 
@@ -104566,7 +104566,7 @@ that it shows that Jesus Christ the Son of God is "sent" by Father God:
 
 I have an analogy way of thinking of this unity and oneness through analogy
 
-Imagine an infinite matrix of ones:
+Imagine an infinite identity matrix which has a diagonal of ones and the rest zeros. Call this matrix G:
 
  | 1 0 0 0 0 ...∞
  | 0 1 0 0 0
@@ -104575,7 +104575,7 @@ Imagine an infinite matrix of ones:
  | 0 0 0 0 1
  | ...∞
 
-And then get rid of the first row and column:
+And then get rid of the first row and column. Call this matrix J:
 
  | 1 0 0 0 ...∞
  | 0 1 0 0
@@ -104583,8 +104583,8 @@ And then get rid of the first row and column:
  | 0 0 0 1
  | ...∞
 
-Notice how the second matrix fits within the first one. The second matrix is in unity and of the same "substance"
-as the first matrix and has the same character. This is just an analogy to convey the truth that:
+Notice how the second matrix (J) fits within the first one (G). The second matrix is in unity and of the same
+"substance" as the first matrix and has the same character. This is just an analogy to convey the truth that:
 
 • Jesus Christ the Son of God is the image of God,
 • Jesus Christ the Son of God reveals His father,
@@ -146992,11 +146992,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-24 Tue 14:49
+Date: 2026-11-24 Tue 15:50
 
 Author: Shane Mulligan
 
-Created: 2026-11-24 Tue 15:29
+Created: 2026-11-24 Tue 15:56
 
 Validate
 

@@ -1,4 +1,4 @@
-This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  24 NOV 2026 15:44
+This is XeTeX, Version 3.14159265-2.6-0.99999 (TeX Live 2019/dev/Debian) (preloaded format=xelatex 2023.12.17)  24 NOV 2026 16:11
 entering extended mode
  restricted \write18 enabled.
  %&-line parsing enabled.
@@ -2826,7 +2826,7 @@ Overfull \hbox (12.76611pt too wide) in paragraph at lines 31313--31321
 
 [723] [724] [725]
 
-LaTeX Warning: Hyper reference `sec:orge6e5a72' on page 726 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgc527e03' on page 726 undefined on input 
 line 31707.
 
 [726] [727] [728] [729] [730] [731] [732]
@@ -3795,7 +3795,7 @@ Overfull \hbox (92.7463pt too wide) in paragraph at lines 39764--39767
 
 [907]
 
-LaTeX Warning: Hyper reference `sec:org131b802' on page 908 undefined on input 
+LaTeX Warning: Hyper reference `sec:orgc0ca330' on page 908 undefined on input 
 line 39831.
 
 [908]
@@ -7340,7 +7340,7 @@ Missing character: There is no ο in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no υ in font [lmroman10-regular]:mapping=tex-text;!
  [1626] [1627]
 
-LaTeX Warning: Reference `sec:org18bebc4' on page 1628 undefined on input line 
+LaTeX Warning: Reference `sec:org6db3aa0' on page 1628 undefined on input line 
 75423.
 
 [1628] [1629]
@@ -8659,7 +8659,12 @@ Underfull \hbox (badness 1303) in paragraph at lines 91059--91059
  []
 
 [1942] [1943] [1944] [1945] [1946] [1947] [1948] [1949] [1950] [1951] [1952]
-[1953] [1954] [1955] [1956] [1957] [1958] [1959]
+[1953] [1954]
+Overfull \hbox (0.56927pt too wide) in paragraph at lines 91730--91731
+[]\TU/lmr/m/n/10.95 Imagine an infinite iden-
+ []
+
+[1955] [1956] [1957] [1958] [1959]
 Missing character: There is no ζ in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no ή in font [lmroman10-regular]:mapping=tex-text;!
 Missing character: There is no σ in font [lmroman10-regular]:mapping=tex-text;!
@@ -9319,7 +9324,7 @@ Overfull \hbox (3.58658pt too wide) in paragraph at lines 105336--105337
 
 [2239] [2240]
 
-LaTeX Warning: Reference `sec:org18bebc4' on page 2241 undefined on input line 
+LaTeX Warning: Reference `sec:org6db3aa0' on page 2241 undefined on input line 
 105460.
 
 [2241] [2242] [2243]
@@ -9545,7 +9550,7 @@ Overfull \hbox (111.21167pt too wide) in paragraph at lines 109008--109011
 
 [2311] [2312] [2313] [2314] [2315]
 
-LaTeX Warning: Hyper reference `sec:orgcb5201f' on page 2316 undefined on input
+LaTeX Warning: Hyper reference `sec:org59f79f3' on page 2316 undefined on input
  line 109302.
 
 
@@ -10538,7 +10543,7 @@ Overfull \hbox (20.4654pt too wide) in paragraph at lines 120656--120657
 
 [2534] [2535] [2536] [2537] [2538] [2539] [2540]
 
-LaTeX Warning: Hyper reference `sec:orgcb5201f' on page 2541 undefined on input
+LaTeX Warning: Hyper reference `sec:org59f79f3' on page 2541 undefined on input
  line 120873.
 
 [2541] [2542] [2543]
@@ -10883,7 +10888,7 @@ Overfull \hbox (10.50821pt too wide) in paragraph at lines 122592--122599
 
 [2579] [2580]
 
-LaTeX Warning: Hyper reference `sec:org9a2f272' on page 2581 undefined on input
+LaTeX Warning: Hyper reference `sec:org7bd19c9' on page 2581 undefined on input
  line 122683.
 
 
@@ -11169,7 +11174,7 @@ Package atveryend Info: Empty hook `AtVeryVeryEnd' on input line 129661.
 Here is how much of TeX's memory you used:
  11414 strings out of 494868
  161731 string characters out of 6175714
- 275200 words of memory out of 5000000
+ 274200 words of memory out of 5000000
  15240 multiletter control sequences out of 15000+600000
  10427 words of font info for 56 fonts, out of 8000000 for 9000
  14 hyphenation exceptions out of 8191

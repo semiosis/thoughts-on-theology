@@ -84,7 +84,7 @@ Faith without love for the truth is evil (**[Luke 6:45](https://www.biblegateway
 Love for good produces good and love for evil produces evil (**[Luke 6:45](https://www.biblegateway.com/passage/?search=Luke%206%3A45&version=ESV)**).
 Works without faith are evil and sinful (**[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**).
 Works without obedience are evil and slothful (**[Matthew 25:24-30](https://www.biblegateway.com/passage/?search=Matthew%2025%3A24-30&version=ESV)**, **[Titus 1:9-16](https://www.biblegateway.com/passage/?search=Titus%201%3A9-16&version=ESV)**).
-As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (**[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)**) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With what faith are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing the deeds? (a) God working as one obediently abstains from woroking? (**[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)**), or b) oneself working deeds that are being wrought in God? (**[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)**)" Faith in lies is like doubting the truth (**[II Thessalonians 2:9-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-12&version=ESV)**, **[Jeremiah 29:31](https://www.biblegateway.com/passage/?search=Jeremiah%2029%3A31&version=ESV)**, **[Jeremiah 28:15](https://www.biblegateway.com/passage/?search=Jeremiah%2028%3A15&version=ESV)**, **[Isaiah 42:17](https://www.biblegateway.com/passage/?search=Isaiah%2042%3A17&version=ESV)**, **[Habakkuk 2:18](https://www.biblegateway.com/passage/?search=Habakkuk%202%3A18&version=ESV)**, **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)**, **[John 8:43-47](https://www.biblegateway.com/passage/?search=John%208%3A43-47&version=ESV)**).
+As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (**[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)**) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With what faith are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing the deeds? (a) God working as one obediently abstains from working? (**[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)**), or b) oneself working deeds that are being wrought in God? (**[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)**)" Faith in lies is like doubting the truth (**[II Thessalonians 2:9-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-12&version=ESV)**, **[Jeremiah 29:31](https://www.biblegateway.com/passage/?search=Jeremiah%2029%3A31&version=ESV)**, **[Jeremiah 28:15](https://www.biblegateway.com/passage/?search=Jeremiah%2028%3A15&version=ESV)**, **[Isaiah 42:17](https://www.biblegateway.com/passage/?search=Isaiah%2042%3A17&version=ESV)**, **[Habakkuk 2:18](https://www.biblegateway.com/passage/?search=Habakkuk%202%3A18&version=ESV)**, **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)**, **[John 8:43-47](https://www.biblegateway.com/passage/?search=John%208%3A43-47&version=ESV)**).
 Sin doesn't necessitate external action in order to be committed because sin can be committed in the heart (**[Matthew 5:28](https://www.biblegateway.com/passage/?search=Matthew%205%3A28&version=ESV)**), which is precisely why we are in need of the atoning work of Jesus Christ (**[Hebrews 10:4](https://www.biblegateway.com/passage/?search=Hebrews%2010%3A4&version=ESV)**) to be received by faith in Jesus Christ (**[Romans 3:23-26](https://www.biblegateway.com/passage/?search=Romans%203%3A23-26&version=ESV)**).
 A person is blessed if they have faith accompanied by deeds (**[James 1:21-25](https://www.biblegateway.com/passage/?search=James%201%3A21-25&version=ESV)**).
 Speaking the truth, even regarding sin is important (**[Ephesians 4:20-32](https://www.biblegateway.com/passage/?search=Ephesians%204%3A20-32&version=ESV)**).
@@ -23778,7 +23778,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org38c7f51) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org31404e4) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -30451,7 +30451,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#org02eeb27).
+I didn't know but it turned out to be the last day of my [sentence](#org1d924a1).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -56120,7 +56120,7 @@ Yet even resting in faith, God is working, because the person still has faith:
 
 > **[John 6:28-29](https://www.biblegateway.com/passage/?search=John%206%3A28-29&version=ESV)** - Then they said to him, <ins>What must we do, to be doing the works of God?</ins> Jesus answered them, This is the work of God, that **you believe ([G4100 pisteuo](https://www.blueletterbible.org/lexicon/g4100/kjv/tr/0-1/)) in him whom he has sent.** (ESV)
 
-As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (**[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)**) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With what faith are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing the deeds? (a) God working as one obediently abstains from woroking? (**[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)**), or b) oneself working deeds that are being wrought in God? (**[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)**)" Faith in lies is like doubting the truth (**[II Thessalonians 2:9-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-12&version=ESV)**, **[Jeremiah 29:31](https://www.biblegateway.com/passage/?search=Jeremiah%2029%3A31&version=ESV)**, **[Jeremiah 28:15](https://www.biblegateway.com/passage/?search=Jeremiah%2028%3A15&version=ESV)**, **[Isaiah 42:17](https://www.biblegateway.com/passage/?search=Isaiah%2042%3A17&version=ESV)**, **[Habakkuk 2:18](https://www.biblegateway.com/passage/?search=Habakkuk%202%3A18&version=ESV)**, **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)**, **[John 8:43-47](https://www.biblegateway.com/passage/?search=John%208%3A43-47&version=ESV)**).
+As a body without spirit is inanimate, faith without deeds is inanimate, as in "non-impactful" (**[James 2:26](https://www.biblegateway.com/passage/?search=James%202%3A26&version=ESV)**) because faith is the heart attitudes but the deeds are actions done with that faith, though I'd still say that it is practically impossible to not have deeds (whether good or evil), and so the real question is, "With what faith are one's deeds being done? Faith in the truth or faith in lies?" And another question is "Who is doing the deeds? (a) God working as one obediently abstains from working? (**[Romans 4:4-6](https://www.biblegateway.com/passage/?search=Romans%204%3A4-6&version=ESV)**), or b) oneself working deeds that are being wrought in God? (**[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)**)" Faith in lies is like doubting the truth (**[II Thessalonians 2:9-12](https://www.biblegateway.com/passage/?search=2%20Thessalonians%202%3A9-12&version=ESV)**, **[Jeremiah 29:31](https://www.biblegateway.com/passage/?search=Jeremiah%2029%3A31&version=ESV)**, **[Jeremiah 28:15](https://www.biblegateway.com/passage/?search=Jeremiah%2028%3A15&version=ESV)**, **[Isaiah 42:17](https://www.biblegateway.com/passage/?search=Isaiah%2042%3A17&version=ESV)**, **[Habakkuk 2:18](https://www.biblegateway.com/passage/?search=Habakkuk%202%3A18&version=ESV)**, **[Luke 8:12](https://www.biblegateway.com/passage/?search=Luke%208%3A12&version=ESV)**, **[John 8:43-47](https://www.biblegateway.com/passage/?search=John%208%3A43-47&version=ESV)**).
 
 It **is** possible to have faith without working:
 
@@ -57402,7 +57402,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#orgf700fc5)
+See: [33.4.1](#org9fd93d2)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -70900,7 +70900,7 @@ The "main" point of the "greater than"-ness of Father God as compared to Jesus C
 
 > **[John 13:12-16](https://www.biblegateway.com/passage/?search=John%2013%3A12-16&version=ESV)** - When he had washed their feet and put on his outer garments and resumed his place, he said to them, Do you understand what I have done to you? You call me Teacher and Lord, and you are right, for so I am. If I then, your Lord and Teacher, have washed your feet, you also ought to wash one another's feet. For I have given you an example, that you also should do just as I have done to you. Truly, truly, I say to you, a servant is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
 
--   **I have an analogy way of thinking of this unity and oneness through analogy:** Imagine an infinite matrix of ones:
+-   **I have an analogy way of thinking of this unity and oneness through analogy:** Imagine an infinite identity matrix which has a diagonal of ones and the rest zeros. Call this matrix G:
     
         1  1 0 0 0 0 ...∞
         2  0 1 0 0 0
@@ -70909,7 +70909,7 @@ The "main" point of the "greater than"-ness of Father God as compared to Jesus C
         5  0 0 0 0 1
         6  ...∞
     
-    And then get rid of the first row and column:
+    And then get rid of the first row and column. Call this matrix J:
     
         1  1 0 0 0 ...∞
         2  0 1 0 0
@@ -70917,7 +70917,7 @@ The "main" point of the "greater than"-ness of Father God as compared to Jesus C
         4  0 0 0 1
         5  ...∞
     
-    Notice how the second matrix fits within the first one.
+    Notice how the second matrix (J) fits within the first one (G).
     The second matrix is in unity and of the same "substance" as the first matrix and has the same character.
     This is **just** an analogy to convey the truth that:
     
@@ -80760,7 +80760,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#orgf700fc5)
+See: [33.4.1](#org9fd93d2)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -83545,7 +83545,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org592d23f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org19d3fcb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -92946,7 +92946,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org592d23f) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org19d3fcb) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -94786,7 +94786,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orge77cc12)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#orgf08d786)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.
