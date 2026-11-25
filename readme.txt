@@ -388,13 +388,13 @@ are not doing evil.
   fall away from the living God. But exhort one another every day, as long as it is called today, that none of you
   may be hardened by the deceitfulness of sin. (ESV)
 
-Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
-a "here and now" thing for a "here and now" doing of faith (i.e. believing in the present tense) for God to see
-and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as
-regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's
-teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is
-needed first and good resting or good deeds are produced while holding good faith. From faith in Jesus and His
-words we do what He says:
+Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends
+as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the
+present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to
+commend oneself). If we are confessing and believing the same as God as regards Jesus Christ then that is what
+saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus
+Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good
+deeds are produced while holding good faith. From faith in Jesus and His words we do what He says:
 
   Romans 10:3-11 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
   own, they did not submit to God's righteousness. For Christ is the end (G5056 telos) of the law for
@@ -8419,12 +8419,13 @@ kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (
   it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart,
   so that you can do it (H6213 la·‘a·śō·ṯōw: that you may do it). (ESV)
 
-Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
-a "here and now" thing for a "here and now" doing of faith (i.e. believing in the present tense) for God to see
-and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as
-regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's
-teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is
-needed first and good resting or good deeds are produced while holding good faith.
+Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends
+as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the
+present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to
+commend oneself).. If we are confessing and believing the same as God as regards Jesus Christ then that is what
+saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus
+Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good
+deeds are produced while holding good faith.
 
 Out of a loving faith in Jesus and His words a person becomes a "doer of the word".
 
@@ -30099,12 +30100,13 @@ kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (
   it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart,
   so that you can do it (H6213 la·‘a·śō·ṯōw: that you may do it). (ESV)
 
-Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
-a "here and now" thing for a "here and now" doing of faith (i.e. believing in the present tense) for God to see
-and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as
-regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's
-teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is
-needed first and good resting or good deeds are produced while holding good faith.
+Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends
+as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the
+present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to
+commend oneself).. If we are confessing and believing the same as God as regards Jesus Christ then that is what
+saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus
+Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good
+deeds are produced while holding good faith.
 
 Out of a loving faith in Jesus and His words a person becomes a "doer of the word".
 
@@ -85392,13 +85394,13 @@ A person born of God has God working through them doing good works:
   John 14:12 - Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater
   works than these will he do, because I am going to the Father. (ESV)
 
-Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
-a "here and now" thing for a "here and now" doing of faith (i.e. believing in the present tense) for God to see
-and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as
-regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's
-teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is
-needed first and good resting or good deeds are produced while holding good faith. From faith in Jesus and His
-words we do what He says:
+Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends
+as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the
+present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to
+commend oneself). If we are confessing and believing the same as God as regards Jesus Christ then that is what
+saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus
+Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good
+deeds are produced while holding good faith. From faith in Jesus and His words we do what He says:
 
   Romans 10:3-11 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
   own, they did not submit to God's righteousness. For Christ is the end (G5056 telos) of the law for
@@ -147048,7 +147050,7 @@ Date: 2026-11-25 Wed 21:31
 
 Author: Shane Mulligan
 
-Created: 2026-11-25 Wed 21:33
+Created: 2026-11-25 Wed 21:55
 
 Validate
 
