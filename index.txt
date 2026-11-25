@@ -406,6 +406,12 @@ produced while holding good faith. From faith in Jesus and His words we do what 
   the mouth one confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to
   shame. (ESV)
 
+  Deuteronomy 30:11-14 - For this commandment that I command you today is not too hard for you, neither is it far
+  off. It is not in heaven, that you should say, Who will ascend to heaven for us and bring it to us, that we may
+  hear it and do it? Neither is it beyond the sea, that you should say, Who will go over the sea for us and bring
+  it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart,
+  so that you can do it. (ESV)
+
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
 
@@ -8400,6 +8406,12 @@ kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (
 
   Luke 16:15 - And he said to them, You are those who justify yourselves before men, but God knows your hearts.
   For what is exalted among men is an abomination in the sight of God. (ESV)
+
+  Deuteronomy 30:11-14 - For this commandment that I command you today is not too hard for you, neither is it far
+  off. It is not in heaven, that you should say, Who will ascend to heaven for us and bring it to us, that we may
+  hear it and do it? Neither is it beyond the sea, that you should say, Who will go over the sea for us and bring
+  it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart,
+  so that you can do it. (ESV)
 
 If we see others not doing the will of God, then we should in similar fashion to Jesus teach others what to do
 (i.e. what Jesus' instruction is) but not judge them if they do not appear do it after instructing them, but
@@ -30060,6 +30072,12 @@ kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (
 
   Luke 16:15 - And he said to them, You are those who justify yourselves before men, but God knows your hearts.
   For what is exalted among men is an abomination in the sight of God. (ESV)
+
+  Deuteronomy 30:11-14 - For this commandment that I command you today is not too hard for you, neither is it far
+  off. It is not in heaven, that you should say, Who will ascend to heaven for us and bring it to us, that we may
+  hear it and do it? Neither is it beyond the sea, that you should say, Who will go over the sea for us and bring
+  it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart,
+  so that you can do it. (ESV)
 
 If a person is holding faith in Jesus Christ with a real faith, one that loves Jesus with agape love then they
 presently hold eternal life:
@@ -104564,7 +104582,7 @@ that it shows that Jesus Christ the Son of God is "sent" by Father God:
   given you an example, that you also should do just as I have done to you. Truly, truly, I say to you, a servant
   is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
 
-I have an analogy way of thinking of this unity and oneness through analogy
+I have an way of thinking aboutf this unity and oneness through limited analogy
 
 Imagine an infinite identity matrix which has a diagonal of ones and the rest zeros. Call this matrix G:
 
@@ -146992,11 +147010,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-24 Tue 15:50
+Date: 2026-11-25 Wed 19:55
 
 Author: Shane Mulligan
 
-Created: 2026-11-24 Tue 15:56
+Created: 2026-11-25 Wed 19:59
 
 Validate
 
