@@ -389,28 +389,33 @@ are not doing evil.
   may be hardened by the deceitfulness of sin. (ESV)
 
 Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
-a "here and now" thing. If we are confessing and believing the same as God as regards Jesus Christ then that is
-what saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of
-Jesus Christ and His words are so vital to remain in agreement with. The faith is needed first and good deeds are
-produced while holding good faith. From faith in Jesus and His words we do what He says:
+a "here and now" thing for a "here and now" doing of faith (i.e. believing in the present tense) for God to see
+and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as
+regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's
+teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is
+needed first and good resting or good deeds are produced while holding good faith. From faith in Jesus and His
+words we do what He says:
 
   Romans 10:3-11 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
   own, they did not submit to God's righteousness. For Christ is the end (G5056 telos) of the law for
   righteousness to everyone who believes. For Moses writes about the righteousness that is based on the law, that
-  the person who does the commandments shall live by them. But the righteousness based on faith says, Do not say
-  in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the abyss?
-  (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth and in
-  your heart (that is, the word of faith that we proclaim); because, if you confess (G3670 homologēsēs; from
-  homologeó: To confess, to acknowledge, to agree) with your mouth that Jesus is Lord and believe in your heart
-  that God raised him from the dead, you will be saved. For with the heart one believes and is justified, and with
-  the mouth one confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to
-  shame. (ESV)
+  the person who does (G4160 poiēsas; having done / having practiced) the commandments shall live by them. But the
+  righteousness based on faith says, Do not say in your heart, Who will ascend into heaven? (that is, to bring
+  Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead). But what does it
+  say? The word is near you, in your mouth and in your heart (that is, the word of faith that we proclaim);
+  because, if you confess (G3670 homologēsēs; from homologeó: To confess, to acknowledge, to agree) with your
+  mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. For
+  with the heart one believes and is justified, and with the mouth one confesses and is saved. For the Scripture
+  says, Everyone who believes in him will not be put to shame. (ESV)
 
   Deuteronomy 30:11-14 - For this commandment that I command you today is not too hard for you, neither is it far
   off. It is not in heaven, that you should say, Who will ascend to heaven for us and bring it to us, that we may
   hear it and do it? Neither is it beyond the sea, that you should say, Who will go over the sea for us and bring
   it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart,
-  so that you can do it. (ESV)
+  so that you can do it (H6213 la·‘a·śō·ṯōw: that you may do it). (ESV)
+
+  Romans 10:4 - For Christ is the end of the law for righteousness to everyone who believes (G4100 pisteuonti;
+  believing). (ESV)
 
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
@@ -7632,14 +7637,14 @@ commandments:
   Romans 10:3-11 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
   own, they did not submit to God's righteousness. For Christ is the end (G5056 telos) of the law for
   righteousness to everyone who believes. For Moses writes about the righteousness that is based on the law, that
-  the person who does the commandments shall live by them. But the righteousness based on faith says, Do not say
-  in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the abyss?
-  (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth and in
-  your heart (that is, the word of faith that we proclaim); because, if you confess (G3670 homologēsēs; from
-  homologeó: To confess, to acknowledge, to agree) with your mouth that Jesus is Lord and believe in your heart
-  that God raised him from the dead, you will be saved. For with the heart one believes and is justified, and with
-  the mouth one confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to
-  shame. (ESV)
+  the person who does (G4160 poiēsas; having done / having practiced) the commandments shall live by them. But the
+  righteousness based on faith says, Do not say in your heart, Who will ascend into heaven? (that is, to bring
+  Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead). But what does it
+  say? The word is near you, in your mouth and in your heart (that is, the word of faith that we proclaim);
+  because, if you confess (G3670 homologēsēs; from homologeó: To confess, to acknowledge, to agree) with your
+  mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. For
+  with the heart one believes and is justified, and with the mouth one confesses and is saved. For the Scripture
+  says, Everyone who believes in him will not be put to shame. (ESV)
 
   I John 3:23 - And this is his commandment, that we believe in the name of his Son Jesus Christ and love one
   another, just as he has commanded us. (ESV)
@@ -8244,12 +8249,13 @@ for deliverance saying, for example, "Please save me, LORD Jesus Christ, Yahweh,
   law (G3551 nomou), although the Law and the Prophets bear witness to it— but that Israel who pursued a law that
   would lead to righteousness did not succeed in reaching that law. For Christ is the end of the law for
   righteousness to everyone who believes. For Moses writes about the righteousness that is based on the law, that
-  the person who does the commandments shall live by them. But the righteousness based on faith says, Do not say
-  in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the abyss?
-  (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth and in
-  your heart (that is, the word of faith that we proclaim); because, if you confess with your mouth that Jesus is
-  Lord and believe in your heart that God raised him from the dead, you will be saved. For with the heart one
-  believes and is justified, and with the mouth one confesses and is saved. (ESV)
+  the person who does (G4160 poiēsas; having done / having practiced) the commandments shall live by them. But the
+  righteousness based on faith says, Do not say in your heart, Who will ascend into heaven? (that is, to bring
+  Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead). But what does it
+  say? The word is near you, in your mouth and in your heart (that is, the word of faith that we proclaim);
+  because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised him from
+  the dead, you will be saved. For with the heart one believes and is justified, and with the mouth one confesses
+  and is saved. (ESV)
 
   Romans 10:14-21 - But how are they to call on him in whom they have not believed? And how are they to believe in
   him of whom they have never heard? And how are they to hear without someone preaching? And how are they to
@@ -8411,7 +8417,16 @@ kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (
   off. It is not in heaven, that you should say, Who will ascend to heaven for us and bring it to us, that we may
   hear it and do it? Neither is it beyond the sea, that you should say, Who will go over the sea for us and bring
   it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart,
-  so that you can do it. (ESV)
+  so that you can do it (H6213 la·‘a·śō·ṯōw: that you may do it). (ESV)
+
+Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
+a "here and now" thing for a "here and now" doing of faith (i.e. believing in the present tense) for God to see
+and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as
+regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's
+teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is
+needed first and good resting or good deeds are produced while holding good faith.
+
+Out of a loving faith in Jesus and His words a person becomes a "doer of the word".
 
 If we see others not doing the will of God, then we should in similar fashion to Jesus teach others what to do
 (i.e. what Jesus' instruction is) but not judge them if they do not appear do it after instructing them, but
@@ -13317,13 +13332,14 @@ Coming to Jesus doesn't have to take long. You can do it here and now:
   that you do not have the love of God within you. (ESV)
 
   Romans 10:4-11 - For Christ is the end (G5056 telos) of the law for righteousness to everyone who believes. For
-  Moses writes about the righteousness that is based on the law, that the person who does the commandments shall
-  live by them. But the righteousness based on faith says, Do not say in your heart, Who will ascend into heaven?
-  (that is, to bring Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead).
-  But what does it say? The word is near you, in your mouth and in your heart (*that is, the word of faith that we
-  proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised
-  him from the dead, you *will be saved. For with the heart one believes and is justified, and with the mouth one
-  confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to shame. (ESV)
+  Moses writes about the righteousness that is based on the law, that the person who does (G4160 poiēsas; having
+  done / having practiced) the commandments shall live by them. But the righteousness based on faith says, Do not
+  say in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the
+  abyss? (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth
+  and in your heart (*that is, the word of faith that we proclaim); because, if you confess with your mouth that
+  Jesus is Lord and believe in your heart that God raised him from the dead, you *will be saved. For with the
+  heart one believes and is justified, and with the mouth one confesses and is saved. For the Scripture says,
+  Everyone who believes in him will not be put to shame. (ESV)
 
   Acts 10:41-44 - not to all the people but to us who had been chosen by God as witnesses, who ate and drank with
   him after he rose from the dead. And he commanded us to preach to the people and to testify that he is the one
@@ -14980,13 +14996,14 @@ his own authority, empowered by Father God. Jesus lays down His life that He may
   aside, nailing it to the cross. (ESV)
 
   Romans 10:4-11 - For Christ is the end (G5056 telos) of the law for righteousness to everyone who believes. For
-  Moses writes about the righteousness that is based on the law, that the person who does the commandments shall
-  live by them. But the righteousness based on faith says, Do not say in your heart, Who will ascend into heaven?
-  (that is, to bring Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead).
-  But what does it say? The word is near you, in your mouth and in your heart (that is, the word of faith that we
-  proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised
-  him from the dead, you will be saved. For with the heart one believes and is justified, and with the mouth one
-  confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to shame. (ESV)
+  Moses writes about the righteousness that is based on the law, that the person who does (G4160 poiēsas; having
+  done / having practiced) the commandments shall live by them. But the righteousness based on faith says, Do not
+  say in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the
+  abyss? (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth
+  and in your heart (that is, the word of faith that we proclaim); because, if you confess with your mouth that
+  Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. For with the heart
+  one believes and is justified, and with the mouth one confesses and is saved. For the Scripture says, Everyone
+  who believes in him will not be put to shame. (ESV)
 
   Acts 26:8 - Why is it thought incredible by any of you that God raises the dead? (ESV)
 
@@ -16850,13 +16867,14 @@ must "abide" in the "telos" of the law. We're not trying to replace Jesus. We're
 while holding faith in Him:
 
   Romans 10:4-11 - For Christ is the end (G5056 telos) of the law for righteousness to everyone who believes. For
-  Moses writes about the righteousness that is based on the law, that the person who does the commandments shall
-  live by them. But the righteousness based on faith says, Do not say in your heart, Who will ascend into heaven?
-  (that is, to bring Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead).
-  But what does it say? The word is near you, in your mouth and in your heart (that is, the word of faith that we
-  proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised
-  him from the dead, you will be saved. For with the heart one believes and is justified, and with the mouth one
-  confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to shame. (ESV)
+  Moses writes about the righteousness that is based on the law, that the person who does (G4160 poiēsas; having
+  done / having practiced) the commandments shall live by them. But the righteousness based on faith says, Do not
+  say in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the
+  abyss? (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth
+  and in your heart (that is, the word of faith that we proclaim); because, if you confess with your mouth that
+  Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. For with the heart
+  one believes and is justified, and with the mouth one confesses and is saved. For the Scripture says, Everyone
+  who believes in him will not be put to shame. (ESV)
 
   Isaiah 29:13-14 - And the Lord said: Because this people draw near with their mouth and honor me with their
   lips, while their hearts are far from me, and their fear of me is a commandment taught by men, therefore,
@@ -23946,13 +23964,14 @@ heart attitude thing, a justified by grace through faith thing. Faith, hope, lov
 attitudes.
 
   Romans 10:4-11 - For Christ is the end (G5056 telos) of the law for righteousness to everyone who believes. For
-  Moses writes about the righteousness that is based on the law, that the person who does the commandments shall
-  live by them. But the righteousness based on faith says, Do not say in your heart, Who will ascend into heaven?
-  (that is, to bring Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead).
-  But what does it say? The word is near you, in your mouth and in your heart (that is, the word of faith that we
-  proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised
-  him from the dead, you will be saved. For with the heart one believes and is justified, and with the mouth one
-  confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to shame. (ESV)
+  Moses writes about the righteousness that is based on the law, that the person who does (G4160 poiēsas; having
+  done / having practiced) the commandments shall live by them. But the righteousness based on faith says, Do not
+  say in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the
+  abyss? (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth
+  and in your heart (that is, the word of faith that we proclaim); because, if you confess with your mouth that
+  Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. For with the heart
+  one believes and is justified, and with the mouth one confesses and is saved. For the Scripture says, Everyone
+  who believes in him will not be put to shame. (ESV)
 
 I Timothy 1:5 (Interlinear)
 And the goal (G5056 telos) of [our] instruction is love (G26 agapē) out of a pure heart and a conscience good and
@@ -29981,13 +30000,14 @@ Believing in the Lord Jesus Christ in the heart is how to get saved:
   knowledge of sin. (ESV)
 
   Romans 10:4-11 - For Christ is the end of the law for righteousness to everyone who believes. For Moses writes
-  about the righteousness that is based on the law, that the person who does the commandments shall live by them.
-  But the righteousness based on faith says, Do not say in your heart, Who will ascend into heaven? (that is, to
-  bring Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead). But what
-  does it say? The word is near you, in your mouth and in your heart (that is, the word of faith that we
-  proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised
-  him from the dead, you will be saved. For with the heart one believes and is justified, and with the mouth one
-  confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to shame. (ESV)
+  about the righteousness that is based on the law, that the person who does (G4160 poiēsas; having done / having
+  practiced) the commandments shall live by them. But the righteousness based on faith says, Do not say in your
+  heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the abyss? (that
+  is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth and in your
+  heart (that is, the word of faith that we proclaim); because, if you confess with your mouth that Jesus is Lord
+  and believe in your heart that God raised him from the dead, you will be saved. For with the heart one believes
+  and is justified, and with the mouth one confesses and is saved. For the Scripture says, Everyone who believes
+  in him will not be put to shame. (ESV)
 
   Acts 16:31 - And they said, Believe in the Lord Jesus, and you will be saved, you and your household. (ESV)
 
@@ -30077,7 +30097,16 @@ kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (
   off. It is not in heaven, that you should say, Who will ascend to heaven for us and bring it to us, that we may
   hear it and do it? Neither is it beyond the sea, that you should say, Who will go over the sea for us and bring
   it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart,
-  so that you can do it. (ESV)
+  so that you can do it (H6213 la·‘a·śō·ṯōw: that you may do it). (ESV)
+
+Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
+a "here and now" thing for a "here and now" doing of faith (i.e. believing in the present tense) for God to see
+and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as
+regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's
+teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is
+needed first and good resting or good deeds are produced while holding good faith.
+
+Out of a loving faith in Jesus and His words a person becomes a "doer of the word".
 
 If a person is holding faith in Jesus Christ with a real faith, one that loves Jesus with agape love then they
 presently hold eternal life:
@@ -85364,22 +85393,24 @@ A person born of God has God working through them doing good works:
   works than these will he do, because I am going to the Father. (ESV)
 
 Faith is in the heart and confession is speaking the same as God. Justification is by faith in Jesus Christ and is
-a "here and now" thing. If we are confessing and believing the same as God as regards Jesus Christ then that is
-what saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of
-Jesus Christ and His words are so vital to remain in agreement with. The faith is needed first and good deeds are
-produced while holding good faith. From faith in Jesus and His words we do what He says:
+a "here and now" thing for a "here and now" doing of faith (i.e. believing in the present tense) for God to see
+and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as
+regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's
+teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is
+needed first and good resting or good deeds are produced while holding good faith. From faith in Jesus and His
+words we do what He says:
 
   Romans 10:3-11 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
   own, they did not submit to God's righteousness. For Christ is the end (G5056 telos) of the law for
   righteousness to everyone who believes. For Moses writes about the righteousness that is based on the law, that
-  the person who does the commandments shall live by them. But the righteousness based on faith says, Do not say
-  in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the abyss?
-  (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth and in
-  your heart (that is, the word of faith that we proclaim); because, if you confess (G3670 homologēsēs; from
-  homologeó: To confess, to acknowledge, to agree) with your mouth that Jesus is Lord and believe in your heart
-  that God raised him from the dead, you will be saved. For with the heart one believes and is justified, and with
-  the mouth one confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to
-  shame. (ESV)
+  the person who does (G4160 poiēsas; having done / having practiced) the commandments shall live by them. But the
+  righteousness based on faith says, Do not say in your heart, Who will ascend into heaven? (that is, to bring
+  Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead). But what does it
+  say? The word is near you, in your mouth and in your heart (that is, the word of faith that we proclaim);
+  because, if you confess (G3670 homologēsēs; from homologeó: To confess, to acknowledge, to agree) with your
+  mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. For
+  with the heart one believes and is justified, and with the mouth one confesses and is saved. For the Scripture
+  says, Everyone who believes in him will not be put to shame. (ESV)
 
   II John 1:9 - Everyone who goes on ahead and does not abide in the teaching of Christ, does not have God.
   Whoever abides in the teaching has both the Father and the Son. (ESV)
@@ -89415,7 +89446,7 @@ are hardened against the gospel, the Israel of the flesh who are under the Law o
   heart's desire and prayer to God for them is that they may be saved. I bear them witness that they have a zeal
   for God, but not according to knowledge. For, being ignorant of the righteousness that comes from God, and
   seeking to establish their own, they did not submit to God's righteousness. For Christ is the end of the law for
-  righteousness to everyone who believes. (ESV)
+  righteousness to everyone who believes (G4100 pisteuonti; believing). (ESV)
 
   Romans 11:21-29 - For if God did not spare the natural branches, neither will he spare you. Note then the
   kindness and the severity of God: severity toward those who have fallen, but God's kindness to you, provided you
@@ -96826,16 +96857,18 @@ We need to receive the Spirit of God:
 
 We can still have the righteousness based on faith:
 
-  Romans 10:4 - For Christ is the end of the law for righteousness to everyone who believes. (ESV)
+  Romans 10:4 - For Christ is the end of the law for righteousness to everyone who believes (G4100 pisteuonti;
+  believing). (ESV)
 
 Instead of thinking we must make the Torah our way of life, we simply make Jesus our Lord and Saviour:
 
-  Romans 10:5-9 - For Moses writes about the righteousness that is based on the law, that the person who does the
-  commandments shall live by them. But the righteousness based on faith says, Do not say in your heart, Who will
-  ascend into heaven? (that is, to bring Christ down) or Who will descend into the abyss? (that is, to bring
-  Christ up from the dead). But what does it say? The word is near you, in your mouth and in your heart (that is,
-  the word of faith that we proclaim); because, if you confess (G3670 homologēsēs, acknowledge, agree) with your
-  mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. (ESV)
+  Romans 10:5-9 - For Moses writes about the righteousness that is based on the law, that the person who does
+  (G4160 poiēsas; having done / having practiced) the commandments shall live by them. But the righteousness based
+  on faith says, Do not say in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who
+  will descend into the abyss? (that is, to bring Christ up from the dead). But what does it say? The word is near
+  you, in your mouth and in your heart (that is, the word of faith that we proclaim); because, if you confess
+  (G3670 homologēsēs, acknowledge, agree) with your mouth that Jesus is Lord and believe in your heart that God
+  raised him from the dead, you will be saved. (ESV)
 
 This is submitting to the righteousness of God:
 
@@ -97690,8 +97723,8 @@ the mind set on the Spirit is not hostile to God.
   Deuteronomy 4:13 - And he declared to you his covenant, which he commanded you to perform, that is, the Ten
   Commandments, and he wrote them on two tablets of stone.
 
-  Romans 10:5 - For Moses writes about the righteousness that is based on the law, that the person who does the
-  commandments shall live by them.
+  Romans 10:5 - For Moses writes about the righteousness that is based on the law, that the person who does (G4160
+  poiēsas; having done / having practiced) the commandments shall live by them.
 
   Romans 13:9 - The commandments, You shall not commit adultery, You shall not murder, You shall not steal, You
   shall not covet, and any other commandment, are summed up in this word: You shall love your neighbor as
@@ -100873,8 +100906,8 @@ youtube.com: When You Become Chosen You Will Find Yourself Alone
 
   Romans 10:3-5 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
   own, they did not submit to God's righteousness. For Christ is the end of the law for righteousness to everyone
-  who believes. For Moses writes about the righteousness that is based on the law, that the person who does the
-  commandments shall live by them.
+  who believes. For Moses writes about the righteousness that is based on the law, that the person who does (G4160
+  poiēsas; having done / having practiced) the commandments shall live by them.
 
 Following Christ's law is how to love. Trusting in Jesus is having faith in Him.
 
@@ -102148,13 +102181,14 @@ his own authority, empowered by Father God. Jesus lays down His life that He may
   aside, nailing it to the cross. (ESV)
 
   Romans 10:4-11 - For Christ is the end (G5056 telos) of the law for righteousness to everyone who believes. For
-  Moses writes about the righteousness that is based on the law, that the person who does the commandments shall
-  live by them. But the righteousness based on faith says, Do not say in your heart, Who will ascend into heaven?
-  (that is, to bring Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead).
-  But what does it say? The word is near you, in your mouth and in your heart (that is, the word of faith that we
-  proclaim); because, if you confess with your mouth that Jesus is Lord and believe in your heart that God raised
-  him from the dead, you will be saved. For with the heart one believes and is justified, and with the mouth one
-  confesses and is saved. For the Scripture says, Everyone who believes in him will not be put to shame. (ESV)
+  Moses writes about the righteousness that is based on the law, that the person who does (G4160 poiēsas; having
+  done / having practiced) the commandments shall live by them. But the righteousness based on faith says, Do not
+  say in your heart, Who will ascend into heaven? (that is, to bring Christ down) or Who will descend into the
+  abyss? (that is, to bring Christ up from the dead). But what does it say? The word is near you, in your mouth
+  and in your heart (that is, the word of faith that we proclaim); because, if you confess with your mouth that
+  Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. For with the heart
+  one believes and is justified, and with the mouth one confesses and is saved. For the Scripture says, Everyone
+  who believes in him will not be put to shame. (ESV)
 
   Acts 26:8 - Why is it thought incredible by any of you that God raises the dead? (ESV)
 
@@ -104582,7 +104616,7 @@ that it shows that Jesus Christ the Son of God is "sent" by Father God:
   given you an example, that you also should do just as I have done to you. Truly, truly, I say to you, a servant
   is not greater than his master, nor is a messenger greater than the one who sent him. (ESV)
 
-I have an way of thinking aboutf this unity and oneness through limited analogy
+I have an way of thinking about this unity and oneness through limited analogy
 
 Imagine an infinite identity matrix which has a diagonal of ones and the rest zeros. Call this matrix G:
 
@@ -104876,8 +104910,8 @@ sin:
   Galatians 3:12 - But the law is not of faith, rather The one who does them shall live by (zēsetai en) them.
   (ESV)
 
-  Romans 10:5 - For Moses writes about the righteousness that is based on the law, that the person who does the
-  commandments shall live by them. (ESV)
+  Romans 10:5 - For Moses writes about the righteousness that is based on the law, that the person who does (G4160
+  poiēsas; having done / having practiced) the commandments shall live by them. (ESV)
 
   Leviticus 18:5 - You shall therefore keep my statutes and my rules; if a person does them, he shall live by
   them: I am the LORD. (ESV)
@@ -147010,11 +147044,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-25 Wed 19:55
+Date: 2026-11-25 Wed 21:31
 
 Author: Shane Mulligan
 
-Created: 2026-11-25 Wed 19:59
+Created: 2026-11-25 Wed 21:33
 
 Validate
 
