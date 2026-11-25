@@ -91,6 +91,7 @@ Speaking the truth, even regarding sin is important (**[Ephesians 4:20-32](https
 It's also correct to separate from people who love evil while professing to be family to a Christian (**[I Corinthians 5:9-13](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A9-13&version=ESV)**) but we have to be careful to not judge on matters that are not truly sinful (**[Romans 14:3](https://www.biblegateway.com/passage/?search=Romans%2014%3A3&version=ESV)**, **[Romans 14:23](https://www.biblegateway.com/passage/?search=Romans%2014%3A23&version=ESV)**). But there certainly are sinful behaviours that qualify one believer to judge or separate from another (**[I Timothy 1:8-11](https://www.biblegateway.com/passage/?search=1%20Timothy%201%3A8-11&version=ESV)**). Substance abuse is one such thing (**[I Corinthians 5:9-13](https://www.biblegateway.com/passage/?search=1%20Corinthians%205%3A9-13&version=ESV)**), but some things in moderation could be OK (**[Titus 2:1-8](https://www.biblegateway.com/passage/?search=Titus%202%3A1-8&version=ESV)**).
 Truth without grace is judgemental, but truth with grace is truthful while patient (**[John 12:44-50](https://www.biblegateway.com/passage/?search=John%2012%3A44-50&version=ESV)**), even though real grace is given to someone so that they may be sanctified by the truth (**[Titus 2:11-14](https://www.biblegateway.com/passage/?search=Titus%202%3A11-14&version=ESV)**) but "having grace" such as "time to repent" (**[Revelation of John 2:21](https://www.biblegateway.com/passage/?search=Revelation%202%3A21&version=ESV)**, **[Revelation of John 16:8-11](https://www.biblegateway.com/passage/?search=Revelation%2016%3A8-11&version=ESV)**) could mean simply that a person is not yet in hell and so grace doesn't mean "saved" necessarily.
 Without repentance (i.e. without a change of mind), there is no salvation (**[Luke 13:3](https://www.biblegateway.com/passage/?search=Luke%2013%3A3&version=ESV)**).
+
 Truth is convicting (**[John 16:8-9](https://www.biblegateway.com/passage/?search=John%2016%3A8-9&version=ESV)**).
 Grace without the truth that convicts is not true grace because both grace and truth have come through Jesus Christ (**[John 1:14](https://www.biblegateway.com/passage/?search=John%201%3A14&version=ESV)**, **[John 14:6](https://www.biblegateway.com/passage/?search=John%2014%3A6&version=ESV)**).
 Real love loves the truth and hates evil (**[Romans 12:9](https://www.biblegateway.com/passage/?search=Romans%2012%3A9&version=ESV)**).
@@ -251,6 +252,12 @@ This latter state of not working, yet having faith, is important for justificati
 > **[Proverbs 12:3](https://www.biblegateway.com/passage/?search=Proverbs%2012%3A3&version=ESV)** - No one is established by wickedness, but the root of the righteous will never be moved. (ESV)
 
 It's imperative, no matter how much we've been attempting to work for God, that we accept the free gift from God, and that does require at least some point at which we have rested/abstained from working while holding faith in Jesus Christ while ceasing from working altogether. In holding faith in Jesus while abstaining from working in a legitimate way (i.e. in a way that is *obedient* to God as opposed to abstaining from working in a way that is committing sin as a "sin of omission" - see **[James 4:17](https://www.biblegateway.com/passage/?search=James%204%3A17&version=ESV)**, **[Matthew 25:41-46](https://www.biblegateway.com/passage/?search=Matthew%2025%3A41-46&version=ESV)**), while acknowledging their ungodliness (their sin) one receives the gift of righteousness.
+
+> **[Isaiah 56:2](https://www.biblegateway.com/passage/?search=Isaiah%2056%3A2&version=ESV)** - Blessed is the man who does this, and the son of man who holds it fast,who keeps the Sabbath, not profaning it, and keeps his hand from doing any evil. (ESV)
+
+> **[Matthew 12:11-13](https://www.biblegateway.com/passage/?search=Matthew%2012%3A11-13&version=ESV)** - He said to them, Which one of you who has a sheep, if it falls into a pit on the Sabbath, will not take hold of it and lift it out? Of how much more value is a man than a sheep! So it is lawful to do good on the Sabbath. Then he said to the man, Stretch out your hand. And the man stretched it out, and it was restored, healthy like the other. (ESV)
+
+> **[James 4:17](https://www.biblegateway.com/passage/?search=James%204%3A17&version=ESV)** - So whoever knows the right thing to do and fails to do it, for him it is sin. (ESV)
 
 There is "faith working righteousness" (**[John 3:21](https://www.biblegateway.com/passage/?search=John%203%3A21&version=ESV)**, **[John 4:34](https://www.biblegateway.com/passage/?search=John%204%3A34&version=ESV)**, **[Galatians 6:7-10](https://www.biblegateway.com/passage/?search=Galatians%206%3A7-10&version=ESV)**, **[John 6:27](https://www.biblegateway.com/passage/?search=John%206%3A27&version=ESV)**), which is a good place to be.
 
@@ -4477,7 +4484,7 @@ That person believing in Jesus Christ in the heart has an assurance that things 
 
 > **[Deuteronomy 30:11-14](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A11-14&version=ESV)** - For this commandment that I command you today is not too hard for you, neither is it far off. It is not in heaven, that you should say, Who will ascend to heaven for us and bring it to us, that we may hear it and do it? Neither is it beyond the sea, that you should say, Who will go over the sea for us and bring it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart, so that **you can do it** [(H6213 la·‘a·śō·ṯōw: that you may do it)](H6213). (ESV)
 
-Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to commend oneself).. If we are confessing and believing the same as God as regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good deeds are produced while holding good faith.
+Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good deeds are produced while holding good faith.
 
 Out of a loving faith in Jesus and His words a person becomes a "doer of the word".
 
@@ -18312,7 +18319,7 @@ That person believing in Jesus Christ in the heart has an assurance that things 
 
 > **[Deuteronomy 30:11-14](https://www.biblegateway.com/passage/?search=Deuteronomy%2030%3A11-14&version=ESV)** - For this commandment that I command you today is not too hard for you, neither is it far off. It is not in heaven, that you should say, Who will ascend to heaven for us and bring it to us, that we may hear it and do it? Neither is it beyond the sea, that you should say, Who will go over the sea for us and bring it to us, that we may hear it and do it? But the word is very near you. It is in your mouth and in your heart, so that **you can do it** [(H6213 la·‘a·śō·ṯōw: that you may do it)](H6213). (ESV)
 
-Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to commend oneself).. If we are confessing and believing the same as God as regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good deeds are produced while holding good faith.
+Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to commend oneself). If we are confessing and believing the same as God as regards Jesus Christ then that is what saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good deeds are produced while holding good faith.
 
 Out of a loving faith in Jesus and His words a person becomes a "doer of the word".
 
@@ -23794,7 +23801,7 @@ I strongly believe that no matter who baptised you, or which "denomination" we h
 
 ## The order of salvation
 
-I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org7c59381) and I want my theology to be 'raw and real', and always Scriptural.
+I plan on adhering to what the Word of God says, even if it offends other Christians when it comes to contentious topics as the [order of salvation](https://en.wikipedia.org/wiki/Ordo_salutis), or [salvation by obedience](#org64adbe5) and I want my theology to be 'raw and real', and always Scriptural.
 
 The gospel in a nutshell:
 
@@ -30467,7 +30474,7 @@ On <span class="timestamp-wrapper"><span class="timestamp">&lt;2025-01-13 Mon&gt
 
 I responded like this, "My faith is in the Word of God. Jesus Christ and His finished works is the cornerstone of my faith, and keeping and doing his commandments is the foundation of my faith. I obey Righteousness because I obey Jesus. I believe in the Truth because I believe in Jesus."
 
-I didn't know but it turned out to be the last day of my [sentence](#orgcf10598).
+I didn't know but it turned out to be the last day of my [sentence](#org46999e2).
 
 -   **Watch:** [youtube.com: FULL REMARKS: President Trump Speaks At White House Easter Prayer Service And Dinner {@ForbesBreakingNews}](https://www.youtube.com/watch?v=m__JDReWKQY)
 
@@ -31080,7 +31087,24 @@ This explanation seems correct:
     happens to a person.
 
 
-### Repentance from sin after being born of the Spirit
+### Repentance
+
+> **[Judges 10:10-15](https://www.biblegateway.com/passage/?search=Judges%2010%3A10-15&version=ESV)** - And the people of Israel cried out to the Lord, saying, We have sinned against you, because we have forsaken our God and have served the Baals. And the Lord said to the people of Israel, Did I not save you from the Egyptians and from the Amorites, from the Ammonites and from the Philistines? The Sidonians also, and the Amalekites and the Maonites oppressed you, and you cried out to me, and I saved you out of their hand. Yet you have forsaken me and served other gods; therefore I will save you no more. Go and cry out to the gods whom you have chosen; let them save you in the time of your distress. And the people of Israel said to the Lord, We have sinned; do to us whatever seems good to you. Only please deliver us this day. (ESV)
+
+> **[Judges 10:10-15](https://www.biblegateway.com/passage/?search=Judges%2010%3A10-15&version=ESV)** - Then the sons [(H1121 ben)](H1121) of Israel cried out to the Lord, saying, “We have sinned against You, for indeed, we have forsaken our God [(H430 'elohiym)](H430) and served the Baals.” The Lord said to the sons [(H1121 ben)](H1121) of Israel, “Did I not deliver you from the Egyptians, the Amorites, the sons [(H1121 ben)](H1121) of Ammon, and the Philistines? Also when the Sidonians, the Amalekites and the Maonites oppressed you, you cried out to Me, and I delivered you from their hands. Yet you have forsaken Me and served other gods [(H430 'elohiym)](H430); therefore I will no longer deliver you. Go and cry out to the gods [(H430 'elohiym)](H430) which you have chosen; let them deliver you in the time of your distress.” The sons [(H1121 ben)](H1121) of Israel said to the Lord, “We have sinned, do to us whatever seems good to You; only please deliver us this day.” (NASB)
+
+> **[Judges 10:16](https://www.biblegateway.com/passage/?search=Judges%2010%3A16&version=ESV)** - And they turn aside the gods of the stranger out of their midst, and serve Jehovah, and His soul is grieved with the misery of Israel. (YLT)
+
+> **[Jonah 2:7-10](https://www.biblegateway.com/passage/?search=Jonah%202%3A7-10&version=ESV)** - When my life was fainting away, I remembered the LORD, and my prayer came to you, into your holy temple. Those who pay regard to vain idols forsake their hope of steadfast love. But I with the voice of thanksgiving will sacrifice to you; what I have vowed I will pay. Salvation belongs to the LORD! And the LORD spoke to the fish, and it vomited Jonah out upon the dry land. (ESV)
+
+> **[Luke 15:17-24](https://www.biblegateway.com/passage/?search=Luke%2015%3A17-24&version=ESV)** - But when he came to himself, he said, How many of my father's hired servants have more than enough bread, but I perish here with hunger! I will arise and go to my father, and I will say to him, Father, I have sinned against heaven and before you. I am no longer worthy to be called your son. Treat me as one of your hired servants. And he arose and came to his father. But while he was still a long way off, his father saw him and felt compassion, and ran and embraced him and kissed him. And the son said to him, Father, I have sinned against heaven and before you. I am no longer worthy to be called your son. But the father said to his servants, Bring quickly the best robe, and put it on him, and put a ring on his hand, and shoes on his feet. And bring the fattened calf and kill it, and let us eat and celebrate. For this my son was dead, and is alive again; he was lost, and is found. And they began to celebrate. (ESV)
+
+
+### Further repentance from sin after being born of the Spirit
+
+There is a way of walking that is not committing sin, and that is walking by faith in God, in Jesus the Christ the Son of God, in God's word:
+
+> **[I John 2:1](https://www.biblegateway.com/passage/?search=1%20John%202%3A1&version=ESV)** - My little children, **I am writing these things to you so that you may not sin.** But if anyone does sin, we have an advocate with the Father, Jesus Christ the righteous. (ESV)
 
 It's very clear that even after God's spirit comes to dwell within a person, we must not defile ourselves through committing sin.
 And it's also clear that everyone who hope in Jesus Christ, purifies themselves as He is pure.
@@ -57418,7 +57442,7 @@ And I do not believe the following verse necessarily is merely talking about jus
 
 > **[Luke 10:25-37](https://www.biblegateway.com/passage/?search=Luke%2010%3A25-37&version=ESV)** - And behold, a lawyer stood up to put him to the test, saying, Teacher, what shall I do to inherit eternal life? He said to him, What is written in the Law? How do you read it? And he answered, **You shall love the Lord your God with all your heart and with all your soul and with all your strength and with all your mind, and your neighbor as yourself. And he said to him**, <ins>You have answered correctly</ins>; **do this, and you will live**. But he, *desiring to justify himself*, said to Jesus, And who is my neighbor? Jesus replied, A man was going down from Jerusalem to Jericho, and he fell among robbers, who stripped him and beat him and departed, leaving him half dead. Now by chance a priest was going down that road, and when he saw him he passed by on the other side. So likewise a Levite, when he came to the place and saw him, passed by on the other side. But a Samaritan, as he journeyed, came to where he was, and when he saw him, **he had compassion**. He went to him and bound up his wounds, pouring on oil and wine. Then he set him on his own animal and brought him to an inn and took care of him. And the next day he took out two denarii and gave them to the innkeeper, saying, <ins>Take care of him, and whatever more you spend, I will repay you when I come back</ins>. Which of these three, do you think, *proved to be a neighbor* to the man who fell among the robbers? He said, <ins>The one who showed him</ins> **mercy**. And Jesus said to him, **You go, and do likewise.** (ESV)
 
-See: [33.4.1](#org3360107)
+See: [33.4.1](#orgb072189)
 
 -   **[Polycarp 2:1](https://www.earlychristianwritings.com/text/polycarp-lightfoot.html):** Wherefore [gird up your loins](https://www.biblegateway.com/passage/?search=1%20Peter%201%3A13&version=ESV) and serve God in fear and truth,
     forsaking the vain and empty talking and the error of the many, for
@@ -80776,7 +80800,7 @@ To be raised up as a child of Abraham, bear fruit in keeping with repentance. We
 
 > **[Luke 3:8](https://www.biblegateway.com/passage/?search=Luke%203%3A8&version=ESV)** - <ins>Bear fruits in keeping with repentance.</ins> And do not begin to say to yourselves, We have Abraham as our father. For I tell you, <ins>God is able from these stones to raise up children for Abraham.</ins>
 
-See: [33.4.1](#org3360107)
+See: [33.4.1](#orgb072189)
 
 To be regarded as a child of Abraham, a person must fall into one of 2 categories:
 
@@ -83561,7 +83585,7 @@ Jesus can subject all things to Himself. By that power, Jesus will transform our
     
     > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
     
-    [Sinning believers](#org62801f7) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+    [Sinning believers](#org0617159) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
     
     Peter's confession is absolutely True and is an imperishable truth! We want to be in the truth, so we believe the truth.
     
@@ -92962,7 +92986,7 @@ We should take a page from Nebuchadnezzar, and obey Jesus to strengthen our brot
 
 > **[Daniel 4:34-37](https://www.biblegateway.com/passage/?search=Daniel%204%3A34-37&version=ESV)** - At the end of the days I, Nebuchadnezzar, lifted my eyes to heaven, and my reason returned to me, and I blessed the Most High, and praised and honored him who lives forever, for his dominion is an everlasting dominion, and his kingdom endures from generation to generation; all the inhabitants of the earth are accounted as nothing, and he does according to his will among the host of heaven and among the inhabitants of the earth; and none can stay his hand or say to him, What have you done? At the same time my reason returned to me, and for the glory of my kingdom, my majesty and splendor returned to me. My counselors and my lords sought me, and I was established in my kingdom, and still more greatness was added to me. Now I, Nebuchadnezzar, praise and extol and honor the King of heaven, for all his works are right and his ways are just; and those who walk in pride he is able to humble. (ESV)
 
-[Sinning believers](#org62801f7) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
+[Sinning believers](#org0617159) will still experience tribulation. Believers who are unrepentant from sin are probably not true trusters of Jesus or are rebellious even in face of hearing the gospel and maybe even experience the literal place Hades (the bad part). I could be wrong, but I don't want to test God. It's a bad idea to put Christ to the test. Jesus is the Judge.
 
 > **[Matthew 16:15-19](https://www.biblegateway.com/passage/?search=Matthew%2016%3A15-19&version=ESV)** - He said to them, But who do you say that I am? Simon Peter replied, **You are the Christ, the Son of the living God**. And Jesus answered him, Blessed are you, Simon Bar-Jonah! For <ins>flesh and blood has not revealed this to you, but my Father who is in heaven</ins>. And I tell you, you are Peter, and **on this rock I will build my church, and the gates of hell [(G86 hadés)](https://www.blueletterbible.org/lexicon/g86/kjv/tr/0-1/) shall not prevail against it**. I will give you the keys of the kingdom of heaven, and whatever you bind on earth shall be bound in heaven, and whatever you loose on earth shall be loosed in heaven. (ESV)
 
@@ -94802,7 +94826,7 @@ So I believe that Jesus, (Yeshua, Joshua) is one of God's names, Jesus being God
 
 Jesus (Yeshua, Iēsous) and Jehovah (Yahweh) all refer to God's name (**[onoma](https://biblehub.com/greek/3686.htm)**).
 
-I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org93d79a9)
+I have a section here on theology to do with God's name: [semiosis.github.io: Thoughts on Faith and Judgement - Jehovah is Almighty God, Creator of Heaven and Earth](#org3992b94)
 
 When I was born-again of the Spirit on 2 April 2022, I called out to Jesus to save me.
 Nothing has changed with regards to who is my Lord and Saviour and God and King.

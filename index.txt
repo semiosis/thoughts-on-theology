@@ -163,6 +163,7 @@ but truth with grace is truthful while patient (John 12:44-50), even though real
 they may be sanctified by the truth (Titus 2:11-14) but "having grace" such as "time to repent" (Revelation of
 John 2:21, Revelation of John 16:8-11) could mean simply that a person is not yet in hell and so grace doesn't
 mean "saved" necessarily. Without repentance (i.e. without a change of mind), there is no salvation (Luke 13:3).
+
 Truth is convicting (John 16:8-9). Grace without the truth that convicts is not true grace because both grace and
 truth have come through Jesus Christ (John 1:14, John 14:6). Real love loves the truth and hates evil (Romans
 12:9). Real faith loves the truth (Mark 4:14-20, II Timothy 4:8).
@@ -545,6 +546,16 @@ Jesus Christ while ceasing from working altogether. In holding faith in Jesus wh
 legitimate way (i.e. in a way that is obedient to God as opposed to abstaining from working in a way that is
 committing sin as a "sin of omission" - see James 4:17, Matthew 25:41-46), while acknowledging their ungodliness
 (their sin) one receives the gift of righteousness.
+
+  Isaiah 56:2 - Blessed is the man who does this, and the son of man who holds it fast,who keeps the Sabbath, not
+  profaning it, and keeps his hand from doing any evil. (ESV)
+
+  Matthew 12:11-13 - He said to them, Which one of you who has a sheep, if it falls into a pit on the Sabbath,
+  will not take hold of it and lift it out? Of how much more value is a man than a sheep! So it is lawful to do
+  good on the Sabbath. Then he said to the man, Stretch out your hand. And the man stretched it out, and it was
+  restored, healthy like the other. (ESV)
+
+  James 4:17 - So whoever knows the right thing to do and fails to do it, for him it is sin. (ESV)
 
 There is "faith working righteousness" (John 3:21, John 4:34, Galatians 6:7-10, John 6:27), which is a good place
 to be.
@@ -8422,7 +8433,7 @@ kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (
 Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends
 as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the
 present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to
-commend oneself).. If we are confessing and believing the same as God as regards Jesus Christ then that is what
+commend oneself). If we are confessing and believing the same as God as regards Jesus Christ then that is what
 saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus
 Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good
 deeds are produced while holding good faith.
@@ -30103,7 +30114,7 @@ kardia) of you (G4771 sou) Who (G5101 Tis) will ascend (G305 anabēsetai) into (
 Faith is in the heart and confession is speaking the same as God. Justification is given to those who God commends
 as having faith in Jesus Christ and is a "here and now" thing for a "here and now" doing of faith (i.e. in the
 present tense believing in Jesus the Christ the Son of God) for God to see and for God to commend (rather than to
-commend oneself).. If we are confessing and believing the same as God as regards Jesus Christ then that is what
+commend oneself). If we are confessing and believing the same as God as regards Jesus Christ then that is what
 saving faith is. This is important because we must abide in Jesus Christ's teachings and so the person of Jesus
 Christ and His words are so vital to remain in agreement with. The faith is needed first and good resting or good
 deeds are produced while holding good faith.
@@ -49195,7 +49206,50 @@ recreated. They went from this to being brand new, born again in Christ. But Pet
 could receive the Holy Spirit. And that's what happened on the day of Pentecost in Acts chapter 2. They were born
 again, but on the day of Pentecost, they received the Holy Spirit. All right? So, that's what happens to a person.
 
-3.1.2. Repentance from sin after being born of the Spirit
+3.1.2. Repentance
+
+  Judges 10:10-15 - And the people of Israel cried out to the Lord, saying, We have sinned against you, because we
+  have forsaken our God and have served the Baals. And the Lord said to the people of Israel, Did I not save you
+  from the Egyptians and from the Amorites, from the Ammonites and from the Philistines? The Sidonians also, and
+  the Amalekites and the Maonites oppressed you, and you cried out to me, and I saved you out of their hand. Yet
+  you have forsaken me and served other gods; therefore I will save you no more. Go and cry out to the gods whom
+  you have chosen; let them save you in the time of your distress. And the people of Israel said to the Lord, We
+  have sinned; do to us whatever seems good to you. Only please deliver us this day. (ESV)
+
+  Judges 10:10-15 - Then the sons (H1121 ben) of Israel cried out to the Lord, saying, “We have sinned against
+  You, for indeed, we have forsaken our God (H430 'elohiym) and served the Baals.” The Lord said to the sons
+  (H1121 ben) of Israel, “Did I not deliver you from the Egyptians, the Amorites, the sons (H1121 ben) of Ammon,
+  and the Philistines? Also when the Sidonians, the Amalekites and the Maonites oppressed you, you cried out to
+  Me, and I delivered you from their hands. Yet you have forsaken Me and served other gods (H430 'elohiym);
+  therefore I will no longer deliver you. Go and cry out to the gods (H430 'elohiym) which you have chosen; let
+  them deliver you in the time of your distress.” The sons (H1121 ben) of Israel said to the Lord, “We have
+  sinned, do to us whatever seems good to You; only please deliver us this day.” (NASB)
+
+  Judges 10:16 - And they turn aside the gods of the stranger out of their midst, and serve Jehovah, and His soul
+  is grieved with the misery of Israel. (YLT)
+
+  Jonah 2:7-10 - When my life was fainting away, I remembered the LORD, and my prayer came to you, into your holy
+  temple. Those who pay regard to vain idols forsake their hope of steadfast love. But I with the voice of
+  thanksgiving will sacrifice to you; what I have vowed I will pay. Salvation belongs to the LORD! And the LORD
+  spoke to the fish, and it vomited Jonah out upon the dry land. (ESV)
+
+  Luke 15:17-24 - But when he came to himself, he said, How many of my father's hired servants have more than
+  enough bread, but I perish here with hunger! I will arise and go to my father, and I will say to him, Father, I
+  have sinned against heaven and before you. I am no longer worthy to be called your son. Treat me as one of your
+  hired servants. And he arose and came to his father. But while he was still a long way off, his father saw him
+  and felt compassion, and ran and embraced him and kissed him. And the son said to him, Father, I have sinned
+  against heaven and before you. I am no longer worthy to be called your son. But the father said to his servants,
+  Bring quickly the best robe, and put it on him, and put a ring on his hand, and shoes on his feet. And bring the
+  fattened calf and kill it, and let us eat and celebrate. For this my son was dead, and is alive again; he was
+  lost, and is found. And they began to celebrate. (ESV)
+
+3.1.3. Further repentance from sin after being born of the Spirit
+
+There is a way of walking that is not committing sin, and that is walking by faith in God, in Jesus the Christ the
+Son of God, in God's word:
+
+  I John 2:1 - My little children, I am writing these things to you so that you may not sin. But if anyone does
+  sin, we have an advocate with the Father, Jesus Christ the righteous. (ESV)
 
 It's very clear that even after God's spirit comes to dwell within a person, we must not defile ourselves through
 committing sin. And it's also clear that everyone who hope in Jesus Christ, purifies themselves as He is pure.
@@ -50349,7 +50403,7 @@ was made to Abraham and to Christ. Now we must be found in Christ. Amen:
   to Abraham and to his offspring. It does not say, And to offsprings, referring to many, but referring to one,
   And to your offspring, who is Christ. (ESV)
 
-3.1.3. Becoming born-again of the Spirit may be receiving the inheritance
+3.1.4. Becoming born-again of the Spirit may be receiving the inheritance
 
 Then there may be some nuance between receiving the Holy Spirit who is the guarantee of our inheritance, and being
 born of the Spirit which may be [part of] our inheritance.
@@ -50379,7 +50433,7 @@ In trusting in Jesus Christ, we may receive the Holy Spirit:
   height and depth, and to know the love of Christ that surpasses knowledge, that you may be filled with all the
   fullness of God. (ESV)
 
-3.1.4. The living water, the Holy Spirit of promise is the seal of our inheritance, and received through faith in
+3.1.5. The living water, the Holy Spirit of promise is the seal of our inheritance, and received through faith in
 Jesus
 
   John 4:10 - Jesus answered her, If you knew the gift of God, and who it is that is saying to you, Give me a
@@ -50388,7 +50442,7 @@ Jesus
   John 4:14 - but whoever drinks of the water that I will give him will never be thirsty forever. The water that I
   will give him will become in him a spring of water welling up to eternal life. (ESV)
 
-3.1.5. Jesus being glorified means we can receive the Holy Spirit through faith
+3.1.6. Jesus being glorified means we can receive the Holy Spirit through faith
 
   John 13:31-32 - Therefore, when he was gone out, Jesus said, Now is the Son of man glorified, and God is
   glorified in him. If God be glorified in him, God shall also glorify him in himself, and shall straightway
@@ -50399,7 +50453,7 @@ Jesus
   Acts 2:4 - And they were all filled with the Holy Spirit and began to speak in other tongues as the Spirit gave
   them utterance. (ESV)
 
-3.1.6. When we are born of the Spirit, we receive a regenerated spirit-man. This is part of the inheritance, I think
+3.1.7. When we are born of the Spirit, we receive a regenerated spirit-man. This is part of the inheritance, I think
 
 Being born of the Spirit / spiritually regenerated I think is a different event to receiving the Holy Spirit which
 typically happens beforehand, particularly for Gentile Christians when we give our heart to the Lord Jesus:
@@ -50452,7 +50506,7 @@ God's Word and not loving evil:
   covetous (that is, an idolater), has no inheritance in the kingdom of Christ and God. Let no one deceive you
   with empty words, for because of these things the wrath of God comes upon the sons of disobedience. (ESV)
 
-3.1.7. Any spiritual experience should be in the character of the Holy Spirit
+3.1.8. Any spiritual experience should be in the character of the Holy Spirit
 
 youtube.com: How to Preach with Supernatural Power @time: 8 min 16 sec
 He does not mean that something spiritual is religious or mystical or other-worldly. That's what most people think
@@ -50474,7 +50528,7 @@ youtube.com: C. S. Lewis 2024 - Characteristics of the Holy Spirit's personality
   the Spirit, if in fact the Spirit of God dwells in you. Anyone who does not have the Spirit of Christ does not
   belong to him. (ESV)
 
-3.1.8. My testimony of being born-again of the Spirit
+3.1.9. My testimony of being born-again of the Spirit
 
 Being born of the Spirit is something which is genuinely unpredictable but we can sense its coming and going. It's
 not the same thing as getting someone to pray a sinner's prayer, for example, otherwise Jesus would not have used
@@ -147046,11 +147100,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-25 Wed 21:31
+Date: 2026-11-26 Thu 00:42
 
 Author: Shane Mulligan
 
-Created: 2026-11-25 Wed 21:55
+Created: 2026-11-26 Thu 00:46
 
 Validate
 
