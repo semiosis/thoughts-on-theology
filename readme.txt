@@ -4618,7 +4618,15 @@ faithfully the Scripture, out of the fear of God, entrusting their soul to God w
 doing good, as Jesus Christ Himself did as an example for us to follow. I'm not saying Jesus is created (Father,
 Son and Holy Spirit are all Creator), but He is our example to follow. The Christian is called to walk by faith
 even against the opposition one might get. I've found that opposition can also come from people who are confessing
-unsound doctrine. The servant who is disobedient to God will receive a beating:
+unsound doctrine.
+
+The servant who is disobedient to God will receive a 'severe' (Luke 12:47) beating.
+
+It seems as though not having the wedding garment coincides with essentially not getting ready or acting to do the
+will of God:
+
+  Matthew 25:30 - And cast the worthless servant into the outer darkness. In that place there will be weeping and
+  gnashing of teeth. (ESV)
 
   Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
   prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
@@ -5873,6 +5881,9 @@ Hearing the word and holding it fast in an honest and good heart, a person loves
   Luke 6:45 - The good person out of the good treasure of his heart produces good, and the evil person out of his
   evil treasure produces evil, for out of the abundance of the heart his mouth speaks. (ESV)
 
+1Clem 49:1
+Let him that hath love in Christ fulfill the commandments of Christ.
+
 youtube.com: The Gospel Before Jesus Died {@ desiringGod } @time: 10 min 31 sec
 And if we ask, "How much did various people understand in order to be saved?" Because people were saved by the
 death of Christ before the death of Christ. We know that from Romans 3:25. The best way to answer that question, I
@@ -6353,6 +6364,11 @@ Faith in Jesus:
 Love for Jesus:
 
   John 14:15 - If you love me, you will keep my commandments. (ESV)
+
+Servants of Christ have an obligation to love one-another in the pattern of Christ:
+
+  Romans 15:1 - We who are strong have an obligation to bear with the failings of the weak, and not to please
+  ourselves. (ESV)
 
 In faith and love, keep Jesus' word:
 
@@ -8499,6 +8515,8 @@ all of it
 • Colossians 4:12 - Epaphras, who is one of you, a servant of Christ Jesus, greets you, always
 struggling on your behalf in his prayers, that you may stand mature and fully assured in all the
 will of God. (ESV)
+• Repent (Acts 17:30-31) and have faith in Jesus Christ (I John 3:23-24), in the Gospel of God (Mark 1:14-15)
+and love one-another (I John 3:23-24) as commanded (Romans 13:9)
 • Have faith in Jesus Christ
 • John 6:40 - For this is the will of my Father, that everyone who looks on the Son and believes in him
 should have eternal life, and I will raise him up on the last day. (ESV)
@@ -8630,7 +8648,13 @@ of his evil treasure produces evil, for out of the abundance of the heart his mo
 • I Corinthians 16:13-14 - Be watchful, stand firm in the faith, act like men, be strong. Let all that you
 do be done in love. (ESV)
 
-The servant who is disobedient to God will receive a beating:
+The servant who is disobedient to God will receive a 'severe' (Luke 12:47) beating.
+
+It seems as though not having the wedding garment coincides with essentially not getting ready or acting to do the
+will of God:
+
+  Matthew 25:30 - And cast the worthless servant into the outer darkness. In that place there will be weeping and
+  gnashing of teeth. (ESV)
 
   Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
   prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
@@ -9532,6 +9556,15 @@ but a state of unrepentant sin is not a place that someone can safely remain in 
   no wedding garment. And he said to him, Friend, how did you get in here without a wedding garment? And he was
   speechless. Then the king said to the attendants, Bind him hand and foot and cast him into the outer darkness.
   In that place there will be weeping and gnashing of teeth. For many are called, but few are chosen. (ESV)
+
+It seems as though not having the wedding garment coincides with essentially not getting ready or acting to do the
+will of God:
+
+  Matthew 25:30 - And cast the worthless servant into the outer darkness. In that place there will be weeping and
+  gnashing of teeth. (ESV)
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
+  prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
 
 While God does draw people to Jesus Christ, that does't mean that the person who has been "called" will be saved.
 We have to continue on in the love of the truth. When someone loves the world or the things of the world, they are
@@ -16191,6 +16224,9 @@ from that love of the truth, we live, and we do good:
   and love, and for a helmet the hope of salvation. For God has not destined us for wrath, but to obtain salvation
   through our Lord Jesus Christ, who died for us so that whether we are awake or asleep we might live with him.
   (ESV)
+
+1Clem 49:1
+Let him that hath love in Christ fulfill the commandments of Christ.
 
 God gave Jesus Christ as a ransom because He loves us. Without Father God sending Jesus into the world as light,
 we would have remained in darkness:
@@ -24695,6 +24731,15 @@ here (even the bad ones) except for the one without a wedding garment:
   speechless. Then the king said to the attendants, Bind him hand and foot and cast him into the outer darkness.
   In that place there will be weeping and gnashing of teeth. For many are called, but few are chosen. (ESV)
 
+It seems as though not having the wedding garment coincides with essentially not getting ready or acting to do the
+will of God:
+
+  Matthew 25:30 - And cast the worthless servant into the outer darkness. In that place there will be weeping and
+  gnashing of teeth. (ESV)
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
+  prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
+
 God is still very much pleased with those who do what is good in the sight of Him, and displeased with the wicked.
 God doesn't delight in the wicked and doesn't have pleasure the death of the wicked (Ezekiel 18:20-24). But God
 loves those who have faith in and love Jesus Christ His Son. How could that be? All have fallen short of God's
@@ -27030,7 +27075,11 @@ Sin is pleasurable for a time but leads to destruction:
   (ESV)
 
 God wants us to accept correction from Him because He loves us. So God sent Jesus to us to instruct us (Matthew
-28:19-20, Hebrews 12:25) so that we can remember Him (Luke 22:19), look upon Him and live (John 6:40):
+28:19-20, Hebrews 12:25) so that we can remember Him (Luke 22:19), look upon Him and live (John 6:40), and it's
+very important to believe in the light while you have the light, to receive Jesus (John 1:12-13) by having faith
+in Jesus Christ (John 12:35-36). To ignore Jesus Christ and His gospel and to not be disbelieving in Him,
+rejecting Him and His words would be devestating as it is for the people in Jesus' parable who did not come to the
+banquet (Matthew 22:1-14):
 
   Zephaniah 3:6-7 - I have cut off nations; their battlements are in ruins; I have laid waste their streets so
   that no one walks in them; their cities have been made desolate, without a man, without an inhabitant. I said,
@@ -27041,6 +27090,11 @@ God wants us to accept correction from Him because He loves us. So God sent Jesu
 
   Romans 6:23 - For the wages of sin is death, but the free gift of God is eternal life in Christ Jesus our Lord.
   (ESV)
+
+  John 12:35-36 - So Jesus said to them, The light is among you for a little while longer. Walk while you have the
+  light, lest darkness overtake you. The one who walks in the darkness does not know where he is going. While you
+  have the light, believe in the light, that you may become sons of light. When Jesus had said these things, he
+  departed and hid himself from them. (ESV)
 
 Our hearts are circumcised in order for us to love God with all our heart and soul that we may live. So, yes, we
 must love God and continue to love God after the surgical operation that God does on our hearts in order that we
@@ -57616,6 +57670,11 @@ And we enter into God's rest as we are trusting in Jesus:
   a festival or a new moon or a Sabbath. These are a shadow of the things to come, but the substance belongs to
   Christ. (ESV)
 
+Sanctification continues as we walk obediently by faith in the Lord Jesus Christ, trusting and obeying Him,
+obedient to the teaching that Jesus and His Apostles have committed, practicing righteousness! And practicing
+genuine love as the Bible describes it not only involves compassion and mercy but also involves "not coveting",
+"not committing idolatry or adultery", "not bearing false-witness" etc.:
+
 Resting from our works doesn't mean resting from love (which is in the heart) and it doesn't mean resting from
 obedience (which is in the heart), since we have to hold our faith in Jesus in a law-abiding way (that is loving
 God with all our heart, soul, mind and strength and and our neighbour as ourself). Without the law-abiding love,
@@ -59287,6 +59346,8 @@ all of it
 • Colossians 4:12 - Epaphras, who is one of you, a servant of Christ Jesus, greets you, always
 struggling on your behalf in his prayers, that you may stand mature and fully assured in all the
 will of God. (ESV)
+• Repent (Acts 17:30-31) and have faith in Jesus Christ (I John 3:23-24), in the Gospel of God (Mark 1:14-15)
+and love one-another (I John 3:23-24) as commanded (Romans 13:9)
 • Have faith in Jesus Christ
 • John 6:40 - For this is the will of my Father, that everyone who looks on the Son and believes in him
 should have eternal life, and I will raise him up on the last day. (ESV)
@@ -59418,7 +59479,7 @@ of his evil treasure produces evil, for out of the abundance of the heart his mo
 • I Corinthians 16:13-14 - Be watchful, stand firm in the faith, act like men, be strong. Let all that you
 do be done in love. (ESV)
 
-The servant who is disobedient to God will receive a beating:
+The servant who is disobedient to God will receive a 'severe' (Luke 12:47) beating.
 
   Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
   prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
@@ -64076,6 +64137,15 @@ We must have time for Jesus and treasure Him:
   no wedding garment. And he said to him, Friend, how did you get in here without a wedding garment? And he was
   speechless. Then the king said to the attendants, Bind him hand and foot and cast him into the outer darkness.
   In that place there will be weeping and gnashing of teeth. For many are called, but few are chosen. (ESV)
+
+It seems as though not having the wedding garment coincides with essentially not getting ready or acting to do the
+will of God:
+
+  Matthew 25:30 - And cast the worthless servant into the outer darkness. In that place there will be weeping and
+  gnashing of teeth. (ESV)
+
+  Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
+  prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
 
 I'm glad that God has given me a testimony. He gave it to me to protect me from what may be coming and whoever
 else might also use it as evidence. Though I hope and would prefer to be with Jesus and raptured, and not to have
@@ -70214,6 +70284,8 @@ all of it
 • Colossians 4:12 - Epaphras, who is one of you, a servant of Christ Jesus, greets you, always
 struggling on your behalf in his prayers, that you may stand mature and fully assured in all the
 will of God. (ESV)
+• Repent (Acts 17:30-31) and have faith in Jesus Christ (I John 3:23-24), in the Gospel of God (Mark 1:14-15)
+and love one-another (I John 3:23-24) as commanded (Romans 13:9)
 • Have faith in Jesus Christ
 • John 6:40 - For this is the will of my Father, that everyone who looks on the Son and believes in him
 should have eternal life, and I will raise him up on the last day. (ESV)
@@ -70298,7 +70370,7 @@ of his evil treasure produces evil, for out of the abundance of the heart his mo
 • I Corinthians 16:13-14 - Be watchful, stand firm in the faith, act like men, be strong. Let all that you
 do be done in love. (ESV)
 
-The servant who is disobedient to God will receive a beating:
+The servant who is disobedient to God will receive a 'severe' (Luke 12:47) beating.
 
   Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
   prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
@@ -85031,7 +85103,7 @@ We are instructed to not grow weary of doing good:
   not give up. So then, as we have opportunity, let us do good to everyone, and especially to those who are of the
   household of faith. (ESV)
 
-The servant who is disobedient to God will receive a beating:
+The servant who is disobedient to God will receive a 'severe' (Luke 12:47) beating.
 
   Luke 12:47 - And that servant who knew his master's will but did not get ready (G2090 hetoimasas; having
   prepared) or act (G4160 poiēsas; having done) according to his will, will receive a severe beating. (ESV)
@@ -100371,9 +100443,9 @@ for obedience to Christ, and God writes His laws on our heart, so that we love i
 love, but in that process, I have personally experienced God's correcting influence on me after getting
 born-again.
 
-  Polycarp 3:3 [3:2 the faith given to you] which is the mother of us all, while hope followeth after and love
-  goeth before – love toward God and Christ and toward our neighbor. For if any man be occupied with these, he
-  hath fulfilled the commandment of righteousness; for he that hath love is far from all sin.
+• Polycarp 3:3 [3:2 the faith given to you] which is the mother of us all, while hope followeth after and love
+goeth before – love toward God and Christ and toward our neighbor. For if any man be occupied with these, he
+hath fulfilled the commandment of righteousness; for he that hath love is far from all sin.
 
 Jesus will gather His wheat into the barn:
 
@@ -147024,6 +147096,130 @@ Jesus Christ has come [into the world] from God as flesh (word become flesh) is 
   not from God. This is the spirit of the antichrist, which you heard was coming and now is in the world already.
   (ESV)
 
+78.4.95. Journal <2026-11-26 Thu 18:41>
+
+Whoever is presently holding faith in a loving faith Jesus Christ the Son of God is not condemned and presently
+holds eternal life. But whoever is presently disbelieving in Jesus Christ the Son of God is condemned already.
+
+  John 3:18 - Whoever believes in him is not condemned, but whoever does not believe is condemned already, because
+  he has not believed in the name of the only Son of God. (ESV)
+
+God is the judge of a person's heart, but it still stands that the fact is that anybody who is disbelieving in
+Yeshua Hamashiach (Jesus Christ) the Son of God is condemned already and in the moment, and they need to repent:
+
+  John 14:24 - Whoever does not love me does not keep my words. And the word that you hear is not mine but the
+  Father's who sent me. (ESV)
+
+  John 15:23-24 - Whoever hates me hates my Father also. If I had not done among them the works that no one else
+  did, they would not be guilty of sin, but now they have seen and hated both me and my Father. (ESV)
+
+  I Corinthians 16:22 - If anyone has no love for the Lord, let him be accursed. Our Lord, come! (ESV)
+
+It doesn't matter what good a person is deluded into thinking they do if a person is at the same time denying
+Jesus Christ.
+
+When I have commented on John 3:19-21 explaining how someone doing what is true comes to the light (who is Jesus
+Christ), such a person still needs to receive Jesus. Jesus is the cornerstone. Whoever is having faith in Jesus
+Christ has the love of God in them and produces good. A person who thinks they are doing good but who rejects
+Jesus clearly does not have the love of God in them:
+
+  John 3:19-21 - And this is the judgment: the light has come into the world, and people loved the darkness rather
+  than the light because their deeds were evil. For everyone who does wicked things hates the light and does not
+  come to the light, lest his deeds should be exposed. But whoever does what is true comes to the light, so that
+  it may be clearly seen that his deeds have been carried out in God. (ESV)
+
+  Romans 9:30-32 - What shall we say, then? That Gentiles who did not pursue righteousness have attained it, that
+  is, a righteousness that is by faith; but that Israel who pursued a law that would lead to righteousness did not
+  succeed in reaching that law. Why? Because they did not pursue it by faith, but as if it were based on works.
+  They have stumbled over the stumbling stone, (ESV)
+
+  Romans 10:3-11 - For, being ignorant of the righteousness that comes from God, and seeking to establish their
+  own, they did not submit to God's righteousness. For Christ is the end (G5056 telos) of the law for
+  righteousness to everyone who believes. For Moses writes about the righteousness that is based on the law, that
+  the person who does (G4160 poiēsas; having done / having practiced) the commandments shall live by them. But the
+  righteousness based on faith says, Do not say in your heart, Who will ascend into heaven? (that is, to bring
+  Christ down) or Who will descend into the abyss? (that is, to bring Christ up from the dead). But what does it
+  say? The word is near you, in your mouth and in your heart (that is, the word of faith that we proclaim);
+  because, if you confess (G3670 homologēsēs; from homologeó: To confess, to acknowledge, to agree) with your
+  mouth that Jesus is Lord and believe in your heart that God raised him from the dead, you will be saved. For
+  with the heart one believes and is justified, and with the mouth one confesses and is saved. For the Scripture
+  says, Everyone who believes in him will not be put to shame. (ESV)
+
+  John 5:42-43 - But I know that you do not have the love of God within you. I have come in my Father's name, and
+  you do not receive me. If another comes in his own name, you will receive him. (ESV)
+
+If a person denies that they need the blood of Jesus Christ to atone for their sin then they are presently
+condemned. If a person thinks they can be good without Jesus Christ, well they are in delusion and are presently
+condemned.
+
+Ignorance does not save:
+
+  Hosea 4:6 - My people are destroyed for lack of knowledge; because you have rejected knowledge, I reject you
+  from being a priest to me. And since you have forgotten the law of your God, I also will forget your children.
+  (ESV)
+
+To hate Jesus is to approve of all of the works of the devil for which Christ has appeared to destroy (I John
+3:3-11).
+
+But if someone is believing in Jesus Christ love for the truth then they are not condemned:
+
+  I John 1:10 - If we say we have not sinned, we make him a liar, and his word is not in us. (ESV)
+
+  Romans 3:21-26 - But now the righteousness of God has been manifested apart from (G5565 chōris) the law (G3551
+  nomou), although the Law and the Prophets bear witness to it— the righteousness of God through faith in Jesus
+  Christ for all who believe. For there is no distinction: for all have sinned and fall short of the glory of God,
+  and are justified by his grace as a gift, through the redemption that is in Christ Jesus, whom God put forward
+  as a propitiation by his blood, to be received by faith. This was to show God's righteousness, because in his
+  divine forbearance he had passed over former sins. It was to show his righteousness at the present time, so that
+  he might be just and the justifier of the one who has faith in Jesus. (ESV)
+
+I hope and pray people get saved and put their faith in Jesus Christ and come around to agreeing with Father God.
+
+If someone has been forgiven by God through faith in Jesus Christ then they will have the love of God in them and
+from the good treasure of their heart they will produce good.
+
+  Galatians 6:13-16 - For even those who are circumcised do not themselves keep the law, but they desire to have
+  you circumcised that they may boast in your flesh. But far be it from me to boast except in the cross of our
+  Lord Jesus Christ, by which the world has been crucified to me, and I to the world. For neither circumcision
+  counts for anything, nor uncircumcision, but a new creation. And as for all who walk by this rule, peace and
+  mercy be upon them, and upon the Israel of God. (ESV)
+
+78.4.96. Journal <2026-11-26 Thu 20:16>
+
+When I think of giving food and drink, welcoming a stranger, or clothing another person or visiting the sick or
+the one in prison, I certainly do not think of this only in a "material" way, but also "spiritual" way. What I
+mean by that is that the food and drink might be understood as Jesus Christ and His words. Consider that to give
+food and drink could be to feed Jesus' sheep with the Gospel of Jesus Christ, and to visit the sick or the one in
+prison could mean to reach out to the lost with the Gospel of Jesus Christ. I truly believe that it would be
+remiss (failing to do what duty requires) to only in charity give material things while not sharing Jesus Christ
+and His Gospel words:
+
+  Matthew 25:31-40 - When the Son of Man comes in his glory, and all the angels with him, then he will sit on his
+  glorious throne. Before him will be gathered all the nations, and he will separate people one from another as a
+  shepherd separates the sheep from the goats. And he will place the sheep on his right, but the goats on the
+  left. Then the King will say to those on his right, Come, you who are blessed by my Father, inherit the kingdom
+  prepared for you from the foundation of the world. For I was hungry and you gave me food, I was thirsty and you
+  gave me drink, I was a stranger and you welcomed me, I was naked and you clothed me, I was sick and you visited
+  me, I was in prison and you came to me. Then the righteous will answer him, saying, Lord, when did we see you
+  hungry and feed you, or thirsty and give you drink? And when did we see you a stranger and welcome you, or naked
+  and clothe you? And when did we see you sick or in prison and visit you? And the King will answer them, Truly, I
+  say to you, as you did it to one of the least of these my brothers, you did it to me. (ESV)
+
+  Matthew 25:41-46 - Then he will say to those on his left, Depart from me, you cursed, into the eternal fire
+  prepared for the devil and his angels. For I was hungry and you gave me no food, I was thirsty and you gave me
+  no drink, I was a stranger and you did not welcome me, naked and you did not clothe me, sick and in prison and
+  you did not visit me. Then they also will answer, saying, Lord, when did we see you hungry or thirsty or a
+  stranger or naked or sick or in prison, and did not minister to you? Then he will answer them, saying, Truly, I
+  say to you, as you did not do it to one of the least of these, you did not do it to me. And these will go away
+  into eternal punishment, but the righteous into eternal life. (ESV)
+
+  John 21:15-17 - When they had finished breakfast, Jesus said to Simon Peter, Simon, son of John, do you love me
+  more than these? He said to him, Yes, Lord; you know that I love you. He said to him, Feed my lambs. He said to
+  him a second time, Simon, son of John, do you love me? He said to him, Yes, Lord; you know that I love you. He
+  said to him, Tend my sheep. He said to him the third time, Simon, son of John, do you love me? Peter was grieved
+  because he said to him the third time, Do you love me? and he said to him, Lord, you know everything; you know
+  that I love you. Jesus said to him, Feed my sheep.
+
 78.5. Prayer of thanks
 
   I Chronicles 29:11 - Yours, O LORD, is the greatness and the power and the glory and the victory and the
@@ -147100,11 +147296,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-26 Thu 00:42
+Date: 2026-11-26 Thu 20:17
 
 Author: Shane Mulligan
 
-Created: 2026-11-26 Thu 00:46
+Created: 2026-11-26 Thu 20:42
 
 Validate
 
