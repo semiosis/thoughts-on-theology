@@ -104786,6 +104786,10 @@ no God.
   and upholds all things by the word of His power. When He had made purification of sins, He sat down at the right
   hand of the Majesty on high,
 
+  John 12:44-46 - And Jesus cried out and said, Whoever believes in me, believes not in me but in him who sent me.
+  And whoever sees me sees him who sent me. I have come into the world as light, so that whoever believes in me
+  may not remain in darkness. (ESV)
+
 Also, it's oneness in love and in truth. God is love and the truth and real love loves the truth and hates evil.
 And real faith in the truth loves the truth.
 
@@ -147220,6 +147224,41 @@ and His Gospel words:
   because he said to him the third time, Do you love me? and he said to him, Lord, you know everything; you know
   that I love you. Jesus said to him, Feed my sheep.
 
+78.4.97. Journal <2026-11-27 Fri 09:09>
+
+God can bring a man's soul back from the pit:
+
+  Psalms 103:1-5 - Bless the LORD, O my soul, and all that is within me, bless his holy name! Of David. Bless the
+  LORD, O my soul, and forget not all his benefits, who forgives all your iniquity, who heals all your diseases,
+  who redeems your life from the pit, who crowns you with steadfast love and mercy, who satisfies you with good so
+  that your youth is renewed like the eagle's. (ESV)
+
+  Job 33:27-30 - He sings before men and says: I sinned and perverted what was right, and it was not repaid to me.
+  He has redeemed my soul from going down into the pit, and my life shall look upon the light. Behold, God does
+  all these things, twice, three times, with a man, to bring back his soul from the pit, that he may be lighted
+  with the light of life. (ESV)
+
+Jesus the Christ the Son of God is not merely a man but is Yahweh God:
+
+  Mark 10:45 - For even the Son of Man came not to be served but to serve, and to give his life as a ransom for
+  many. (ESV)
+
+  Psalms 49:7-9 - Truly no man can ransom another, or give to God the price of his life, for the ransom of their
+  life is costly and can never suffice, that he should live on forever and never see the pit. (ESV)
+
+Salvation belongs to Yahweh:
+
+  Jonah 2:7-10 - When my life was fainting away, I remembered the LORD, and my prayer came to you, into your holy
+  temple. Those who pay regard to vain idols forsake their hope of steadfast love. But I with the voice of
+  thanksgiving will sacrifice to you; what I have vowed I will pay. Salvation belongs to the LORD! And the LORD
+  spoke to the fish, and it vomited Jonah out upon the dry land. (ESV)
+
+  Matthew 16:24-27 - Then Jesus told his disciples, If anyone would come after me, let him deny himself and take
+  up his cross and follow me. For whoever would save his life will lose it, but whoever loses his life for my sake
+  will find it. For what will it profit a man if he gains the whole world and forfeits his life? Or what shall a
+  man give in return for his life? For the Son of Man is going to come with his angels in the glory of his Father,
+  and then he will repay each person according to what he has done. (ESV)
+
 78.5. Prayer of thanks
 
   I Chronicles 29:11 - Yours, O LORD, is the greatness and the power and the glory and the victory and the
@@ -147296,11 +147335,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-26 Thu 20:17
+Date: 2026-11-27 Fri 09:37
 
 Author: Shane Mulligan
 
-Created: 2026-11-26 Thu 20:42
+Created: 2026-11-27 Fri 09:44
 
 Validate
 
