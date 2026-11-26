@@ -3113,6 +3113,42 @@ Whoever is presently having faith in Jesus is not committing sin. God justifies 
 Jesus and in having faith in Jesus they have repented and in having faith in Jesus are not committing sin (I John
 5:18, I John 5:1-6, Romans 14:23).
 
+Journal <2026-11-27 Fri 10:54>
+
+Keeping the commandments is not about having done a deed but is primarily about what is going on inside a person's
+heart. And the commandments permit people to do good deeds (Mark 7:6-13). Do they have the love of God in their
+heart and are abstaining from committing sin? Do they believe that God is good? Yet for eternal life a person
+still needs to deny themself, take up their cross and follow Jesus Christ. If a person is breaking God's
+commandments from the heart (e.g. idolising or bearing false witness, committing idolatry or covetousness, for
+example) then I do not think they could have a genuine faith in God or in Jesus Christ in that moment:
+
+  Matthew 19:16-22 - And behold, a man came up to him, saying, Teacher, what good deed must I do to have eternal
+  life? And he said to him, Why do you ask me about what is good? There is only one who is good. If you would
+  enter life, keep the commandments. He said to him, Which ones? And Jesus said, You shall not murder, You shall
+  not commit adultery, You shall not steal, You shall not bear false witness, Honor your father and mother, and,
+  You shall love your neighbor as yourself. The young man said to him, All these I have kept. What do I still
+  lack? Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will
+  have treasure in heaven; and come, follow me. When the young man heard this he went away sorrowful, for he had
+  great possessions. (ESV)
+
+  Mark 10:17-22 - And as he was setting out on his journey, a man ran up and knelt before him and asked him, Good
+  Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good
+  except God alone. You know the commandments: Do not murder, Do not commit adultery, Do not steal, Do not bear
+  false witness, Do not defraud, Honor your father and mother. And he said to him, Teacher, all these I have kept
+  from my youth. And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you
+  have and give to the poor, and you will have treasure in heaven; and come, follow me. Disheartened by the
+  saying, he went away sorrowful, for he had great possessions. (ESV)
+
+  Luke 18:18-27 - And a ruler asked him, Good Teacher, what must I do to inherit eternal life? And Jesus said to
+  him, Why do you call me good? No one is good except God alone. You know the commandments: Do not commit
+  adultery, Do not murder, Do not steal, Do not bear false witness, Honor your father and mother. And he said, All
+  these I have kept from my youth. When Jesus heard this, he said to him, One thing you still lack. Sell all that
+  you have and distribute to the poor, and you will have treasure in heaven; and come, follow me. But when he
+  heard these things, he became very sad, for he was extremely rich. Jesus, looking at him with sadness, said, How
+  difficult it is for those who have wealth to enter the kingdom of God! For it is easier for a camel to go
+  through the eye of a needle than for a rich person to enter the kingdom of God. Those who heard it said, Then
+  who can be saved? But he said, What is impossible with men is possible with God. (ESV)
+
 Connecting both mentions of "showing no partiality" in James 2:1-12, holding faith and being "law abiding" (which
 Christians must be), not committing sin, go hand in hand:
 
@@ -13279,6 +13315,40 @@ being conformed to a sketch (shadow), rather than the finished product (the imag
 glory). But Jesus' commandments depend on the Great 2 commandments, so I'm certainly being conformed to do those.
 Also, the 10 commandments I believe are still to be kept (Mark 10:17-23), but in the Christian way (Malachi 1:6,
 Matthew 23:9).
+
+Keeping the commandments is not about having done a deed but is primarily about what is going on inside a person's
+heart. And the commandments permit people to do good deeds (Mark 7:6-13). Do they have the love of God in their
+heart and are abstaining from committing sin? Do they believe that God is good? Yet for eternal life a person
+still needs to deny themself, take up their cross and follow Jesus Christ. If a person is breaking God's
+commandments from the heart (e.g. idolising or bearing false witness, committing idolatry or covetousness, for
+example) then I do not think they could have a genuine faith in God or in Jesus Christ in that moment:
+
+  Matthew 19:16-22 - And behold, a man came up to him, saying, Teacher, what good deed must I do to have eternal
+  life? And he said to him, Why do you ask me about what is good? There is only one who is good. If you would
+  enter life, keep the commandments. He said to him, Which ones? And Jesus said, You shall not murder, You shall
+  not commit adultery, You shall not steal, You shall not bear false witness, Honor your father and mother, and,
+  You shall love your neighbor as yourself. The young man said to him, All these I have kept. What do I still
+  lack? Jesus said to him, If you would be perfect, go, sell what you possess and give to the poor, and you will
+  have treasure in heaven; and come, follow me. When the young man heard this he went away sorrowful, for he had
+  great possessions. (ESV)
+
+  Mark 10:17-22 - And as he was setting out on his journey, a man ran up and knelt before him and asked him, Good
+  Teacher, what must I do to inherit eternal life? And Jesus said to him, Why do you call me good? No one is good
+  except God alone. You know the commandments: Do not murder, Do not commit adultery, Do not steal, Do not bear
+  false witness, Do not defraud, Honor your father and mother. And he said to him, Teacher, all these I have kept
+  from my youth. And Jesus, looking at him, loved him, and said to him, You lack one thing: go, sell all that you
+  have and give to the poor, and you will have treasure in heaven; and come, follow me. Disheartened by the
+  saying, he went away sorrowful, for he had great possessions. (ESV)
+
+  Luke 18:18-27 - And a ruler asked him, Good Teacher, what must I do to inherit eternal life? And Jesus said to
+  him, Why do you call me good? No one is good except God alone. You know the commandments: Do not commit
+  adultery, Do not murder, Do not steal, Do not bear false witness, Honor your father and mother. And he said, All
+  these I have kept from my youth. When Jesus heard this, he said to him, One thing you still lack. Sell all that
+  you have and distribute to the poor, and you will have treasure in heaven; and come, follow me. But when he
+  heard these things, he became very sad, for he was extremely rich. Jesus, looking at him with sadness, said, How
+  difficult it is for those who have wealth to enter the kingdom of God! For it is easier for a camel to go
+  through the eye of a needle than for a rich person to enter the kingdom of God. Those who heard it said, Then
+  who can be saved? But he said, What is impossible with men is possible with God. (ESV)
 
 A saved person who is walking by faith in Jesus Christ in love for Jesus Christ loving righteousness is under
 grace and does deeds out of a love of righteousness. Their heart becomes oriented in a particular way to be doing
@@ -147224,6 +147294,28 @@ and His Gospel words:
   because he said to him the third time, Do you love me? and he said to him, Lord, you know everything; you know
   that I love you. Jesus said to him, Feed my sheep.
 
+  Romans 14:1-3 - As for the one who is weak in faith, welcome him, but not to quarrel over opinions. One person
+  believes he may eat anything, while the weak person eats only vegetables. Let not the one who eats despise the
+  one who abstains, and let not the one who abstains pass judgment on the one who eats, for God has welcomed him.
+  (ESV)
+
+  Luke 4:18-21 - The Spirit of the Lord is upon me, because he has anointed me to proclaim good news to the poor.
+  He has sent me to proclaim liberty to the captives and recovering of sight to the blind, to set at liberty those
+  who are oppressed, to proclaim the year of the Lord's favor. And he rolled up the scroll and gave it back to the
+  attendant and sat down. And the eyes of all in the synagogue were fixed on him. And he began to say to them,
+  Today this Scripture has been fulfilled in your hearing. (ESV)
+
+  John 8:34-35,36,42,51 - Jesus answered them, Truly, truly, I say to you, everyone who commits sin is a slave to
+  sin. The slave does not remain in the house forever; the son remains forever. So if the Son sets you free, you
+  will be free indeed. Jesus said to them, If God were your Father, you would love me, for I came from God and I
+  am here. I came not of my own accord, but he sent me. Truly, truly, I say to you, if anyone keeps my word, he
+  will never see death. (ESV)
+
+  John 6:32-35 - Jesus then said to them, Truly, truly, I say to you, it was not Moses who gave you the bread from
+  heaven, but my Father gives you the true bread from heaven. For the bread of God is he who comes down from
+  heaven and gives life to the world. They said to him, Sir, give us this bread always. Jesus said to them, I am
+  the bread of life; whoever comes to me shall not hunger, and whoever believes in me shall never thirst. (ESV)
+
 78.4.97. Journal <2026-11-27 Fri 09:09>
 
 God can bring a man's soul back from the pit:
@@ -147339,7 +147431,7 @@ Date: 2026-11-27 Fri 09:37
 
 Author: Shane Mulligan
 
-Created: 2026-11-27 Fri 09:44
+Created: 2026-11-27 Fri 12:08
 
 Validate
 
