@@ -3120,7 +3120,9 @@ heart. And the commandments permit people to do good deeds (Mark 7:6-13). Do the
 heart and are abstaining from committing sin? Do they believe that God is good? Yet for eternal life a person
 still needs to deny themself, take up their cross and follow Jesus Christ. If a person is breaking God's
 commandments from the heart (e.g. idolising or bearing false witness, committing idolatry or covetousness, for
-example) then I do not think they could have a genuine faith in God or in Jesus Christ in that moment:
+example) then I do not think they could have a genuine faith in God or in Jesus Christ in that moment. Following
+Jesus, a person would continue abiding in His teachings, walking as He walked. Denying oneself involves denying
+the old life and following Jesus means walking in the new life:
 
   Matthew 19:16-22 - And behold, a man came up to him, saying, Teacher, what good deed must I do to have eternal
   life? And he said to him, Why do you ask me about what is good? There is only one who is good. If you would
@@ -13321,7 +13323,9 @@ heart. And the commandments permit people to do good deeds (Mark 7:6-13). Do the
 heart and are abstaining from committing sin? Do they believe that God is good? Yet for eternal life a person
 still needs to deny themself, take up their cross and follow Jesus Christ. If a person is breaking God's
 commandments from the heart (e.g. idolising or bearing false witness, committing idolatry or covetousness, for
-example) then I do not think they could have a genuine faith in God or in Jesus Christ in that moment:
+example) then I do not think they could have a genuine faith in God or in Jesus Christ in that moment. Following
+Jesus, a person would continue abiding in His teachings, walking as He walked. Denying oneself involves denying
+the old life and following Jesus means walking in the new life:
 
   Matthew 19:16-22 - And behold, a man came up to him, saying, Teacher, what good deed must I do to have eternal
   life? And he said to him, Why do you ask me about what is good? There is only one who is good. If you would
@@ -147427,11 +147431,11 @@ teaching.
 Download
 PDF, TEXT, MARKDOWN, ORG, semiosis.github.io
 
-Date: 2026-11-27 Fri 09:37
+Date: 2026-11-27 Fri 16:13
 
 Author: Shane Mulligan
 
-Created: 2026-11-27 Fri 12:08
+Created: 2026-11-27 Fri 16:16
 
 Validate
 
